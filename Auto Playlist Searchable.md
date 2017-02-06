@@ -5,24 +5,22 @@
 album claire
 
 [Aoi Tori](https://www.dropbox.com/s/8571a81mckn0d3u/Kana%20Hanazawa%20-%20Aoi%20Tori.mp3?dl=0)
-Just The Way You Are
-https://www.dropbox.com/s/yqg7tjnu857kis9/Kana%20Hanazawa%20-%20Just%20The%20Way%20You%20Are.mp3?dl=0
-Staccato
-https://www.dropbox.com/s/qksc2nkfoqltgyu/Kana%20Hanazawa%20-%20Staccato.mp3?dl=0
-melody
-https://www.dropbox.com/s/ap5iqkfkqiy40lz/Kana%20Hanazawa%20-%20melody.mp3?dl=0
-happy endings
-https://www.dropbox.com/s/e1ob9c1r3og69rq/Kana%20Hanazawa%20-%20happy%20endings.mp3?dl=0
+
+[Just The Way You Are](https://www.dropbox.com/s/yqg7tjnu857kis9/Kana%20Hanazawa%20-%20Just%20The%20Way%20You%20Are.mp3?dl=0)
+
+[Staccato](https://www.dropbox.com/s/qksc2nkfoqltgyu/Kana%20Hanazawa%20-%20Staccato.mp3?dl=0)
+
+[melody](https://www.dropbox.com/s/ap5iqkfkqiy40lz/Kana%20Hanazawa%20-%20melody.mp3?dl=0)
+
+[happy endings](https://www.dropbox.com/s/e1ob9c1r3og69rq/Kana%20Hanazawa%20-%20happy%20endings.mp3?dl=0)
 
 album 25
 
-Brand New Days
-https://soundcloud.com/whiteneko-3/kana-hanazawa-brand-new-days
-Tabidatsu Kanojo to Furui Sebyoushi
-https://soundcloud.com/alghi-fary/tabidatsu-kanojo-to-furui-sebyoushi
-Distance Concentric
-Mujakina Kimi to Manatsu no Melody
-https://youtu.be/HvpBs_2gVqQ
+[Brand New Days](https://soundcloud.com/whiteneko-3/kana-hanazawa-brand-new-days)
+
+[Tabidatsu Kanojo to Furui Sebyoushi](https://soundcloud.com/alghi-fary/tabidatsu-kanojo-to-furui-sebyoushi)
+
+[Mujakina Kimi to Manatsu no Melody](https://youtu.be/HvpBs_2gVqQ)
 
 album Blue Avenue
 
