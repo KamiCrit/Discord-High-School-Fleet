@@ -1,11 +1,7 @@
-2017-02-04 1930
-
---- KamiCrit ---
-
--- 3D Singing --
-
-- Kana Hanazawa -
-
+2017-02-05 1945
+# KamiCrit 
+## 3D Singing
+### Kana Hanazawa
 album claire
 
 [Aoi Tori](https://www.dropbox.com/s/8571a81mckn0d3u/Kana%20Hanazawa%20-%20Aoi%20Tori.mp3?dl=0)
@@ -33,9 +29,7 @@ album Blue Avenue
 I Love New Day
 https://youtu.be/5TQZZRtq83M
 Blueberry Night
-
-- Other -
-
+### Other
 Sukiyaki -Ue o Muite Arukou- - Kyu Sakamoto -English Translation and Lyrics-
 https://youtu.be/C35DrtPlUbc
 Bump of Chicken - Hammer Song to Itami no Tou
@@ -59,7 +53,7 @@ https://www.dropbox.com/s/58me9uasbi2cnsd/SUPER%E2%98%86GiRLS%20-%20Candy%20Macc
 AKB48 - 01. Koi Suru Fortune Cookie
 https://www.dropbox.com/s/5qwv1ayt4qb3jld/AKB48%20-%2001.%20Koi%20Suru%20Fortune%20Cookie.mp3?dl=0
 
--- Anime --
+## Anime
 
 3-gatsu no Lion
 BUMP OF CHICKEN - Answer
@@ -395,7 +389,7 @@ https://soundcloud.com/mew178/space-battleship-yamato
 Makka na Scarf -Space Battleship Yamato 2199 Version-
 https://youtu.be/eJgIlnyhJ1A
 
--- Oranges & Lemons - Tribute to Azumanga Daioh --
+## Oranges & Lemons - Tribute to Azumanga Daioh
 https://www.dropbox.com/s/e9np5g4dd24ttfu/01-soramimi-cake.mp3?dl=0
 https://www.dropbox.com/s/obdb4p1wcl8a2cp/02-kaze-no-iro-march.mp3?dl=0
 https://www.dropbox.com/s/6t8caappmbticlc/03-hoshi-no-megane.mp3?dl=0
@@ -406,9 +400,7 @@ https://www.dropbox.com/s/i3p1wje04n51jsy/07-mei-mei.mp3?dl=0
 https://www.dropbox.com/s/5e9txcg6fw7tl7c/08-weepin-rains.mp3?dl=0
 https://www.dropbox.com/s/ps96mobf63axm55/09-asayake-senro.mp3?dl=0
 https://www.dropbox.com/s/jq2egjp5evwuf7j/10-raspberry-heaven.mp3?dl=0
-
--- Japanese Military Music --
-
+## Japanese Military Music
 https://www.dropbox.com/s/6akumylkh714t11/%E9%9B%AA%E3%81%AE%E9%80%B2%E8%BB%8D%E3%80%90%E6%98%8E%E6%B2%BB%E8%BB%8D%E6%AD%8C%E3%80%91.mp3?dl=0
 https://www.dropbox.com/s/45fz5yjlwncqqvz/Yuki%20no%20Shingun%20%5BEnglish%20Translation%5D.mp3?dl=0
 https://www.dropbox.com/s/9sx1ym91cs2gdby/Japanese%20Military%20March%20-%20%E6%97%A5%E3%81%AE%E4%B8%B8%E8%A1%8C%E9%80%B2%E6%9B%B2.mp3?dl=0
@@ -419,11 +411,8 @@ https://www.dropbox.com/s/37c7foyw4tm5s4n/%E6%88%A6%E8%89%A6%E5%A4%A7%E5%92%8C%E
 https://www.dropbox.com/s/vjdnhgmnb3befwi/%E7%AC%AC%E5%85%AD%E6%BD%9C%E6%B0%B4%E8%89%87%E3%81%AE%E9%81%AD%E9%9B%A3%E3%80%90%E6%B5%B7%E8%BB%8D%E8%BB%8D%E6%AD%8C%E3%80%91.mp3?dl=0
 https://www.dropbox.com/s/0y07i4k20g58n5d/%E3%80%90%E8%BB%8D%E6%AD%8C%E3%80%91%E3%81%BE%E3%82%8B%E3%82%86%E9%83%A8%E9%9A%8A%E3%81%AE%E6%AD%8C%EF%BC%88%E8%88%B9%E8%88%B6%E8%BC%B8%E9%80%81%E6%BD%9C%E8%88%AA%E8%89%87%E9%9A%8A%E6%AD%8C%EF%BC%89.mp3?dl=0
 https://www.dropbox.com/s/h2eobbxm7d36mn0/%E3%80%8A%E8%BB%8D%E6%AD%8C%E3%80%8B%E8%BD%9F%E6%B2%88%20%EF%BC%88G%C5%8Dchin%20%EF%BC%89with%20Eng_Sub.mp3?dl=0
-
---- Lilac ---
-
--- Love Live! --
-
+# Lilac
+## Love Live!
 Bokura no LIVE Kimi to no LIFE
 https://www.dropbox.com/s/69ajqnd3bbptckt/Bokura%20no%20LIVE%2C%20Kimi%20to%20no%20LIFE.mp3?dl=0
 Yuujou No Change
@@ -540,9 +529,7 @@ Sayonara e Sayonara
 https://www.dropbox.com/s/3y3vztm86gngd5h/Sayonara%20e%20Sayonara.mp3?dl=0
 SELF CONTROL!!
 https://www.dropbox.com/s/djgh7f2o2bkp10d/SELF%20CONTROL%21%21.mp3?dl=0
-
--- Idolmaster --
-
+## Idolmaster
 Star!!
 https://www.dropbox.com/s/9jl1mb3fclajzw4/Star%21%21.mp3?dl=0
 Happyx2 Days
@@ -561,9 +548,7 @@ Kono Sora no Shita
 https://www.dropbox.com/s/ot1uwrjbyqubz3l/Kono%20Sora%20no%20Shita.mp3?dl=0
 Shine!!
 https://www.dropbox.com/s/2dowkjqv4vd1ir9/Shine%21%21.mp3?dl=0
-
--- High School Fleet / Haifuri --
-
+## High School Fleet / Haifuri
 Watashitachi Kinenbi
 https://www.dropbox.com/s/b55s1hb93zovx24/Watashitachi%20Kinenbi.mp3?dl=0
 360 Barricade
@@ -576,9 +561,7 @@ C H A T T Y (CHATTY)
 https://www.dropbox.com/s/j6mqyvy16shnnek/C%E3%83%BBH%E3%83%BBA%E3%83%BBT%E3%83%BBT%E3%83%BBY.mp3?dl=0
 HANDMADE EVERYDAY
 https://www.dropbox.com/s/j0lrh9ku6o6pnhr/HANDMADE%20EVERYDAY%E2%99%AA.mp3?dl=0
-
--- Anime Songs --
-
+##Anime Songs
 Saki Achiga-hen
 MIRACLE RUSH
 https://www.dropbox.com/s/9uedvtdl6vv1ta4/MIRACLE%20RUSH.mp3?dl=0
@@ -648,10 +631,7 @@ https://www.dropbox.com/s/8x4zphl89rvam68/SOMEONE%20ELSE.mp3?dl=0
 Denpa Kyoushi
 Youthful Dreamer
 https://www.dropbox.com/s/e0emanbytzh189c/Youthful%20Dreamer.mp3?dl=0
-
-
--- Other Songs --
-
+## Other Songs
 Cyber Thunder Cider
 https://www.dropbox.com/s/qb9lm14yks4uyam/Cyber%20Thunder%20Cider.mp3?dl=0
 Youthful Dreamer
@@ -661,13 +641,9 @@ https://www.dropbox.com/s/wtp85c5gi97ryor/Kurumi.mp3?dl=0
 Hyperdimension Neptunia
 Miracle! Portable Mission
 https://www.dropbox.com/s/jy4ou2scdmu4ehm/Miracle%21%20Portable%E2%98%86Mission.mp3?dl=0
-
---- Mandalor ---
-
+# Mandalor
 http://www.nicovideo.jp/watch/nm10237524
-
--- Military Music --
-
+## Military Music
 Battotai March
 https://www.youtube.com/watch?v=-kBQ6lHKTEc
 Father You were Strong
@@ -676,9 +652,7 @@ Song of the Maruyu Corps
 https://www.youtube.com/watch?v=57ZQZEABkKs
 Song of the Navy Night Battle Troops
 https://www.youtube.com/watch?v=6qqoU9zK2Lw
-
--- Commie Music --
-
+## Commie Music
 The Internationale
 https://www.youtube.com/watch?v=lyfhs42mdyA
 Korobushka
@@ -689,9 +663,7 @@ Akahata no Uta
 https://www.youtube.com/watch?v=jMf-qLljzNg
 Kane ga Nareba
 https://www.youtube.com/watch?v=n5ZVblz-snE
-
--- Anime --
-
+## Anime
 White Forces
 https://www.youtube.com/watch?v=4r_hciORWUw
 Rhine no Mamori
@@ -720,9 +692,7 @@ Dragonfly Wings
 https://www.youtube.com/watch?v=LnH_TL6HFBE
 kirina -The ONE-
 https://www.youtube.com/watch?v=cXzvAuo6tLM
-
---- lostmyhead ---
-
+# lostmyhead
 Kenshi Yonezu - Santa Maria
 https://www.youtube.com/watch?v=KR54fHpcxEQ
 Kenshi Yonezu - Eine Kleine
@@ -793,16 +763,11 @@ Boys Be Fucked Up - Hammock Scotch Business
 https://www.youtube.com/watch?v=1-UmKL5jSGY
 City Lights - Hammock Scotch Business
 https://www.youtube.com/watch?v=sRuWtmP6p7c
-
---- Falthie ---
-
--- Utaite --
-
+# Falthie
+## Utaite
 Secret Answer
 https://www.youtube.com/watch?v=pwLP3GDIhAk
-
-- Soraru -
-
+### Soraru
 Ghost Rule
 https://www.youtube.com/watch?v=NHQdDs1I5LM
 Kimi no Mewo
@@ -875,9 +840,7 @@ Kashokusei Idol Shoukougun -GigaP Remix-
 https://dl.dropboxusercontent.com/u/65812877/04%20-%20Kashokusei%20Idol%20Shoukougun%20-GigaP%20Remix-.mp3
 Clean Freak
 https://www.youtube.com/watch?v=HUDHmJsJvYc
-
-- Amatsuki -
-
+# Amatsuki
 Envy Catwalk -Last Note Arrange.
 https://dl.dropboxusercontent.com/u/65812877/04.%20Envy%20Cat%20Walk%20%7ELast%20Note.%20Arrange%20Ver.%7E.mp3
 Sweet Sugar Stick
@@ -900,9 +863,7 @@ Ghost Rule
 https://www.youtube.com/watch?v=FVoZvo1YMA4
 Streaming Heart
 https://www.youtube.com/watch?v=Z8RXp-jP34Y
-
-- Hanatan -
-
+# Hanatan
 Nijigen Dream Fever
 https://www.youtube.com/watch?v=2O3RcMwgV_o
 Romeo and Cinderella
@@ -915,9 +876,7 @@ Strangers
 https://www.youtube.com/watch?v=QR6MINMkr1g
 Tengaku
 https://www.youtube.com/watch?v=O2vIaraJ2zw
-
-- taiga -
-
+#taiga
 Great Days
 https://www.youtube.com/watch?v=zoqH1Rk4ANM
 Crazy Noisy Bizarre Town
@@ -932,9 +891,7 @@ BLOODY STREAM
 https://www.youtube.com/watch?v=b3nNtFZhCEo
 Sono Chi no Sadame
 https://www.youtube.com/watch?v=Jvu30XkxZ70
-
-- JubyPhonic -
-
+# JubyPhonic
 Odds and Ends
 https://dl.dropboxusercontent.com/u/65812877/Odds%20and%20Ends%20-%20JubyPhonic.mp3
 Tell Your World
@@ -961,16 +918,12 @@ Six Trillion Years and Overnight Story
 https://www.youtube.com/watch?v=DjVDqM8aw54
 Kagerou Days
 https://www.youtube.com/watch?v=MU-rdG-M5Ho
-
-- rachie -
-
+#rachie
 Two Breaths Walking
 https://www.youtube.com/watch?v=Q3uHO-t1eDI
 When The First Love Ends
 https://www.youtube.com/watch?v=bB5sRgSy79w
-
--- NNC --
-
+## NNC
 Pride Kakumei
 https://www.youtube.com/watch?v=zC4CshC0FNE
 Calc.
@@ -983,9 +936,7 @@ Children Record
 https://www.youtube.com/watch?v=VIiZGYd9aTQ
 Renai Yuusha
 https://www.youtube.com/watch?v=Kd-aqMrVapc
-
--- Various Vocaloids --
-
+## Various Vocaloids
 LIAR DANCE
 https://www.youtube.com/watch?v=FOvfM0fe-FE
 Reversible Campaign
@@ -1018,9 +969,7 @@ Two-Faced Lovers
 https://www.youtube.com/watch?v=AvTH7J2shuI
 Tell Your World
 https://www.youtube.com/watch?v=fmrA-gxJxgQ
-
--- Various Animu --
-
+## Various Animu
 TORCH
 https://www.youtube.com/watch?v=HLrdp_85s8s
 Take Your Way
@@ -1031,9 +980,7 @@ https://www.youtube.com/watch?v=QzZsWKqn27k
 https://www.youtube.com/watch?v=h2N4wQuho9k
 ALL OFF
 https://www.youtube.com/watch?v=lZLEXj52lcc
-
--- Love Live OST --
-
+## Love Live OST
 Hajimari no Asa
 https://dl.dropboxusercontent.com/u/65812877/01%20-%20Hajimari%20no%20Asa%20%28Main%20Theme%29.mp3
 Nico no Kako
@@ -1048,9 +995,7 @@ Hanayo no Ketsui
 https://dl.dropboxusercontent.com/u/65812877/32%20-%20Hanayo%20no%20Ketsui.mp3
 Nozomi no Mune no Uchi
 https://dl.dropboxusercontent.com/u/65812877/04.%20%E5%B8%8C%E3%81%AE%E8%83%B8%E3%81%AE%E5%86%85.mp3
-
--- Games? --
-
+## Games?
 Faith is My Pillar
 https://www.youtube.com/watch?v=8N8MLdJYfJ8
 Cerulean Woodlands
@@ -1059,14 +1004,10 @@ The End of Raging Winds
 https://www.youtube.com/watch?v=_ErTKCcnqpo
 Hoist the Sword and Pride in the Heart
 https://www.youtube.com/watch?v=SIDTxtyUDfY
-
---- 1 6 8 ---
-
+# 1 6 8
 Yuko Nagisa - Kyoto Love.mp3
 https://www.dropbox.com/s/t1da0p2a9jap4gf/Yuko%20Nagisa%20-%20Kyoto%20Love.mp3?dl=0
-
---- Smarty ---
-
+# Smarty
 The New Game Begins! - Kirby vs. New Game! 
 https://www.youtube.com/watch?v=x2Elp48AfQA
 Reji - A Young Girl, So Vivid In The Night- Original 
@@ -1099,11 +1040,8 @@ P/masara - Love10 (ft. Juunana & Ran)
 https://www.youtube.com/watch?v=jP1kz8aPywA
 ECHO Happy 2015!!! 
 https://www.youtube.com/watch?v=wIMmic7HhRg
-
---- PinkyForever ---
-
---Kamen Rider Category--
-
+# PinkyForever
+## Kamen Rider Category
 SURPRISE-DRIVE
 https://www.youtube.com/watch?v=PoirqmbLK2A
 Life is SHOW TIME
@@ -1118,9 +1056,7 @@ Cosmic Mind
 https://www.youtube.com/watch?v=muKrX7jpM-E
 Supernova
 https://www.youtube.com/watch?v=4u_7gxcvni8
-
---KIVA Category--
-
+## KIVA Category
 KIVA-Dasein
 https://www.youtube.com/watch?v=Xb2jS7cSwHY
 Phanerozoic
@@ -1133,9 +1069,7 @@ Black Hole
 https://www.youtube.com/watch?v=fA4aANYJ4U0
 Let Me Go
 https://www.youtube.com/watch?v=s3ajqCBmYys
-
---XI Category--
-
+## XI Category
 Halycon
 https://www.youtube.com/watch?v=KgZOITzM05c
 Fredoom Drive
@@ -1155,9 +1089,7 @@ Vanitas
 https://www.youtube.com/watch?v=K8HBmPXp6eo
 ????
 https://www.youtube.com/watch?v=jfJGdMkT9Lw
-
---Sakuyzo Category--
-
+## Sakuyzo Category
 Eastern Future
 https://www.youtube.com/watch?v=B18pzkBT_vk
 Frontier
@@ -1176,9 +1108,7 @@ Indepedent Puppet
 https://www.youtube.com/watch?v=9PEBvw1XFcg
 Terminal
 https://www.youtube.com/watch?v=Z7OQUsRP3TQ
-
---M2U Category--
-
+## M2U Category
 Quo Vadis
 https://www.youtube.com/watch?v=7pY2y3ABo_Y
 Gypstronic
@@ -1201,9 +1131,7 @@ Wicked Fate
 https://www.youtube.com/watch?v=PF22ak1gJ9w
 Lunatic Sky
 https://www.youtube.com/watch?v=xsEQuSZkGnw
-
---Chinese Songs--
-
+## Chinese Songs
 ????
 null https://www.youtube.com/watch?v=2kdYSeoHChg
 ????
@@ -1214,3 +1142,8 @@ null https://www.youtube.com/watch?v=5BAW9Fw79l0
 null https://www.youtube.com/watch?v=wUJ37I6au2w
 ????
 null https://www.youtube.com/watch?v=E703Zz_YO6I
+
+# Brocky
+Tonari no Kaibutsu-kun
+Q&A Recital!
+https://www.dropbox.com/s/etd3lf3hx3kgpr7/01%20-%20Q%26A%20Recital%21.mp3?dl=0
