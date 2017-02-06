@@ -2,7 +2,7 @@
 
 Place to keep track of changes to the searchable and internal auto playlists.
 
-Join the server: [Click me for cookies](https://discord.gg/BmFuJYs)
+Join the server: [Haifuri](https://discord.gg/BmFuJYs)
 
 We are also associated with the following discord servers 
 
