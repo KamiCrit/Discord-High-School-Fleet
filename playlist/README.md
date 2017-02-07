@@ -47,9 +47,9 @@ album Blue Avenue
 
 [Asian Kung-Fu Generation - Time Traveller](https://www.dropbox.com/s/ztekb25hvb3ug0k/ASIAN%20KUNG-FU%20GENERATION%20-%2002%20Time%20Traveller.mp3?dl=0)
 
-[Mr. Children](https://www.dropbox.com/s/o2vwa0zfd5mceln/Mr.%20Children%20-%20Overture.mp3?dl=0)
+[Mr. Children - Overture](https://www.dropbox.com/s/o2vwa0zfd5mceln/Mr.%20Children%20-%20Overture.mp3?dl=0)
 
-[SUPERGiRLS - Candy Macchiato](https://www.dropbox.com/s/58me9uasbi2cnsd/SUPER%E2%98%86GiRLS%20-%20Candy%20Macchiato.mp3?dl=0)
+[SUPERGiRLS - Toshishita no Otoko no Ko](https://www.dropbox.com/s/58me9uasbi2cnsd/SUPER%E2%98%86GiRLS%20-%20Candy%20Macchiato.mp3?dl=0)
 
 [AKB48 - 01. Koi Suru Fortune Cookie](https://www.dropbox.com/s/5qwv1ayt4qb3jld/AKB48%20-%2001.%20Koi%20Suru%20Fortune%20Cookie.mp3?dl=0)
 
