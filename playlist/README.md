@@ -1,4 +1,4 @@
-2017-02-05 1945
+2017-02-06 2100
 
 # KamiCrit 
 
@@ -422,21 +422,17 @@ Shakunetsu no Takkyuu Musume
 
 [Shakunetsu Switch](https://www.dropbox.com/s/75twqehfdf7ocm9/Shakunetsu%20no%20Takkyuu%20Musume%20-%20Shakunetsu%20Switch.mp3?dl=0)
 
-Bokura no Frontier
-
 [Bokura no Frontier](https://www.dropbox.com/s/kgft9c6l80w9eu3/Shakunetsu%20no%20Takkyuu%20Musume%20-%20Bokura%20no%20Frontier.mp3?dl=0)
 
 [Victory](https://www.dropbox.com/s/bya1swvv8fqrdjp/Shakunetsu%20no%20Takkyuu%20Musume%20-%2002.%20V%E5%AD%97%E4%B8%8A%E6%98%87Victory.mp3?dl=0)
 
-[Ver](https://www.dropbox.com/s/c1t82sfmfu3fwns/Shakunetsu%20no%20Takkyuu%20Musume%20-%2002.%20%E9%9B%80%E3%81%8C%E5%8E%9F%E4%B8%AD%E5%AD%A6%E6%A0%A1%E6%A0%A1%E6%AD%8C%20%28%E3%81%93%E3%82%88%E3%82%8A%26%E3%81%82%E3%81%8C%E3%82%8A%20Ver.%29.mp3?dl=0)
+[Suzume ga gen Chuugakkou Kouka (Koyori & Agari Ver.)](https://www.dropbox.com/s/c1t82sfmfu3fwns/Shakunetsu%20no%20Takkyuu%20Musume%20-%2002.%20%E9%9B%80%E3%81%8C%E5%8E%9F%E4%B8%AD%E5%AD%A6%E6%A0%A1%E6%A0%A1%E6%AD%8C%20%28%E3%81%93%E3%82%88%E3%82%8A%26%E3%81%82%E3%81%8C%E3%82%8A%20Ver.%29.mp3?dl=0)
 
-[BC?](https://www.dropbox.com/s/e4xrdkcgqwc6qic/Shakunetsu%20no%20Takkyuu%20Musume%20-%2001.%20%E6%94%BE%E8%AA%B2%E5%BE%8C%E3%83%A9%E3%83%90%E3%83%BC.mp3?dl=0)
+[Houkago Lover](https://www.dropbox.com/s/e4xrdkcgqwc6qic/Shakunetsu%20no%20Takkyuu%20Musume%20-%2001.%20%E6%94%BE%E8%AA%B2%E5%BE%8C%E3%83%A9%E3%83%90%E3%83%BC.mp3?dl=0)
 
-[BC 2.0?](https://www.dropbox.com/s/e4xrdkcgqwc6qic/Shakunetsu%20no%20Takkyuu%20Musume%20-%2001.%20%E6%94%BE%E8%AA%B2%E5%BE%8C%E3%83%A9%E3%83%90%E3%83%BC.mp3?dl=0)
+[Mission Impact](https://www.dropbox.com/s/fojwio8henu0mc4/Shakunetsu%20no%20Takkyuu%20Musume%20-%2001.%20%E3%83%9F%E3%83%83%E3%82%B7%E3%83%A7%E3%83%B3%E3%82%A4%E3%83%B3%E3%83%91%E3%82%AF%E3%83%88.mp3?dl=0)
 
-[88](https://www.dropbox.com/s/fojwio8henu0mc4/Shakunetsu%20no%20Takkyuu%20Musume%20-%2001.%20%E3%83%9F%E3%83%83%E3%82%B7%E3%83%A7%E3%83%B3%E3%82%A4%E3%83%B3%E3%83%91%E3%82%AF%E3%83%88.mp3?dl=0)
-
-[B9](https://www.dropbox.com/s/rbymnkmjdj2wfmf/Shakunetsu%20no%20Takkyuu%20Musume%20-%2001.%20%E9%83%A8%E6%B4%BB%E3%83%87%E3%83%A9%E3%83%83%E3%82%AF%E3%82%B9.mp3?dl=0)
+[Bukatsu Deluxe](https://www.dropbox.com/s/rbymnkmjdj2wfmf/Shakunetsu%20no%20Takkyuu%20Musume%20-%2001.%20%E9%83%A8%E6%B4%BB%E3%83%87%E3%83%A9%E3%83%83%E3%82%AF%E3%82%B9.mp3?dl=0)
 
 [Bestie Storm](https://www.dropbox.com/s/pj082ochnof7n7a/Shakunetsu%20no%20Takkyuu%20Musume%20-%2001.%20Bestie%20Storm.mp3?dl=0)
 
