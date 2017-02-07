@@ -1,4 +1,4 @@
-2017-02-06 2130
+2017-02-06 2200
 
 # KamiCrit 
 
@@ -31,7 +31,7 @@ album Blue Avenue
 [I Love New Day](https://youtu.be/5TQZZRtq83M)
 
 ### Other
-[Sukiyaki -Ue o Muite Arukou- - Kyu Sakamoto -English Translation and Lyrics-](https://youtu.be/C35DrtPlUbc)
+[Kyu Sakamoto - Sukiyaki (Ue o Muite Arukou)](https://www.youtube.com/watch?v=C35DrtPlUbc)
 
 [Bump of Chicken - Hammer Song to Itami no Tou](https://www.dropbox.com/s/2sxhf82s8van80k/Bump%20of%20Chicken%20-%20Hammer%20Song%20to%20Itami%20no%20Tou.mp3?dl=0)
 
@@ -65,9 +65,15 @@ album Blue Avenue
 
 [Meow sound](https://www.dropbox.com/s/71ingtnwrqzk6nz/3-Gatsu%20No%20Lion%20-%2001.%20Meow%20sound.mp3?dl=0)
 
-[Aiu rabu - Kani Do-Luck!](https://www.dropbox.com/s/cwugoobbi95qvqk/Aiura%20-%20Aiu%20rabu%20-%20Kani%20Do-Luck%21.mp3?dl=0)
+Aiu rabu
+
+[Kani Do-Luck!](https://www.dropbox.com/s/cwugoobbi95qvqk/Aiura%20-%20Aiu%20rabu%20-%20Kani%20Do-Luck%21.mp3?dl=0)
+
+Amaama to Inazuma
 
 [Hare Hare Fanfare](https://www.dropbox.com/s/6wvtssy5lditfbw/Amaama%20to%20Inazuma%20-%2001%20-%20Hare%20Hare%20Fanfare.mp3?dl=0)
+
+Amagi Brilliant Park
 
 [AKINO with bless4 - Extra Magic Hour](https://www.dropbox.com/s/nf6gyagqv1gtem3/Amagi%20Brilliant%20Park%20-%20AKINO%20with%20bless4%20-%20Extra%20Magic%20Hour.mp3?dl=0)
 
@@ -75,7 +81,9 @@ album Blue Avenue
 
 [Subaru Rashiki FUN!TASY](https://www.dropbox.com/s/slpe1jhg1pne46k/Amagi%20Brilliant%20Park%20-%20Subaru%20Rashiki%20FUN%21TASY.mp3?dl=0)
 
-[secret base -Kimi ga Kureta Mono- (10 years after ver.)](https://www.dropbox.com/s/cfzl0hjlmbmq7yv/AnoHana%20-%2001%20-%20Secret%20Base%20~Kimi%20ga%20Kureta%20mono~%20%2810%20years%20after%20Ver.%29.mp3?dl=0)
+Ano Hi Mita Hana no Namae wo Bokutachi wa Mada Shiranai.
+
+[secret base ~Kimi ga Kureta Mono~ (10 years after ver.)](https://www.dropbox.com/s/cfzl0hjlmbmq7yv/AnoHana%20-%2001%20-%20Secret%20Base%20~Kimi%20ga%20Kureta%20mono~%20%2810%20years%20after%20Ver.%29.mp3?dl=0)
 
 Azumanga Daioh
 
@@ -96,6 +104,8 @@ Azumanga Daioh
 Bakemonogatari
 
 [Renai Circulation](https://www.dropbox.com/s/tebzngcs8ogbohi/Bakemonogatari%20-%2001%20Ren%27ai%20Circulation.mp3?dl=0)
+
+Bakuon!!
 
 [Sayaka Sasaki - FEELxALIVE](https://www.dropbox.com/s/64sjvv32dtvhn4s/Bakuon%21%21%20-%20Sayaka%20Sasaki%20-%20FEEL%C3%97ALIVE.mp3?dl=0)
 
@@ -121,7 +131,9 @@ Classroom Crisis
 
 [TrySail - Honto da yo](https://www.dropbox.com/s/qld92dnvmnj0c1k/Classroom%20Crisis%20-%20TrySail%20-%20Honto%20da%20yo.mp3?dl=0)
 
-[Danna ga Nani wo Itteiru ka Wakaranai Ken](https://www.dropbox.com/s/in6pn1x7ts4vc56/Danna%20ga%20Nani%20wo%20Itteiru%20ka%20Wakaranai%20Ken%20-%2001.Iikagen%20ni%20Shite%2C%20Anata.mp3?dl=0)
+Danna ga Nani wo Itteiru ka Wakaranai Ken
+
+[Iikagen ni Shite, Anata](https://www.dropbox.com/s/in6pn1x7ts4vc56/Danna%20ga%20Nani%20wo%20Itteiru%20ka%20Wakaranai%20Ken%20-%2001.Iikagen%20ni%20Shite%2C%20Anata.mp3?dl=0)
 
 [Yuruganu Futari Ai no Sanka](https://www.dropbox.com/s/v1uga31e8vzlu1e/Danna%20ga%20Nani%20wo%20Itteiru%20ka%20Wakaranai%20Ken%20-%2001.Yuruganu%20Futari%20Ai%20no%20Sanka.mp3?dl=0)
 
@@ -311,7 +323,7 @@ Mahou Shoujo Madoka Magica
 
 [Mahou shoujoi madoka magic ending full](https://soundcloud.com/jose-flores-473/mahou-shoujo-madoka-magica-ending-full1)
 
-[Insert name here](https://www.youtube.com/watch?v=NIyv0cVlJkM)
+[[Magia] MADO-MAGI-ED Cover + illust / TAMUSIC](https://www.youtube.com/watch?v=NIyv0cVlJkM)
 
 Mawaru Penguindrum
 
@@ -398,6 +410,7 @@ Planetarian: Chiisana Hoshi no Yume
 [Twinkle Starlight](https://www.dropbox.com/s/cwh0db9vbxl5g5e/Planetarian%20Chiisana%20Hoshi%20no%20Yume%20-%2001.%20Twinkle%20Starlight.mp3?dl=0)
 
 Pokemon Anime
+
 [Pokemon master copy](https://www.dropbox.com/s/plsludanqgvgf2h/Pokemon%20-%2001%20%E3%82%81%E3%81%96%E3%81%9B%E3%83%9D%E3%82%B1%E3%83%A2%E3%83%B3%E3%83%9E%E3%82%B9%E3%82%BF%E3%83%BC%20-%20Mezase%20Pokemon%20Master%20-%20Copy.mp3?dl=0)
 
 [Pokemon battle music](https://www.dropbox.com/s/uxfzvyf9v8f6rm4/Pokemon%20Battle%20Music.mp3?dl=0)
@@ -412,7 +425,9 @@ Sakamoto desu ga?
 
 [COOLEST](https://www.dropbox.com/s/pm1kdeajc29i7l7/Sakamoto%20desu%20ga%20-%2001.%20COOLEST.mp3?dl=0)
 
-[Sayonara Zetsubou Sensei](https://www.dropbox.com/s/uudz6mfj4kf119w/Sayonara%20Zetsubou%20Sensei%20-%2001%20-%20Marionette.mp3?dl=0)
+Sayonara Zetsubou Sensei
+
+[Marionette](https://www.dropbox.com/s/uudz6mfj4kf119w/Sayonara%20Zetsubou%20Sensei%20-%2001%20-%20Marionette.mp3?dl=0)
 
 [Zetsubou Restaurant](https://soundcloud.com/duy-nguyen-421/zetsubou-restaurant)
 
@@ -475,6 +490,7 @@ Tamako Market
 [Neguse](https://www.dropbox.com/s/6min6bvjhrg6fja/Tamako%20Market%20-%2001%20-%20Neguse.mp3?dl=0)
 
 Tamako Love Story
+
 [Ue wo Muite Aruko](https://www.dropbox.com/s/mqlk1ndgebul2pc/Tamako%20Love%20Story%20-%2028%20-%20Ue%20wo%20Muite%20Arukou.mp3?dl=0)
 
 [Koi no Uta Father](https://www.dropbox.com/s/75a65fn9th7gmbo/Tamako%20Love%20Story%20-%20Koi%20No%20Uta%20%28Father%29.mp3?dl=0)
@@ -504,6 +520,7 @@ Yojouhan Shinwa Taikei
 [Makka na Scarf -Space Battleship Yamato 2199 Version-](https://youtu.be/eJgIlnyhJ1A)
 
 ## Oranges & Lemons - Tribute to Azumanga Daioh
+
 [Soramimi cake](https://www.dropbox.com/s/e9np5g4dd24ttfu/01-soramimi-cake.mp3?dl=0)
 
 [Kaze no iro march](https://www.dropbox.com/s/obdb4p1wcl8a2cp/02-kaze-no-iro-march.mp3?dl=0)
