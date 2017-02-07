@@ -78,6 +78,7 @@ album Blue Avenue
 [secret base -Kimi ga Kureta Mono- (10 years after ver.)](https://www.dropbox.com/s/cfzl0hjlmbmq7yv/AnoHana%20-%2001%20-%20Secret%20Base%20~Kimi%20ga%20Kureta%20mono~%20%2810%20years%20after%20Ver.%29.mp3?dl=0)
 
 Azumanga Daioh
+
 [Soramimi Cake](https://www.dropbox.com/s/xzbyyq57ul8dvb7/Azumanga%20Daioh%20-%20Soramimi%20Cake.mp3?dl=0)
 
 [Rasberry Heaven](https://www.dropbox.com/s/683w83iffwd8377/Azumanga%20Daioh%20-%20Rasberry%20Heaven.mp3?dl=0)
@@ -1153,7 +1154,7 @@ Hyperdimension Neptunia
 
 [Be](https://www.youtube.com/watch?v=QzZsWKqn27k)
 
-[99](https://www.youtube.com/watch?v=h2N4wQuho9k))
+[99](https://www.youtube.com/watch?v=h2N4wQuho9k)
 
 [ALL OFF](https://www.youtube.com/watch?v=lZLEXj52lcc)
 
