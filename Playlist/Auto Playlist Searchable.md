@@ -592,7 +592,7 @@ Yojouhan Shinwa Taikei
 
 [Donna Toki mo Zutto](https://www.dropbox.com/s/f8c47xej0i8x3gh/Donna%20Toki%20mo%20Zutto.mp3?dl=0)
 
-[COLORFUL VOICE](https://www.dropbox.com/s/lww42kxq2dlz6j7/COLORFUL%20VOICE.mp3?dl=00
+[COLORFUL VOICE](https://www.dropbox.com/s/lww42kxq2dlz6j7/COLORFUL%20VOICE.mp3?dl=00)
 
 [Yume no tobira](https://www.dropbox.com/s/do96t8k71vrugoc/Yume%20no%20Tobira.mp3?dl=0)
 
