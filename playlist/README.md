@@ -1,4 +1,4 @@
-2017-02-06 2200
+2017-02-09 1145
 
 # KamiCrit 
 
@@ -231,6 +231,10 @@ High School Fleet / Haifuri
 
 [Silent Colors](https://www.dropbox.com/s/xmmhmh7o9v75e9w/High%20School%20Fleet%20-%2003%20-%20Silent%20Colors.mp3?dl=0)
 
+[Harukaze Shukkou](https://www.dropbox.com/s/610cut7xknfntv8/High%20School%20Fleet%20-%20Harukaze%20Shukkou.mp3?dl=0)
+
+[Yokosuka Kaiyou Koukou Kouka (Brass Band Ver.)](https://www.dropbox.com/s/c9h2ujv2pia8swy/High%20School%20Fleet%20-%20Yokosuka%20Kaiyou%20Koukou%20Kouka%20%28Brass%20Band%20Ver.%29.mp3?dl=0)
+
 [Mashiro Makes a Noise](https://www.dropbox.com/s/qks2s5avsuh6p6i/High%20School%20Fleet%20-%20ebw6.mp4?dl=0)
 
 JoJo
@@ -287,6 +291,8 @@ Kobayashi-san Chi no Maid Dragon
 
 [Aozora no Rhapsody](https://www.dropbox.com/s/u3bqag60lrudell/Kobayashi-san%20Chi%20no%20Maid%20Dragon%20-%20Aozora%20no%20Rhapsody.mp3?dl=0)
 
+[Ishukan Communication](https://www.dropbox.com/s/3h2ha7kdz3kg1zu/Kobayashi-san%20Chi%20no%20Maid%20Dragon%20-%20Ishukan%20Communication.mp3?dl=0)
+
 Koe no Katachi
 
 [Koi wo Shita no wa](https://www.dropbox.com/s/36otpatm4tc59h6/Koe%20no%20Katachi%20-%20Koi%20wo%20Shita%20no%20wa.mp3?dl=0)
@@ -304,6 +310,8 @@ Kono Subarashii Sekai ni Shukufuku wo!
 Kono Subarashii Sekai ni Shukufuku wo! 2
 
 [TOMORROW](https://www.dropbox.com/s/azl5itymsrci0rb/Kono%20Subarashii%20Sekai%20ni%20Shukufuku%20wo%21%202%20-%2001.%20TOMORROW.mp3?dl=0)
+
+[Oie ni Kaeritai](https://www.dropbox.com/s/20w20c68i495gck/Kono%20Subarashii%20Sekai%20ni%20Shukufuku%20wo%21%202%20-%20Oie%20ni%20Kaeritai.mp3?dl=0)
 
 Love Live
 
@@ -411,7 +419,7 @@ Planetarian: Chiisana Hoshi no Yume
 
 Pokemon Anime
 
-[Pokemon master copy](https://www.dropbox.com/s/plsludanqgvgf2h/Pokemon%20-%2001%20%E3%82%81%E3%81%96%E3%81%9B%E3%83%9D%E3%82%B1%E3%83%A2%E3%83%B3%E3%83%9E%E3%82%B9%E3%82%BF%E3%83%BC%20-%20Mezase%20Pokemon%20Master%20-%20Copy.mp3?dl=0)
+[Pokemon master copy](https://www.dropbox.com/s/plsludanqgvgf2h/Pokemon%20-%2001%20%E3%82%81%E3%81%96%E3%81%9B%E3%83%9D%E3%82%B1%E3%83%A2%E3%83%B3%E3%83%9E%E3%82%B9%E3%82%BF%E3%83%BC%20-%20Mezase%20Pokemon%20Master.mp3?dl=0)
 
 [Pokemon battle music](https://www.dropbox.com/s/uxfzvyf9v8f6rm4/Pokemon%20Battle%20Music.mp3?dl=0)
 
@@ -475,7 +483,7 @@ Suzumiya Haruhi no Yuuutsu
 
 [Hare Hare Yukai](https://www.dropbox.com/s/7zeks6b70con703/Suzumiya%20Haruhi%20-%2001%20-%20Hare%20Hare%20Yukai.mp3?dl=0)
 
-[Super Driver](https://www.dropbox.com/s/29e0ljz19jh70h9/Suzumiya%20Haruhi%20-%2001%20-%20Super%20Driver.mp3?dl=0)
+[Super Driver](https://www.dropbox.com/s/3b5zuodep8ggeia/Suzumiya%20Haruhi%20-%20Super%20Driver.mp3?dl=0)
 
 [Tomare](https://www.dropbox.com/s/ofe2rapjeg969qv/Suzumiya%20Haruhi%20-%2001%20-%20Tomare%21.mp3?dl=0)
 
@@ -565,11 +573,9 @@ Yojouhan Shinwa Taikei
 
 # Lilac
 
-## Love Live!
+## Love Live
 
 [Bokura no LIVE Kimi to no LIFE](https://www.dropbox.com/s/69ajqnd3bbptckt/Bokura%20no%20LIVE%2C%20Kimi%20to%20no%20LIFE.mp3?dl=0)
-
-[Yuujou No Change](https://www.dropbox.com/s/tnhd6zpltjcs2wt/Yuujou%20No%20Change.mp3?dl=0)
 
 [Snow Halation](https://www.dropbox.com/s/b3755jxv90lml2v/Snow%20Halation.mp3?dl=0)
 
@@ -598,8 +604,6 @@ Yojouhan Shinwa Taikei
 [Music S.T.A.R.T!!](https://www.dropbox.com/s/ggeh6n6cylr9bbu/Music%20S.T.A.R.T%21%21.mp3?dl=0)
 
 [LOVELESS WORLD](https://www.dropbox.com/s/dgsh7op9qwu0jsw/LOVELESS%20WORLD.mp3?dl=0)
-
-[Takaramonozu](https://www.dropbox.com/s/l0nksbq7mn0nh7u/Takaramonozu.mp3?dl=0)
 
 [Paradise Live](https://www.dropbox.com/s/xa0iozi9h71cruo/Paradise%20Live.mp3?dl=0)
 
@@ -682,6 +686,10 @@ Yojouhan Shinwa Taikei
 [Sayonara e Sayonara](https://www.dropbox.com/s/3y3vztm86gngd5h/Sayonara%20e%20Sayonara.mp3?dl=0)
 
 [SELF CONTROL!!](https://www.dropbox.com/s/djgh7f2o2bkp10d/SELF%20CONTROL%21%21.mp3?dl=0)
+
+[G Senjou no Cinderella](https://www.dropbox.com/s/tyt0mctz1pk72px/G%20Senjou%20no%20Cinderella.mp3?dl=0)
+
+[Thrilling One Way](https://www.youtube.com/watch?v=p9Iqg6VuTsY)
 
 ## Idolmaster
 
@@ -806,6 +814,22 @@ Working!!
 Denpa Kyoushi
 
 [Youthful Dreamer](https://www.dropbox.com/s/e0emanbytzh189c/Youthful%20Dreamer.mp3?dl=0)
+
+Youjo Senki
+
+[JINGO JUNGLE](https://www.dropbox.com/s/v5m81sdx1uedjwa/JINGO%20JUNGLE.mp3?dl=0)
+
+Carnival Phantasm
+
+[Super☆Affection](https://www.dropbox.com/s/g0ek46kxrt58isw/Super%E2%98%86Affection.mp3?dl=0)
+
+Aoki Hagane no Arpeggio: Ars Nova
+
+[Savior of Song](https://www.dropbox.com/s/4prc26mi0m20jzr/Savior%20of%20Song.mp3?dl=0)
+
+Idol Jihen
+
+[Utae! Ai no Kouyaku](https://www.dropbox.com/s/xo5nla5mqndynpw/Utae%21%20Ai%20no%20Kouyaku.mp3?dl=0)
 
 ## Other Songs
 
@@ -977,7 +1001,7 @@ Hyperdimension Neptunia
 
 [Senbonzakura](https://www.youtube.com/watch?v=g7EHjb5k8c4)
 
-[Streaming Heart](https://www.youtube.com/watch?v=2Uy9_4IWGZo)
+Dead Link ~~[Streaming Heart](https://www.youtube.com/watch?v=2Uy9_4IWGZo)~~
 
 [Donut Hole](https://www.youtube.com/watch?v=GvrCH7gq1Kc)
 
