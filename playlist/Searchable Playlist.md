@@ -1,4 +1,4 @@
-2017-02-09 1145
+2017-02-09 1215
 
 # KamiCrit 
 
@@ -49,7 +49,7 @@ album Blue Avenue
 
 [Mr. Children - Overture](https://www.dropbox.com/s/o2vwa0zfd5mceln/Mr.%20Children%20-%20Overture.mp3?dl=0)
 
-[SUPERGiRLS - Toshishita no Otoko no Ko](https://www.dropbox.com/s/58me9uasbi2cnsd/SUPER%E2%98%86GiRLS%20-%20Candy%20Macchiato.mp3?dl=0)
+[SUPERGiRLS - Toshishita no Otoko no Ko](https://www.dropbox.com/s/58me9uasbi2cnsd/SUPERGiRLS%20-%20Toshishita%20no%20Otoko%20no%20Ko.mp3?dl=0)
 
 [AKB48 - 01. Koi Suru Fortune Cookie](https://www.dropbox.com/s/5qwv1ayt4qb3jld/AKB48%20-%2001.%20Koi%20Suru%20Fortune%20Cookie.mp3?dl=0)
 
