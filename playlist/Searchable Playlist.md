@@ -189,7 +189,7 @@ Girls Und Panzer
 
 [Piece Of Youth](https://www.dropbox.com/s/frq18oljrlw2qm8/Girls%20und%20Panzer%20-%2001%20-%20piece%20of%20youth.mp3?dl=0)
 
-[ChouCho - Dream Riser -Anglerfish Team-](https://www.dropbox.com/s/cclqou55b7zmqo0/Girls%20Und%20Panzer%20-%20ChouCho%20-%20Dream%20Riser%20%28Anglerfish%20Team%29.mp3?dl=0)
+[ChouCho - Dream Riser (Anglerfish Team)](https://www.dropbox.com/s/cclqou55b7zmqo0/Girls%20Und%20Panzer%20-%20ChouCho%20-%20Dream%20Riser%20%28Anglerfish%20Team%29.mp3?dl=0)
 
 [Senshamichi Koushinkyoku](https://www.dropbox.com/s/lrm2iijakug14pl/Girls%20und%20Panzer%20-%20Extra_%20Senshamichi%20koushinkyoku.mp3?dl=0)
 
