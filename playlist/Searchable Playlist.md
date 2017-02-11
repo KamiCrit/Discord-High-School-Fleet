@@ -41,7 +41,7 @@ Blue Avenue
 
 [Galileo Galilei - Love Me](https://www.dropbox.com/s/403637af7ntofar/Galileo%20Galilei%20-%20Love%20Me.mp3?dl=0)
 
-[xi-on - Cinderellas cage - Kagome-Kagome](https://www.dropbox.com/s/1vpopugaxh6yp9u/xi-on%20-%20%20Kagome-Kagome.mp3?dl=0)
+[xi-on - Cinderella's cage - Kagome-Kagome](https://www.dropbox.com/s/1vpopugaxh6yp9u/xi-on%20-%20%20Kagome-Kagome.mp3?dl=0)
 
 [Kenshi Yonezu - Flowerwall](https://www.youtube.com/watch?v=Y4_vXzyOJHE)
 
@@ -169,9 +169,9 @@ Gatchaman Crowds
 
 Gekkan Shoujo Nozaki-kun
 
-[Ura Omote Fortune](https://www.dropbox.com/s/be56jr3h3y8uhpz/Gekkan%20Shoujo%20Nozaki-kun%20-%20Ura%20Omote%20Fortune.mp3?dl=0)
-
 [Masayoshi Ooishi - Kimi ja Nakya Dame Mitai](https://www.dropbox.com/s/epqlkcxo69sd4jv/Gekkan%20Shoujo%20Nozaki-kun%20-%20Masayoshi%20Ooishi%20-%20Kimi%20ja%20Nakya%20Dame%20Mitai.mp3?dl=0)
+
+[Ura Omote Fortune](https://www.dropbox.com/s/be56jr3h3y8uhpz/Gekkan%20Shoujo%20Nozaki-kun%20-%20Ura%20Omote%20Fortune.mp3?dl=0)
 
 [Junjou Karen Shoten ya Girl](https://www.dropbox.com/s/sctoejyijaxwb3v/Gekkan%20Shoujo%20Nozaki-kun%20-%20Junjou%20Karen%20Shoten%20ya%20Girl.mp3?dl=0)
 
@@ -403,9 +403,9 @@ Nisemonogatari
 
 No Game No Life
 
-[This game konomi suzuki](https://soundcloud.com/mahdi-muhamad-arif/this-game-konomi-suzuki)
+[Konomi Suzuki - This game](https://soundcloud.com/mahdi-muhamad-arif/this-game-konomi-suzuki)
 
-[No game no life ed full oracion](https://soundcloud.com/kevin-269/no-game-no-life-ed-full-oracion)
+[Oracion](https://soundcloud.com/kevin-269/no-game-no-life-ed-full-oracion)
 
 Ore no Imouto ga Konnani Kawaii Wake ga Nai
 
