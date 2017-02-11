@@ -1,4 +1,4 @@
-2017-02-09 1215
+2017-02-09 1900
 
 # KamiCrit 
 
@@ -6,7 +6,7 @@
 
 ### Kana Hanazawa
 
-album claire
+Claire
 
 [Aoi Tori](https://www.dropbox.com/s/8571a81mckn0d3u/Kana%20Hanazawa%20-%20Aoi%20Tori.mp3?dl=0)
 
@@ -18,7 +18,7 @@ album claire
 
 [happy endings](https://www.dropbox.com/s/e1ob9c1r3og69rq/Kana%20Hanazawa%20-%20happy%20endings.mp3?dl=0)
 
-album 25
+25
 
 [Brand New Days](https://soundcloud.com/whiteneko-3/kana-hanazawa-brand-new-days)
 
@@ -26,7 +26,7 @@ album 25
 
 [Mujakina Kimi to Manatsu no Melody](https://youtu.be/HvpBs_2gVqQ)
 
-album Blue Avenue
+Blue Avenue
 
 [I Love New Day](https://youtu.be/5TQZZRtq83M)
 
@@ -111,11 +111,11 @@ Bakuon!!
 
 Boku dake ga Inai Machi / ERASED
 
-[Asian Kung-Fu Generation - Re:Re: -2016-](https://www.dropbox.com/s/zx2r5xqkp7v3cjm/Boku%20dake%20ga%20Inai%20Machi%20-%20Asian%20Kung-Fu%20Generation%20-%20ReRe%20%282016%29.mp3?dl=0)
+[Asian Kung-Fu Generation - Re:Re: (2016)](https://www.dropbox.com/s/zx2r5xqkp7v3cjm/Boku%20dake%20ga%20Inai%20Machi%20-%20Asian%20Kung-Fu%20Generation%20-%20ReRe%20%282016%29.mp3?dl=0)
 
 [Sayuri - Sore wa Chiisana Hikari no Youna](https://www.dropbox.com/s/hl070fo2rqox9q6/Boku%20dake%20ga%20Inai%20Machi%20-%20Sayuri%20-%20Sore%20wa%20Chiisana%20Hikari%20no%20Youna.mp3?dl=0)
 
-[Asian Kung-Fu Generation - Re:Re: -2004-](https://www.dropbox.com/s/h8d0fr52s0b1kyp/Boku%20dake%20ga%20Inai%20Machi%20-%20Asian%20Kung-Fu%20Generation%20-%20ReRe%20%282004%29.mp3?dl=0)
+[Asian Kung-Fu Generation - Re:Re: (2004)](https://www.dropbox.com/s/h8d0fr52s0b1kyp/Boku%20dake%20ga%20Inai%20Machi%20-%20Asian%20Kung-Fu%20Generation%20-%20ReRe%20%282004%29.mp3?dl=0)
 
 Clannad
 
@@ -341,7 +341,7 @@ Mawaru Penguindrum
 
 [ROCK OVER JAPAN](https://www.dropbox.com/s/1w7isndiqpn0pnw/Mawaru%20Penguindrum%20-%2001%20-%20ROCK%20OVER%20JAPAN.mp3?dl=0)
 
-Mirai Nikki -TV-
+Mirai Nikki (TV)
 
 [Yousei Teikoku - Kuusou Mesorogiwi](https://www.dropbox.com/s/dr4e6hjdsrvvyco/Mirai%20Nikki%20-%2001%20-%20Kuusou%20Mesorogiwi.mp3?dl=0)
 
@@ -595,7 +595,7 @@ Yojouhan Shinwa Taikei
 
 [Start-Dash!!](https://www.dropbox.com/s/htkt8r234wge3ax/Start-Dash%21%21.mp3?dl=0)
 
-[START-DASH!! -3 Member Ver.-](https://www.dropbox.com/s/5fvo0i42f3qqu67/START-DASH%21%21%20%283%20Member%20Ver.%29.mp3?dl=0)
+[START-DASH!! (3 Member Ver.)](https://www.dropbox.com/s/5fvo0i42f3qqu67/START-DASH%21%21%20%283%20Member%20Ver.%29.mp3?dl=0)
 
 [Susume Tomorrow](https://www.dropbox.com/s/mpbbdl7ztxrxgl5/Susume%E2%86%92Tomorrow.mp3?dl=0)
 
@@ -651,7 +651,7 @@ Yojouhan Shinwa Taikei
 
 [A-NO-NE-GA-N-BA-RE!](https://www.dropbox.com/s/k4qmfacjhxjl8ph/Anone%20Ganbare.mp3?dl=0)
 
-[Mermaid festa vol.2 -Passionate-](https://www.dropbox.com/s/mec9ur0z3z3jygh/Mermaid%20Festa%20Vol.2%20Passionate.mp3?dl=0)
+[Mermaid festa vol.2 (Passionate)](https://www.dropbox.com/s/mec9ur0z3z3jygh/Mermaid%20Festa%20Vol.2%20Passionate.mp3?dl=0)
 
 [after school NAVIGATORS](https://www.dropbox.com/s/pmrvxi3iup76wdu/After%20School%20Navigators.mp3?dl=0)
 
@@ -1113,7 +1113,7 @@ Dead Link ~~[Streaming Heart](https://www.youtube.com/watch?v=2Uy9_4IWGZo)~~
 
 [Inokori Sensei](https://www.youtube.com/watch?v=Vjq2w8WckZA)
 
-[Terror -ism-](https://www.youtube.com/watch?v=aeI71kzesUc)
+[Terror(ism)](https://www.youtube.com/watch?v=aeI71kzesUc)
 
 [A Realistic Logical Ideologist](https://www.youtube.com/watch?v=A-eMXWAzUlg)
 
