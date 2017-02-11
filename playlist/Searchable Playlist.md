@@ -1,4 +1,4 @@
-2017-02-09 1900
+2017-02-11 1530
 
 Right click for quick URL copying:
 
@@ -376,6 +376,8 @@ Netoge no Yome wa Onnanoko ja Nai to Omotta?
 New Game!
 
 [SAKURA Skip](https://www.dropbox.com/s/5xnxu4bsza5hg6q/New%20Game%20-%2001.%20SAKURA%20Skip.mp3?dl=0)
+
+[Now Loading!!!!](https://www.dropbox.com/s/162kzxf3f92ya7r/New%20Game%20-%20Now%20Loading%21%21%21%21.mp3?dl=0)
 
 Nichijou
 
