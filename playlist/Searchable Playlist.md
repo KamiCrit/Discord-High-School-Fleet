@@ -1,5 +1,9 @@
 2017-02-09 1900
 
+Right click for quick URL copying:
+
+![alt text](http://i.imgur.com/Ebjh14p.png "Best Song")
+
 # KamiCrit 
 
 ## 3D Singing
