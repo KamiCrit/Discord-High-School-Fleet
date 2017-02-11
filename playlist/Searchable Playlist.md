@@ -143,11 +143,11 @@ Danna ga Nani wo Itteiru ka Wakaranai Ken
 
 Danshi Koukousei no Nichijou
 
-[Danshi koukousei no nichijou](https://soundcloud.com/rizky-satrio/danshi-koukousei-no-nichijou)
+[Shiny Tale](https://soundcloud.com/rizky-satrio/danshi-koukousei-no-nichijou)
 
 [Nichijou Hisama](https://www.dropbox.com/s/6l997ap0iik4va2/Danshi%20Koukousei%20no%20Nichijou%20-%20Ohisama.mp3?dl=0)
 
-[to Himatsubushi](https://www.dropbox.com/s/uvwh48mn105ealy/Danshi%20Koukousei%20no%20Nichijou%20-%2004%20-%20Danshi%20Koukousei%20to%20Himatsubushi.mp3?dl=0)
+[Himatsubushi](https://www.dropbox.com/s/uvwh48mn105ealy/Danshi%20Koukousei%20no%20Nichijou%20-%2004%20-%20Danshi%20Koukousei%20to%20Himatsubushi.mp3?dl=0)
 
 Death Parade
 
@@ -323,9 +323,9 @@ Lucky Star
 
 [Motteke! Sailor Fuku](https://www.dropbox.com/s/8vi9v229yapiopz/Lucky%20Star%20-%2001%20-%20Motteke%21%20Sailor%20Fuku.mp3?dl=0)
 
-[Konota no theme -india version-](https://www.dropbox.com/s/jdoo3gwb0jcgdn2/Lucky%20Star%20-%2004-konata-no-theme-india-version.mp3?dl=0)
+[Konata no Theme, India Version](https://www.dropbox.com/s/jdoo3gwb0jcgdn2/Lucky%20Star%20-%2004-konata-no-theme-india-version.mp3?dl=0)
 
-[hare hare yukai konata no chaku mero](https://www.dropbox.com/s/cdzrh47f5wayngf/Lucky%20Star%20-%2007-hare-hare-yukai-konata-no-chaku-mero-.mp3?dl=0)
+[Hare Hare Yukai (Konata no Chaku Mero)](https://www.dropbox.com/s/cdzrh47f5wayngf/Lucky%20Star%20-%2007-hare-hare-yukai-konata-no-chaku-mero-.mp3?dl=0)
 
 Mahou Shoujo Madoka Magica
 
@@ -419,9 +419,9 @@ Planetarian: Chiisana Hoshi no Yume
 
 Pokemon Anime
 
-[Pokemon master copy](https://www.dropbox.com/s/plsludanqgvgf2h/Pokemon%20-%2001%20%E3%82%81%E3%81%96%E3%81%9B%E3%83%9D%E3%82%B1%E3%83%A2%E3%83%B3%E3%83%9E%E3%82%B9%E3%82%BF%E3%83%BC%20-%20Mezase%20Pokemon%20Master.mp3?dl=0)
+[Mezase Pokemon Master](https://www.dropbox.com/s/plsludanqgvgf2h/Pokemon%20-%2001%20%E3%82%81%E3%81%96%E3%81%9B%E3%83%9D%E3%82%B1%E3%83%A2%E3%83%B3%E3%83%9E%E3%82%B9%E3%82%BF%E3%83%BC%20-%20Mezase%20Pokemon%20Master.mp3?dl=0)
 
-[Pokemon battle music](https://www.dropbox.com/s/uxfzvyf9v8f6rm4/Pokemon%20Battle%20Music.mp3?dl=0)
+[Pokemon Battle Music](https://www.dropbox.com/s/uxfzvyf9v8f6rm4/Pokemon%20Battle%20Music.mp3?dl=0)
 
 ReLIFE
 
@@ -441,7 +441,7 @@ Sayonara Zetsubou Sensei
 
 SD Gundam Force
 
-[The name is captain](https://www.dropbox.com/s/u2r3qkksgvfbpvw/SD%20Gundam%20Force%20-%20The%20Name%20Is%20Captain.mp3?dl=0)
+[The Name Is Captain](https://www.dropbox.com/s/u2r3qkksgvfbpvw/SD%20Gundam%20Force%20-%20The%20Name%20Is%20Captain.mp3?dl=0)
 
 Shakunetsu no Takkyuu Musume
 
@@ -487,7 +487,7 @@ Suzumiya Haruhi no Yuuutsu
 
 [Tomare](https://www.dropbox.com/s/ofe2rapjeg969qv/Suzumiya%20Haruhi%20-%2001%20-%20Tomare%21.mp3?dl=0)
 
-[Lost my music](https://soundcloud.com/user3678106/02-lost-my-music)
+[Lost My Music](https://soundcloud.com/user3678106/02-lost-my-music)
 
 [God knows](https://www.dropbox.com/s/u75rcuj8b5kn5sk/Suzumiya%20Haruhi%20-%2009%20God%20Knows....mp3?dl=0)
 
@@ -503,7 +503,7 @@ Tamako Love Story
 
 [Koi no Uta Father](https://www.dropbox.com/s/75a65fn9th7gmbo/Tamako%20Love%20Story%20-%20Koi%20No%20Uta%20%28Father%29.mp3?dl=0)
 
-[Koi no uta](https://www.dropbox.com/s/h0o1dhszx0fpp9e/Tamako%20Love%20Story%20-%20Koi%20No%20Uta.mp3?dl=0)
+[Koi no Uta](https://www.dropbox.com/s/h0o1dhszx0fpp9e/Tamako%20Love%20Story%20-%20Koi%20No%20Uta.mp3?dl=0)
 
 Tanaka-kun wa Itsumo Kedaruge
 
@@ -522,6 +522,8 @@ Yojouhan Shinwa Taikei
 [Youjouhan Shinwa Taikei OP](https://www.dropbox.com/s/i6jbgwmz6rirj4o/Yojouhan%20Shinwa%20Taikei%20-%2001%20Maigo%20Inu%20to%20Ame%20no%20Beat.mp3?dl=0)
 
 [Youjouhan Shinwa Taikei ED](https://www.dropbox.com/s/b410metyqfbj9y8/Yojouhan%20Shinwa%20Taikei%20-%2001%20Kami-sama%20no%20Iu%20Toori.mp3?dl=0)
+
+Space Battleship Yamato 2199
 
 [Space Battleship Yamato 2199](https://soundcloud.com/mew178/space-battleship-yamato)
 
