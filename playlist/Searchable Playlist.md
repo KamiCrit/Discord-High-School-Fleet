@@ -6,57 +6,6 @@ Right click for quick URL copying:
 
 # KamiCrit 
 
-## 3D Singing
-
-### Kana Hanazawa
-
-Claire
-
-[Aoi Tori](https://www.dropbox.com/s/8571a81mckn0d3u/Kana%20Hanazawa%20-%20Aoi%20Tori.mp3?dl=0)
-
-[Just The Way You Are](https://www.dropbox.com/s/yqg7tjnu857kis9/Kana%20Hanazawa%20-%20Just%20The%20Way%20You%20Are.mp3?dl=0)
-
-[Staccato](https://www.dropbox.com/s/qksc2nkfoqltgyu/Kana%20Hanazawa%20-%20Staccato.mp3?dl=0)
-
-[melody](https://www.dropbox.com/s/ap5iqkfkqiy40lz/Kana%20Hanazawa%20-%20melody.mp3?dl=0)
-
-[happy endings](https://www.dropbox.com/s/e1ob9c1r3og69rq/Kana%20Hanazawa%20-%20happy%20endings.mp3?dl=0)
-
-25
-
-[Brand New Days](https://soundcloud.com/whiteneko-3/kana-hanazawa-brand-new-days)
-
-[Tabidatsu Kanojo to Furui Sebyoushi](https://soundcloud.com/alghi-fary/tabidatsu-kanojo-to-furui-sebyoushi)
-
-[Mujakina Kimi to Manatsu no Melody](https://youtu.be/HvpBs_2gVqQ)
-
-Blue Avenue
-
-[I Love New Day](https://youtu.be/5TQZZRtq83M)
-
-### Other
-[Kyu Sakamoto - Sukiyaki (Ue o Muite Arukou)](https://www.youtube.com/watch?v=C35DrtPlUbc)
-
-[Bump of Chicken - Hammer Song to Itami no Tou](https://www.dropbox.com/s/2sxhf82s8van80k/Bump%20of%20Chicken%20-%20Hammer%20Song%20to%20Itami%20no%20Tou.mp3?dl=0)
-
-[Kradness - TRICK](https://www.dropbox.com/s/5lwvj26y2rlew5u/Kradness%20-%20TRICK.mp3?dl=0)
-
-[Galileo Galilei - Furanii no Numa de](https://www.dropbox.com/s/vur22gd5t3rqsic/Galileo%20Galilei%20-%20Furanii%20no%20numa%20de.mp3?dl=0)
-
-[Galileo Galilei - Love Me](https://www.dropbox.com/s/403637af7ntofar/Galileo%20Galilei%20-%20Love%20Me.mp3?dl=0)
-
-[xi-on - Cinderella's cage - Kagome-Kagome](https://www.dropbox.com/s/1vpopugaxh6yp9u/xi-on%20-%20%20Kagome-Kagome.mp3?dl=0)
-
-[Kenshi Yonezu - Flowerwall](https://www.youtube.com/watch?v=Y4_vXzyOJHE)
-
-[Asian Kung-Fu Generation - Time Traveller](https://www.dropbox.com/s/ztekb25hvb3ug0k/ASIAN%20KUNG-FU%20GENERATION%20-%2002%20Time%20Traveller.mp3?dl=0)
-
-[Mr. Children - Overture](https://www.dropbox.com/s/o2vwa0zfd5mceln/Mr.%20Children%20-%20Overture.mp3?dl=0)
-
-[SUPERGiRLS - Toshishita no Otoko no Ko](https://www.dropbox.com/s/58me9uasbi2cnsd/SUPERGiRLS%20-%20Toshishita%20no%20Otoko%20no%20Ko.mp3?dl=0)
-
-[AKB48 - 01. Koi Suru Fortune Cookie](https://www.dropbox.com/s/5qwv1ayt4qb3jld/AKB48%20-%2001.%20Koi%20Suru%20Fortune%20Cookie.mp3?dl=0)
-
 ## Anime
 
 3-gatsu no Lion
@@ -578,6 +527,58 @@ Space Battleship Yamato 2199
 [??](https://www.dropbox.com/s/0y07i4k20g58n5d/%E3%80%90%E8%BB%8D%E6%AD%8C%E3%80%91%E3%81%BE%E3%82%8B%E3%82%86%E9%83%A8%E9%9A%8A%E3%81%AE%E6%AD%8C%EF%BC%88%E8%88%B9%E8%88%B6%E8%BC%B8%E9%80%81%E6%BD%9C%E8%88%AA%E8%89%87%E9%9A%8A%E6%AD%8C%EF%BC%89.mp3?dl=0)
 
 [Dchin](https://www.dropbox.com/s/h2eobbxm7d36mn0/%E3%80%8A%E8%BB%8D%E6%AD%8C%E3%80%8B%E8%BD%9F%E6%B2%88%20%EF%BC%88G%C5%8Dchin%20%EF%BC%89with%20Eng_Sub.mp3?dl=0)
+
+## 3D Singing
+
+### Kana Hanazawa
+
+Claire
+
+[Aoi Tori](https://www.dropbox.com/s/8571a81mckn0d3u/Kana%20Hanazawa%20-%20Aoi%20Tori.mp3?dl=0)
+
+[Just The Way You Are](https://www.dropbox.com/s/yqg7tjnu857kis9/Kana%20Hanazawa%20-%20Just%20The%20Way%20You%20Are.mp3?dl=0)
+
+[Staccato](https://www.dropbox.com/s/qksc2nkfoqltgyu/Kana%20Hanazawa%20-%20Staccato.mp3?dl=0)
+
+[melody](https://www.dropbox.com/s/ap5iqkfkqiy40lz/Kana%20Hanazawa%20-%20melody.mp3?dl=0)
+
+[happy endings](https://www.dropbox.com/s/e1ob9c1r3og69rq/Kana%20Hanazawa%20-%20happy%20endings.mp3?dl=0)
+
+25
+
+[Brand New Days](https://soundcloud.com/whiteneko-3/kana-hanazawa-brand-new-days)
+
+[Tabidatsu Kanojo to Furui Sebyoushi](https://soundcloud.com/alghi-fary/tabidatsu-kanojo-to-furui-sebyoushi)
+
+[Mujakina Kimi to Manatsu no Melody](https://youtu.be/HvpBs_2gVqQ)
+
+Blue Avenue
+
+[I Love New Day](https://youtu.be/5TQZZRtq83M)
+
+### Other
+
+[Kyu Sakamoto - Sukiyaki (Ue o Muite Arukou)](https://www.youtube.com/watch?v=C35DrtPlUbc)
+
+[Bump of Chicken - Hammer Song to Itami no Tou](https://www.dropbox.com/s/2sxhf82s8van80k/Bump%20of%20Chicken%20-%20Hammer%20Song%20to%20Itami%20no%20Tou.mp3?dl=0)
+
+[Kradness - TRICK](https://www.dropbox.com/s/5lwvj26y2rlew5u/Kradness%20-%20TRICK.mp3?dl=0)
+
+[Galileo Galilei - Furanii no Numa de](https://www.dropbox.com/s/vur22gd5t3rqsic/Galileo%20Galilei%20-%20Furanii%20no%20numa%20de.mp3?dl=0)
+
+[Galileo Galilei - Love Me](https://www.dropbox.com/s/403637af7ntofar/Galileo%20Galilei%20-%20Love%20Me.mp3?dl=0)
+
+[xi-on - Cinderella's cage - Kagome-Kagome](https://www.dropbox.com/s/1vpopugaxh6yp9u/xi-on%20-%20%20Kagome-Kagome.mp3?dl=0)
+
+[Kenshi Yonezu - Flowerwall](https://www.youtube.com/watch?v=Y4_vXzyOJHE)
+
+[Asian Kung-Fu Generation - Time Traveller](https://www.dropbox.com/s/ztekb25hvb3ug0k/ASIAN%20KUNG-FU%20GENERATION%20-%2002%20Time%20Traveller.mp3?dl=0)
+
+[Mr. Children - Overture](https://www.dropbox.com/s/o2vwa0zfd5mceln/Mr.%20Children%20-%20Overture.mp3?dl=0)
+
+[SUPERGiRLS - Toshishita no Otoko no Ko](https://www.dropbox.com/s/58me9uasbi2cnsd/SUPERGiRLS%20-%20Toshishita%20no%20Otoko%20no%20Ko.mp3?dl=0)
+
+[AKB48 - 01. Koi Suru Fortune Cookie](https://www.dropbox.com/s/5qwv1ayt4qb3jld/AKB48%20-%2001.%20Koi%20Suru%20Fortune%20Cookie.mp3?dl=0)
 
 # Lilac
 
