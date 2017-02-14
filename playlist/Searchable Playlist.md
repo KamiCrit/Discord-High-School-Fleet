@@ -1,4 +1,4 @@
-2017-02-13 1645
+2017-02-13 1700
 
 Right click for quick URL copying:
 
@@ -1010,7 +1010,7 @@ Hyperdimension Neptunia
 
 [Senbonzakura](https://www.youtube.com/watch?v=g7EHjb5k8c4)
 
-Dead Link ~~[Streaming Heart](https://www.youtube.com/watch?v=2Uy9_4IWGZo)~~
+[Streaming Heart](https://www.youtube.com/watch?v=CMuUbUtGvac)
 
 [Donut Hole](https://www.youtube.com/watch?v=GvrCH7gq1Kc)
 
@@ -1058,6 +1058,12 @@ Dead Link ~~[Streaming Heart](https://www.youtube.com/watch?v=2Uy9_4IWGZo)~~
 
 [Clean Freak](https://www.youtube.com/watch?v=HUDHmJsJvYc)
 
+[Pomp and Circumstance](https://tmbox.net/pl/789009)
+
+[Unhappy Refrain](https://www.youtube.com/watch?v=xYRDBK3LoFQ)
+
+[Lost One's Weeping](https://www.youtube.com/watch?v=IoKhXdPJRQg)
+
 # Amatsuki
 
 [Envy Catwalk -Last Note Arrange.](https://dl.dropboxusercontent.com/u/65812877/04.%20Envy%20Cat%20Walk%20%7ELast%20Note.%20Arrange%20Ver.%7E.mp3)
@@ -1081,6 +1087,22 @@ Dead Link ~~[Streaming Heart](https://www.youtube.com/watch?v=2Uy9_4IWGZo)~~
 [Ghost Rule](https://www.youtube.com/watch?v=FVoZvo1YMA4)
 
 [Streaming Heart](https://www.youtube.com/watch?v=Z8RXp-jP34Y)
+
+# yuikonnu
+
+[Kakushigoto](https://www.youtube.com/watch?v=YuAAc2K4GBY)
+
+[Ghost Rule](https://www.youtube.com/watch?v=MTx2V7hDbpo)
+
+[Liar Dance](https://www.youtube.com/watch?v=T-PnR5Q8j_o)
+
+[Ai no Scenario](https://www.youtube.com/watch?v=anYV8DbA1Dw)
+
+[Kisaragi Attention](https://dl.dropboxusercontent.com/u/65812877/Kisaragi%20Attention%20-yuikonnu.mp3)
+
+[Souzou Forest](https://dl.dropboxusercontent.com/u/65812877/Souzou%20Forest%20-%20yuikonnu.mp3)
+
+[Otsukimi Recital](https://dl.dropboxusercontent.com/u/65812877/Otsukimi%20Recital%20-%20Yuikonnu.mp3)
 
 # Hanatan
 
@@ -1194,9 +1216,27 @@ Dead Link ~~[Streaming Heart](https://www.youtube.com/watch?v=2Uy9_4IWGZo)~~
 
 [Tell Your World](https://www.youtube.com/watch?v=fmrA-gxJxgQ)
 
+[LIVEDRIVE](https://dl.dropboxusercontent.com/u/65812877/02.%20LIVEDRIVE.mp3)
+
+# Free!
+
+[Rage on](https://www.youtube.com/watch?v=p9WrJg_P9m4)
+
+[Splash Free](https://www.youtube.com/watch?v=BpOSVa0MXAc)
+
+[EVER BLUE](https://www.youtube.com/watch?v=LpcuQjrIOH4)
+
+[Dried Up Youthful Fame](https://www.youtube.com/watch?v=DwzAXVpgpGU)
+
+[FUTURE FISH](https://www.youtube.com/watch?v=BgCruH8nefQ)
+
+[Clear Blue Departure](https://www.youtube.com/watch?v=teVBNcOYgEE)
+
+[Aching Horns](https://www.youtube.com/watch?v=yijyGXoceLE)
+
 ## Various Animu
 
-[TORCH](https://www.youtube.com/watch?v=HLrdp_85s8s)
+Duplicate ~~[TORCH](https://www.youtube.com/watch?v=HLrdp_85s8s)~~
 
 [Take Your Way](https://www.youtube.com/watch?v=W_ZXidH4XbE)
 
@@ -1205,6 +1245,12 @@ Dead Link ~~[Streaming Heart](https://www.youtube.com/watch?v=2Uy9_4IWGZo)~~
 [99](https://www.youtube.com/watch?v=h2N4wQuho9k)
 
 [ALL OFF](https://www.youtube.com/watch?v=lZLEXj52lcc)
+
+[Afterglow](https://dl.dropboxusercontent.com/u/65812877/Maon%20Kurosaki%20-%20After%20Glow.mp3)
+
+[daze](https://www.youtube.com/watch?v=loLWOCl7nlk)
+
+[Lost Time Memory](https://www.youtube.com/watch?v=Xupu5BcWDLo)
 
 ## Love Live OST
 
@@ -1231,6 +1277,8 @@ Dead Link ~~[Streaming Heart](https://www.youtube.com/watch?v=2Uy9_4IWGZo)~~
 [The End of Raging Winds](https://www.youtube.com/watch?v=_ErTKCcnqpo)
 
 [Hoist the Sword and Pride in the Heart](https://www.youtube.com/watch?v=SIDTxtyUDfY)
+
+[Unbreakable Tie](https://www.youtube.com/watch?v=eAarVmqJwNw)
 
 # 1 6 8
 
