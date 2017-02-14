@@ -9,3 +9,5 @@ We are also associated with the following discord servers :
 [Strike Witches](https://discord.gg/sFWaCYv)
 
 [Military Moe](https://discord.gg/G4CYJHd)
+
+And [Girls Und Panzer](https://discord.gg/cMMapvf) in KamiCrit's heart.
