@@ -1064,7 +1064,7 @@ Hyperdimension Neptunia
 
 [Lost One's Weeping](https://www.youtube.com/watch?v=IoKhXdPJRQg)
 
-# Amatsuki
+### Amatsuki
 
 [Envy Catwalk -Last Note Arrange.](https://dl.dropboxusercontent.com/u/65812877/04.%20Envy%20Cat%20Walk%20%7ELast%20Note.%20Arrange%20Ver.%7E.mp3)
 
@@ -1088,7 +1088,7 @@ Hyperdimension Neptunia
 
 [Streaming Heart](https://www.youtube.com/watch?v=Z8RXp-jP34Y)
 
-# yuikonnu
+### yuikonnu
 
 [Kakushigoto](https://www.youtube.com/watch?v=YuAAc2K4GBY)
 
@@ -1104,7 +1104,7 @@ Hyperdimension Neptunia
 
 [Otsukimi Recital](https://dl.dropboxusercontent.com/u/65812877/Otsukimi%20Recital%20-%20Yuikonnu.mp3)
 
-# Hanatan
+### Hanatan
 
 [Nijigen Dream Fever](https://www.youtube.com/watch?v=2O3RcMwgV_o)
 
@@ -1118,7 +1118,7 @@ Hyperdimension Neptunia
 
 [Tengaku](https://www.youtube.com/watch?v=O2vIaraJ2zw)
 
-# taiga
+### taiga
 
 [Great Days](https://www.youtube.com/watch?v=zoqH1Rk4ANM)
 
@@ -1134,7 +1134,7 @@ Hyperdimension Neptunia
 
 [Sono Chi no Sadame](https://www.youtube.com/watch?v=Jvu30XkxZ70)
 
-# JubyPhonic
+### JubyPhonic
 
 [Odds and Ends](https://dl.dropboxusercontent.com/u/65812877/Odds%20and%20Ends%20-%20JubyPhonic.mp3)
 
@@ -1162,7 +1162,7 @@ Hyperdimension Neptunia
 
 [Kagerou Days](https://www.youtube.com/watch?v=MU-rdG-M5Ho)
 
-# rachie
+### rachie
 
 [Two Breaths Walking](https://www.youtube.com/watch?v=Q3uHO-t1eDI)
 
@@ -1218,7 +1218,7 @@ Hyperdimension Neptunia
 
 [LIVEDRIVE](https://dl.dropboxusercontent.com/u/65812877/02.%20LIVEDRIVE.mp3)
 
-# Free!
+## Free!
 
 [Rage on](https://www.youtube.com/watch?v=p9WrJg_P9m4)
 
