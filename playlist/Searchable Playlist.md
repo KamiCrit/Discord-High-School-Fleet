@@ -520,7 +520,7 @@ Space Battleship Yamato 2199
 
 [Pacific Ocean March / 太平洋行進曲](https://www.dropbox.com/s/p0jvlnutf6n0wmu/%E3%80%8A%E8%BB%8D%E6%AD%8C%E3%80%8B%E5%A4%AA%E5%B9%B3%E6%B4%8B%E8%A1%8C%E9%80%B2%E6%9B%B2%EF%BC%88_Taiheiy%C5%8D%20K%C5%8Dshinkyoku_%20-%20Pacific%20Ocean%20March%EF%BC%89with%20Eng_Sub.mp3?dl=0)
 
-[Battleship Yamato no Uta / 戦艦大和の歌](https://www.dropbox.com/s/37c7foyw4tm5s4n/%E6%88%A6%E8%89%A6%E5%A4%A7%E5%92%8C%E3%81%AE%E6%AD%8C_%E6%88%A6%E8%89%A6%E5%A4%A7%E5%92%8C%E8%89%A6%E6%AD%8C%20%E3%80%90%E6%B5%B7%E8%BB%8D%E8%BB%8D%E6%AD%8C%E3%80%91.mp3?dl=0)
+[Song of the Battleship Yamato / 戦艦大和の歌](https://www.dropbox.com/s/37c7foyw4tm5s4n/%E6%88%A6%E8%89%A6%E5%A4%A7%E5%92%8C%E3%81%AE%E6%AD%8C_%E6%88%A6%E8%89%A6%E5%A4%A7%E5%92%8C%E8%89%A6%E6%AD%8C%20%E3%80%90%E6%B5%B7%E8%BB%8D%E8%BB%8D%E6%AD%8C%E3%80%91.mp3?dl=0)
 
 [Distress of the sixth submarine / 第六潜水艇の遭難](https://www.dropbox.com/s/vjdnhgmnb3befwi/%E7%AC%AC%E5%85%AD%E6%BD%9C%E6%B0%B4%E8%89%87%E3%81%AE%E9%81%AD%E9%9B%A3%E3%80%90%E6%B5%B7%E8%BB%8D%E8%BB%8D%E6%AD%8C%E3%80%91.mp3?dl=0)
 
