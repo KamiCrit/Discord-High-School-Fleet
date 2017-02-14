@@ -1,6 +1,6 @@
 2017-02-13 1700
 
-Right click for quick URL copying:
+Crtl+F and right click URL's for quick !play-ing of songs:
 
 ![alt text](http://i.imgur.com/Ebjh14p.png "Best Song")
 
