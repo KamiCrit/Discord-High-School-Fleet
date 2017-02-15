@@ -1014,7 +1014,7 @@ Hyperdimension Neptunia
 
 [Donut Hole](https://www.youtube.com/watch?v=GvrCH7gq1Kc)
 
-[Lost Time Memory](https://www.youtube.com/watch?v=-dHCR8dbCFo)
+Dead Link ~~[Lost Time Memory](https://www.youtube.com/watch?v=-dHCR8dbCFo)~~
 
 [World Calling](https://www.youtube.com/watch?v=N_EXEWA_868)
 
