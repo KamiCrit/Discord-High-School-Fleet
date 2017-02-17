@@ -9,4 +9,4 @@
 ## Aiu rabu
 |Name|Link|
 |:----:|:----:|
-| Kani Do-Luck! | https://www.dropbox.com/s/cwugoobbi95qvqk/Aiura%20-%20Aiu%20rabu%20-%20Kani%20Do-Luck%21.mp3?dl=0 |
+|Kani Do-Luck!|https://www.dropbox.com/s/cwugoobbi95qvqk/Aiura%20-%20Aiu%20rabu%20-%20Kani%20Do-Luck%21.mp3?dl=0|
