@@ -4,6 +4,8 @@ Crtl+F and right click URL's for quick !play-ing of songs:
 
 ![alt text](http://i.imgur.com/Ebjh14p.png "Best Song")
 
+[Formatting guide for submitting auto playlist additions](../playlist/Formatting%20Example)
+
 # KamiCrit 
 
 ## Anime
