@@ -2,7 +2,7 @@
 
 Crtl+F and right click URL's for quick !play-ing of songs:
 
-![alt text](http://i.imgur.com/Ebjh14p.png "Best Song")
+![alt text](https://raw.githubusercontent.com/KamiCrit/Discord-High-School-Fleet/master/playlist/2017-02-14_21-41-05.png "Best Song")
 
 [Formatting guide for submitting auto playlist additions](../playlist/Formatting%20Example)
 
