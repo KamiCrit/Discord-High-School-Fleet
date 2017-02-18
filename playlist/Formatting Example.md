@@ -1,6 +1,6 @@
 # Your Username
 
-## Anime (or what ever you want to catagorize your songs as)
+## Anime (or what ever you want to categorize your songs as)
 
 High School Fleet
 
