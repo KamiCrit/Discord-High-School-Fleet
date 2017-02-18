@@ -1,4 +1,4 @@
-2017-02-13 1700
+2017-02-18 1445
 
 Crtl+F and right click URL's for quick !play-ing of songs:
 
@@ -988,7 +988,7 @@ Hyperdimension Neptunia
 
 [Ghost Rule](https://www.youtube.com/watch?v=NHQdDs1I5LM)
 
-[imi no Mewo](https://www.youtube.com/watch?v=4msdlMZBxiQ)
+[Kimi no Mewo](https://www.youtube.com/watch?v=4msdlMZBxiQ)
 
 [Kagerou Days](https://www.youtube.com/watch?v=YIY1--KbFk4)
 
@@ -998,9 +998,9 @@ Hyperdimension Neptunia
 
 [Kusare Gedou to Chocolate](https://www.youtube.com/watch?v=ctPWhjEWz2Y)
 
-[Eh? Ah sou](https://www.youtube.com/watch?v=2ZThjca5K_4)
+[Eh? Ah, sou](https://www.youtube.com/watch?v=2ZThjca5K_4)
 
-[Envy Catwalk](https://www.youtube.com/watch?v=e2TTTMESrPw)
+[Envy Catwalk](https://www.youtube.com/watch?v=e2TTTMESrPw0)
 
 [Renai Yuusha](https://www.youtube.com/watch?v=_czhtxNgbm0)
 
@@ -1010,15 +1010,15 @@ Hyperdimension Neptunia
 
 [Senbonzakura](https://www.youtube.com/watch?v=g7EHjb5k8c4)
 
-[Streaming Heart](https://www.youtube.com/watch?v=CMuUbUtGvac)
+[Streaming Heart](https://dl.dropboxusercontent.com/u/65812877/Streaming%20Heart%20-%20Soraru.mp3)
 
 [Donut Hole](https://www.youtube.com/watch?v=GvrCH7gq1Kc)
 
-Dead Link ~~[Lost Time Memory](https://www.youtube.com/watch?v=-dHCR8dbCFo)~~
+[Lost Time Memory](https://dl.dropboxusercontent.com/u/65812877/Lost%20Time%20Memory%20-%20Soraru.mp3)
 
 [World Calling](https://www.youtube.com/watch?v=N_EXEWA_868)
 
-[Hello Worker](https://www.youtube.com/watch?v=Rkoaji09kXg)
+[Hello, Worker](https://www.youtube.com/watch?v=Rkoaji09kXg)
 
 [curtain call](https://dl.dropboxusercontent.com/u/65812877/02%20-%20curtain%20call.mp3)
 
@@ -1028,7 +1028,7 @@ Dead Link ~~[Lost Time Memory](https://www.youtube.com/watch?v=-dHCR8dbCFo)~~
 
 [Anonymous Onchuu](https://dl.dropboxusercontent.com/u/65812877/05%20-%20Anonymous%20Onchuu.mp3)
 
-[Game Shounen wa Shinanai ](https://dl.dropboxusercontent.com/u/65812877/06%20-%20Game%20Shounen%20wa%20Shinanai.mp3)
+[Game Shounen wa Shinanai] (https://dl.dropboxusercontent.com/u/65812877/06%20-%20Game%20Shounen%20wa%20Shinanai.mp3)
 
 [Madamamagoto](https://dl.dropboxusercontent.com/u/65812877/07%20-%20Madamamagoto.mp3)
 
@@ -1064,9 +1064,10 @@ Dead Link ~~[Lost Time Memory](https://www.youtube.com/watch?v=-dHCR8dbCFo)~~
 
 [Lost One's Weeping](https://www.youtube.com/watch?v=IoKhXdPJRQg)
 
+
 ### Amatsuki
 
-[Envy Catwalk -Last Note Arrange.](https://dl.dropboxusercontent.com/u/65812877/04.%20Envy%20Cat%20Walk%20%7ELast%20Note.%20Arrange%20Ver.%7E.mp3)
+[Envy Catwalk ~Last Note Arrange.](https://dl.dropboxusercontent.com/u/65812877/04.%20Envy%20Cat%20Walk%20%7ELast%20Note.%20Arrange%20Ver.%7E.mp3)
 
 [Sweet Sugar Stick](https://dl.dropboxusercontent.com/u/65812877/06.%20Sweet%20Sugar%20Stick.mp3)
 
@@ -1074,7 +1075,7 @@ Dead Link ~~[Lost Time Memory](https://www.youtube.com/watch?v=-dHCR8dbCFo)~~
 
 [Eh? Ah Sou](https://dl.dropboxusercontent.com/u/65812877/11.%20Eh%20Ah%20Sou.mp3)
 
-[Calc](https://dl.dropboxusercontent.com/u/65812877/12.%20Calc..mp3)
+[Calc.](https://dl.dropboxusercontent.com/u/65812877/12.%20Calc..mp3)
 
 [Higurashi Moratorium](https://www.youtube.com/watch?v=KUv-spHFr50)
 
@@ -1104,6 +1105,8 @@ Dead Link ~~[Lost Time Memory](https://www.youtube.com/watch?v=-dHCR8dbCFo)~~
 
 [Otsukimi Recital](https://dl.dropboxusercontent.com/u/65812877/Otsukimi%20Recital%20-%20Yuikonnu.mp3)
 
+[Caramel Heaven](https://www.youtube.com/watch?v=WIqrKvfEJos)
+
 ### Hanatan
 
 [Nijigen Dream Fever](https://www.youtube.com/watch?v=2O3RcMwgV_o)
@@ -1118,6 +1121,10 @@ Dead Link ~~[Lost Time Memory](https://www.youtube.com/watch?v=-dHCR8dbCFo)~~
 
 [Tengaku](https://www.youtube.com/watch?v=O2vIaraJ2zw)
 
+[Bad Apple](https://www.youtube.com/watch?v=BPnn42w9458)
+
+[Cat Food](https://www.youtube.com/watch?v=_PAd1IXgA1g)
+
 ### taiga
 
 [Great Days](https://www.youtube.com/watch?v=zoqH1Rk4ANM)
@@ -1126,7 +1133,7 @@ Dead Link ~~[Lost Time Memory](https://www.youtube.com/watch?v=-dHCR8dbCFo)~~
 
 [chase](https://www.youtube.com/watch?v=qr73XbBFDA8)
 
-[Sono Chi no Kioku -end of THE WORLD-](https://www.youtube.com/watch?v=ouqfjvAMg7Y)
+[Sono Chi no Kioku ~end of THE WORLD~](https://www.youtube.com/watch?v=ouqfjvAMg7Y)
 
 [STAND PROUD](https://www.youtube.com/watch?v=CjePryT5b1c)
 
@@ -1136,7 +1143,7 @@ Dead Link ~~[Lost Time Memory](https://www.youtube.com/watch?v=-dHCR8dbCFo)~~
 
 ### JubyPhonic
 
-[Odds and Ends](https://dl.dropboxusercontent.com/u/65812877/Odds%20and%20Ends%20-%20JubyPhonic.mp3)
+[Odds & Ends](https://dl.dropboxusercontent.com/u/65812877/Odds%20and%20Ends%20-%20JubyPhonic.mp3)
 
 [Tell Your World](https://dl.dropboxusercontent.com/u/65812877/Tell%20Your%20World%20-%20Juby.mp3)
 
@@ -1150,7 +1157,7 @@ Dead Link ~~[Lost Time Memory](https://www.youtube.com/watch?v=-dHCR8dbCFo)~~
 
 [Outer Science](https://www.youtube.com/watch?v=-PgOrF3zD7o)
 
-[Lost Ones Weeping](https://www.youtube.com/watch?v=nZHXSN6lEEw)
+[Lost One's Weeping](https://www.youtube.com/watch?v=nZHXSN6lEEw)
 
 [Lost Time Memory](https://www.youtube.com/watch?v=ddfnnOnO08s)
 
@@ -1208,15 +1215,23 @@ Dead Link ~~[Lost Time Memory](https://www.youtube.com/watch?v=-dHCR8dbCFo)~~
 
 [Unhappy Refrain](https://www.youtube.com/watch?v=lZFi3VCrOkI)
 
-[Odds and Ends](https://www.youtube.com/watch?v=L_sAipsAhPA)
+[Odds & Ends](https://www.youtube.com/watch?v=L_sAipsAhPA)
 
 [Two Breaths Walking](https://www.youtube.com/watch?v=5FzHNqhYVao)
 
-[Two-Faced Lovers ](https://www.youtube.com/watch?v=AvTH7J2shuI)
+[Two-Faced Lovers](https://www.youtube.com/watch?v=AvTH7J2shuI)
 
 [Tell Your World](https://www.youtube.com/watch?v=fmrA-gxJxgQ)
 
 [LIVEDRIVE](https://dl.dropboxusercontent.com/u/65812877/02.%20LIVEDRIVE.mp3)
+
+[This is the Happiness and Peace of Mind Committee](https://www.youtube.com/watch?v=k6OuXkG39cA)
+
+[Hop! Step! Instant Death! A Happiness Dance Death-Trap](https://www.youtube.com/watch?v=y1UX1hz1lYI)
+
+[The Path to Eternal Happiness... I Found It](https://www.youtube.com/watch?v=D-SeN8ccXHM)
+
+[There's Supposed to Be a Cheat Code for Happiness](https://www.youtube.com/watch?v=wyUR1_19KAM)
 
 ## Free!
 
@@ -1236,8 +1251,6 @@ Dead Link ~~[Lost Time Memory](https://www.youtube.com/watch?v=-dHCR8dbCFo)~~
 
 ## Various Animu
 
-Duplicate ~~[TORCH](https://www.youtube.com/watch?v=HLrdp_85s8s)~~
-
 [Take Your Way](https://www.youtube.com/watch?v=W_ZXidH4XbE)
 
 [Be](https://www.youtube.com/watch?v=QzZsWKqn27k)
@@ -1251,6 +1264,16 @@ Duplicate ~~[TORCH](https://www.youtube.com/watch?v=HLrdp_85s8s)~~
 [daze](https://www.youtube.com/watch?v=loLWOCl7nlk)
 
 [Lost Time Memory](https://www.youtube.com/watch?v=Xupu5BcWDLo)
+
+[IN MY WORLD](https://dl.dropboxusercontent.com/u/65812877/IN%20MY%20WORLD.mp3)
+
+[Owaranai Melody wo Uta Idashi Mashita](https://dl.dropboxusercontent.com/u/65812877/01%20-%20Owaranai%20Melody%20wo%20Uta%20Idashi%20Mashita..mp3)
+
+[Yobanashi Deceive](https://www.youtube.com/watch?v=yNVSO8bHBEE)
+
+[Gunjou Rain](https://www.youtube.com/watch?v=Ncf5yZY5JDE)
+
+[days](https://www.youtube.com/watch?v=INo6e9m6chA)
 
 ## Love Live OST
 
