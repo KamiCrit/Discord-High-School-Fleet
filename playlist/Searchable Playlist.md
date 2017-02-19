@@ -856,7 +856,7 @@ Hyperdimension Neptunia
 
 # Mandalor
 
-[???](http://www.nicovideo.jp/watch/nm10237524)
+[Soul Flower Union](http://www.nicovideo.jp/watch/nm10237524)
 
 ## Military Music
 
