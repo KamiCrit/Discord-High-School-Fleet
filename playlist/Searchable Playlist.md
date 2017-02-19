@@ -480,11 +480,15 @@ Yojouhan Shinwa Taikei
 
 [Youjouhan Shinwa Taikei ED](https://www.dropbox.com/s/b410metyqfbj9y8/Yojouhan%20Shinwa%20Taikei%20-%2001%20Kami-sama%20no%20Iu%20Toori.mp3?raw=1)
 
-Space Battleship Yamato 2199
+Uchuu Senkan Yamato 2199
 
-[Space Battleship Yamato 2199](https://soundcloud.com/mew178/space-battleship-yamato)
+[Space Battleship Yamato](https://www.dropbox.com/s/84rtldoldsr22qd/Uchuu%20Senkan%20Yamato%202199%20-%20Space%20Battleship%20Yamato.mp3?raw=1)
 
-[Makka na Scarf -Space Battleship Yamato 2199 Version-](https://youtu.be/eJgIlnyhJ1A)
+Uchuu Senkan Yamato
+
+[Makka na Scarff](https://www.dropbox.com/s/bz2qf23g34fxcnh/Uchuu%20Senkan%20Yamato%20-%20Makka%20na%20Scarff.mp3?raw=1)
+
+[Uchuu Senkan Yamato](https://www.dropbox.com/s/qs6n0vjftwnjb95/Uchuu%20Senkan%20Yamato%20-%20Uchuu%20Senkan%20Yamato.mp3?raw=1)
 
 ## Oranges & Lemons - Tribute to Azumanga Daioh
 
