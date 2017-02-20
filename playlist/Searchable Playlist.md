@@ -1279,7 +1279,7 @@ Hyperdimension Neptunia
 
 [Gunjou Rain](https://www.youtube.com/watch?v=Ncf5yZY5JDE)
 
-[days](https://www.youtube.com/watch?v=INo6e9m6chA)
+Dead Link~~[days](https://www.youtube.com/watch?v=INo6e9m6chA)~~
 
 ## Love Live OST
 
