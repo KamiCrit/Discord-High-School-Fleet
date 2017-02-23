@@ -1,4 +1,4 @@
-2017-02-18 1445
+2017-02-22 2200
 
 Crtl+F and right click URL's for quick !play-ing of songs:
 
@@ -740,7 +740,7 @@ Blue Avenue
 
 [HANDMADE EVERYDAY](https://www.dropbox.com/s/j0lrh9ku6o6pnhr/HANDMADE%20EVERYDAY%E2%99%AA.mp3?raw=1)
 
-##Anime Songs
+##Anime
 
 Saki Achiga-hen
 
@@ -822,6 +822,8 @@ Masamune-kun no Revenge
 
 [Wagamama Mirror Heart](https://www.dropbox.com/s/zq2lwrfdkdqn15x/Wagamama%20MIRROR%20HEART.mp3?raw=1)
 
+[Elemental World](https://www.dropbox.com/s/iors4gx3ym1krmf/Elemental%20World.mp3?raw=1)
+
 Working!!
 
 [SOMEONE ELSE](https://www.dropbox.com/s/8x4zphl89rvam68/SOMEONE%20ELSE.mp3?raw=1)
@@ -834,6 +836,8 @@ Youjo Senki
 
 [JINGO JUNGLE](https://www.dropbox.com/s/v5m81sdx1uedjwa/JINGO%20JUNGLE.mp3?raw=1)
 
+[Los! Los! Los!](https://www.dropbox.com/s/z2xsb8tu8krsz6e/Los%21%20Los%21%20Los%21.mp3?raw=1)
+
 Carnival Phantasm
 
 [Super☆Affection](https://www.dropbox.com/s/g0ek46kxrt58isw/Super%E2%98%86Affection.mp3?raw=1)
@@ -845,6 +849,14 @@ Aoki Hagane no Arpeggio: Ars Nova
 Idol Jihen
 
 [Utae! Ai no Kouyaku](https://www.dropbox.com/s/xo5nla5mqndynpw/Utae%21%20Ai%20no%20Kouyaku.mp3?raw=1)
+
+[Respect](https://www.dropbox.com/s/6ekaoljub32erk0/Respect.mp3?raw=1)
+
+Little Witch Academia
+
+[Shiny Ray](https://www.dropbox.com/s/rbfji7wy73njc42/Shiny%20Ray.mp3?raw=1)
+
+[Hoshi wo Tadoreba](https://www.dropbox.com/s/jurw7i041rhwhih/Hoshi%20wo%20Tadoreba.mp3?raw=1)
 
 ## Other Songs
 
