@@ -1461,3 +1461,114 @@ Tonari no Kaibutsu-kun
 
 [Q&A Recital!](https://www.dropbox.com/s/etd3lf3hx3kgpr7/01%20-%20Q%26A%20Recital%21.mp3?raw=1)
 
+#Yukinori
+
+##Anime
+
+Nejimaki
+
+[Tenkyou no Alderamin](https://www.dropbox.com/s/lj8ku96onmw4qzq/01.%20%E5%A4%A9%E9%8F%A1%E3%81%AE%E3%82%A2%E3%83%AB%E3%83%87%E3%83%A9%E3%83%9F%E3%83%B3.mp3?dl=0)
+
+[Circus](https://www.dropbox.com/s/6950nvjz9myj93p/02.%20circus.mp3?dl=0)
+
+Fate/Kaleid
+
+[Wonder Stella](https://www.dropbox.com/s/hut5q9a4bfea71m/01.%20Wonder%20Stella.mp3?dl=0)
+
+Rakudai Kishi no Cavalry
+
+[Kakusei no Muishiki](https://www.dropbox.com/s/5cgeo9hxs3kaiw3/02%20-%20Kakusei%20no%20Muishiki%20-%20Rakudai.mp3?dl=0)
+
+Absolute Duo
+
+[Absolute Soul](https://www.dropbox.com/s/gyqs84phyevv2jx/01%20-%20Absolute%20Soul.mp3?dl=0)
+
+[Believe x Believe](https://www.dropbox.com/s/ph8mighdoli55s4/01%20-%20Believe%20x%20Believe.mp3?dl=0)
+
+[Apple Tea no Aji](https://www.dropbox.com/s/o3kp9pa9vb85q8z/02%20-%20Apple%20Tea%20no%20Aji.mp3?dl=0)
+
+Aldnoah Zero
+
+[Keep on Keeping on](https://www.dropbox.com/s/g0ynjle6ficjn85/04.%20Keep%20on%20keeping%20on.mp3?dl=0)
+
+[Heavenly Blue](https://www.dropbox.com/s/q7kcqopsnk5qgem/01%20-%20heavenly%20blue%20-%20Aldnoah%20Zero.mp3?dl=0)
+
+[A/Z](https://www.dropbox.com/s/dwkl3mzgcn5jtlb/02%20-%20AZ.mp3?dl=0)
+
+[aLIEz](https://www.dropbox.com/s/l0zyfme1bt4xv5f/03%20-%20aLIEz.mp3?dl=0)
+
+Ange Vierge
+
+[Love is my Rail](https://www.dropbox.com/s/lpsxkoht4gb43a7/01.%20Love%20is%20MY%20RAIL.mp3?dl=0)
+
+[Tears Breaker](https://www.dropbox.com/s/30rcgiocctatb34/02.%20Tears%20BREAKER%20with%20piano.mp3?dl=0)
+
+[miss Blue](https://www.dropbox.com/s/wozaijnwnquk6pp/03.%20miss%20blue.mp3?dl=0)
+
+Qualidea Code
+
+[AxxxiS](https://www.dropbox.com/s/o0ngus2wyhol6gd/02.%20AxxxiS.mp3?dl=0)
+
+[Brave Freak Out](https://www.dropbox.com/s/re9o99a2p5jx1cm/01.%20Brave%20Freak%20Out.mp3?dl=0)
+
+[Cloudy](https://www.dropbox.com/s/0zg4nbjnlxaup1x/02.%20Cloudy.mp3?dl=0)
+
+[Gravity](https://www.dropbox.com/s/vce29dvo0u3q5vb/01.%20Gravity.mp3?dl=0)
+
+Strike the Blood
+
+[Strike the Blood](https://www.dropbox.com/s/k6zv0zlhy02997j/01%20-%20Strike%20the%20Blood.mp3?dl=0)
+
+Aoharu x Kikanjuu
+
+[Trouble Shooting](https://www.dropbox.com/s/lkjh5baldgqzbpj/02%20-%20Trouble%20shooting%20-%20aoharu%20x%20kikanjuu.mp3?dl=0)
+
+Black Bullet
+
+[Tokohana](https://www.dropbox.com/s/0w5ei9kdldrs70h/01%20-%20Tokohana.mp3?dl=0)
+
+[Black Bullet](https://www.dropbox.com/s/7l56utcp4vhg2lg/01%20-%20black%20bullet.mp3?dl=0)
+
+Ao no Exorcist
+
+[Itteki no eikyou](https://www.dropbox.com/s/6suhg90vvqa489b/01.%20%E4%B8%80%E6%BB%B4%E3%81%AE%E5%BD%B1%E9%9F%BF.mp3?dl=0)
+
+[Core Pride](https://www.dropbox.com/s/i9j81d7bpdmj14f/01%20-%20CORE%20PRIDE%20-%20Ao%20no%20exorcist.mp3?dl=0)
+
+[Take Off](https://www.dropbox.com/s/55he728qwl3n79a/01%20-%20Take%20off.mp3?dl=0)
+
+Rokujouma no Shinryakusha
+
+[Koukan Win Win](https://www.dropbox.com/s/23wzz3g0r0zp6hu/01%20-%20Koukan%20Win-Win%20Mujouken.mp3?dl=0)
+
+Toaru kagaku/Majutsu Series
+
+[Only my Railgun](https://www.dropbox.com/s/6vcv16d7b8sgrrq/01%20-%20only%20my%20railgun%20-%20Railgun.mp3?dl=0)
+
+[Sister's Noise](https://www.dropbox.com/s/mzt3yrqogqu2lzj/01%20-%20sister%27s%20noise.mp3?dl=0)
+
+[Level 5 Judgelight](https://www.dropbox.com/s/6nky4j903erydxr/01%20-%20LEVEL%205%20-judgelight-.mp3?dl=0)
+
+[Eternal Reality](https://www.dropbox.com/s/6b2pu9xzmkssyvo/01%20-%20eternal%20reality.mp3?dl=0)
+
+Akame ga Kill
+
+[Tsuki Akari](https://www.dropbox.com/s/2f7nk9zsuv505t3/01%20-%20Tsuki%20Akari.mp3?dl=0)
+
+[Liar Mask](https://www.dropbox.com/s/0wbi3qgkhwhhgqw/01%20-%20Liar%20Mask.mp3?dl=0)
+
+[Skyreach](https://www.dropbox.com/s/vwzbahfcy4gx2a3/01%20-%20Skyreach%20-%20Akame%20ga%20Kill.mp3?dl=0)
+
+[Konno Sekai, Shiritaku Nakatta](https://www.dropbox.com/s/yfz3sxl6qiau3cv/01%20-%20Konna%20Sekai%2C%20Shiritaku%20Nakatta..mp3?dl=0)	
+
+Accel World
+
+[Burst the Gravity](https://www.dropbox.com/s/0qmgn7b5n0l708c/01%20-%20Burst%20the%20Gravity.mp3?dl=0)
+
+[Chase the World](https://www.dropbox.com/s/3i4816v0b9wkq9q/01%20-%20Chase%20the%20world%20-%20Accel%20World.mp3?dl=0)
+
+Ansatsu Kyoushitsu (assassination classroom)
+
+[Hello Shooting Star](https://www.dropbox.com/s/08yykemk01kprh3/01%20-%20Hello%2C%20shooting-star.mp3?dl=0)
+
+[Jikiri Hongan Revolution](https://www.dropbox.com/s/75gyt0p6cxkggl6/01%20-%20Jikiri%20Hongan%20Revolution.mp3?dl=0)
