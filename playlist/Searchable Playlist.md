@@ -704,7 +704,7 @@ Blue Avenue
 
 [G Senjou no Cinderella](https://www.dropbox.com/s/tyt0mctz1pk72px/G%20Senjou%20no%20Cinderella.mp3?raw=1)
 
-[Thrilling One Way](https://www.youtube.com/watch?v=p9Iqg6VuTsY)
+[Thrilling One Way](https://www.dropbox.com/s/rpe9ds4c4xoh3v7/Thrilling%20One%20Way.mp3?raw=1)
 
 ## Idolmaster
 
