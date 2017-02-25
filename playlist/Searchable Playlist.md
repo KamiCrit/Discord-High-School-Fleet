@@ -1,4 +1,4 @@
-2017-02-22 2200
+2017-02-25 1415
 
 Crtl+F and right click URL's for quick !play-ing of songs:
 
@@ -35,6 +35,10 @@ Amagi Brilliant Park
 [Elementario de Aimashou](https://www.dropbox.com/s/lv338bmoj3lznhn/Amagi%20Brilliant%20Park%20-%20Elementario%20de%20Aimashou.mp3?raw=1)
 
 [Subaru Rashiki FUN!TASY](https://www.dropbox.com/s/slpe1jhg1pne46k/Amagi%20Brilliant%20Park%20-%20Subaru%20Rashiki%20FUN%21TASY.mp3?raw=1)
+
+Angel Beats
+
+[My Soul, Your Beats!](https://www.dropbox.com/s/pb3pjmayb8yxbth/Angel%20Beats%20-%20My%20Soul%2C%20Your%20Beats%21.mp3?raw=1)
 
 Ano Hi Mita Hana no Namae wo Bokutachi wa Mada Shiranai.
 
@@ -118,6 +122,12 @@ Fullmetal Alchemist
 
 [To Be King](https://www.dropbox.com/s/r0uiojv38mim3kq/Fullmetal%20Alchemist%20Brotherhood%20-%2030%20-%20To%20Be%20King.mp3?raw=1)
 
+Gabriel DropOut
+
+[Gabriel Drop Kick](https://www.dropbox.com/s/6xdw3ihobtkr476/Gabriel%20DropOut%20-%20Gabriel%20Drop%20Kick.mp3?raw=1)
+
+[Hallelujah☆Essaim](https://www.dropbox.com/s/r16fmtlkznzgw04/Gabriel%20DropOut%20-%20Hallelujah%E2%98%86Essaim.mp3?raw=1)
+
 Gatchaman Crowds
 
 [In The Name Of Love](https://www.dropbox.com/s/z1qyg4ti42ao9pt/Gatchaman%20Crowds%20-%2001%20-%20Gotchaman%20-%20In%20the%20name%20of%20Love.mp3?raw=1)
@@ -170,7 +180,7 @@ Girls Und Panzer Der Film
 
 Hibike
 
-[TRUE - Dream Solister](https://www.dropbox.com/s/chfw9fu5x58fcsp/Hibike%21%20Euphonium%20-%20TRUE%20-%20DREAM%20SOLISTER.mp3?dl=0])
+[TRUE - Dream Solister](https://www.dropbox.com/s/chfw9fu5x58fcsp/Hibike%21%20Euphonium%20-%20TRUE%20-%20DREAM%20SOLISTER.mp3?raw=1)
 
 [TRUE - Soundscape](https://www.dropbox.com/s/n7eadg7frbzn9i3/Hibike%21%20Euphonium%20-%20TRUE%20-%20Soundscape.mp3?raw=1)
 
@@ -295,6 +305,10 @@ Mawaru Penguindrum
 [DEAR FUTURE](https://www.dropbox.com/s/cinve29vzl7ob5b/Mawaru%20Penguindrum%20-%2001%20-%20DEAR%20FUTURE.mp3?raw=1)
 
 [ROCK OVER JAPAN](https://www.dropbox.com/s/1w7isndiqpn0pnw/Mawaru%20Penguindrum%20-%2001%20-%20ROCK%20OVER%20JAPAN.mp3?raw=1)
+
+Minami Kamakura Koukou Joshi Jitensha-bu
+
+[Niji Yume Road](https://www.dropbox.com/s/i517tp30sq44cvz/Minami%20Kamakura%20Koukou%20Joshi%20Jitensha-bu%20-%20Niji%20Yume%20Road.mp3?raw=1)
 
 Mirai Nikki (TV)
 
@@ -474,12 +488,6 @@ Totoro
 
 [Tonari no totoro ending](https://soundcloud.com/snuryus/tonari-no-totoro-ending)
 
-Yojouhan Shinwa Taikei
-
-[Youjouhan Shinwa Taikei OP](https://www.dropbox.com/s/i6jbgwmz6rirj4o/Yojouhan%20Shinwa%20Taikei%20-%2001%20Maigo%20Inu%20to%20Ame%20no%20Beat.mp3?raw=1)
-
-[Youjouhan Shinwa Taikei ED](https://www.dropbox.com/s/b410metyqfbj9y8/Yojouhan%20Shinwa%20Taikei%20-%2001%20Kami-sama%20no%20Iu%20Toori.mp3?raw=1)
-
 Uchuu Senkan Yamato 2199
 
 [Space Battleship Yamato](https://www.dropbox.com/s/84rtldoldsr22qd/Uchuu%20Senkan%20Yamato%202199%20-%20Space%20Battleship%20Yamato.mp3?raw=1)
@@ -489,6 +497,18 @@ Uchuu Senkan Yamato
 [Makka na Scarff](https://www.dropbox.com/s/bz2qf23g34fxcnh/Uchuu%20Senkan%20Yamato%20-%20Makka%20na%20Scarff.mp3?raw=1)
 
 [Uchuu Senkan Yamato](https://www.dropbox.com/s/qs6n0vjftwnjb95/Uchuu%20Senkan%20Yamato%20-%20Uchuu%20Senkan%20Yamato.mp3?raw=1)
+
+Urara Meirochou
+
+[Yumeji Labyrinth](https://www.dropbox.com/s/ud0njejxnj0ex8s/Urara%20Meirochou%20-%20Yumeji%20Labyrinth.mp3?raw=1)
+
+Yojouhan Shinwa Taikei
+
+[Youjouhan Shinwa Taikei OP](https://www.dropbox.com/s/i6jbgwmz6rirj4o/Yojouhan%20Shinwa%20Taikei%20-%2001%20Maigo%20Inu%20to%20Ame%20no%20Beat.mp3?raw=1)
+
+[Youjouhan Shinwa Taikei ED](https://www.dropbox.com/s/b410metyqfbj9y8/Yojouhan%20Shinwa%20Taikei%20-%2001%20Kami-sama%20no%20Iu%20Toori.mp3?raw=1)
+
+
 
 ## Oranges & Lemons - Tribute to Azumanga Daioh
 
@@ -626,7 +646,7 @@ Blue Avenue
 
 [Donna Toki mo Zutto](https://www.dropbox.com/s/f8c47xej0i8x3gh/Donna%20Toki%20mo%20Zutto.mp3?raw=1)
 
-[COLORFUL VOICE](https://www.dropbox.com/s/lww42kxq2dlz6j7/COLORFUL%20VOICE.mp3?dl=00)
+[COLORFUL VOICE](https://www.dropbox.com/s/lww42kxq2dlz6j7/COLORFUL%20VOICE.mp3?raw=1)
 
 [Yume no tobira](https://www.dropbox.com/s/do96t8k71vrugoc/Yume%20no%20Tobira.mp3?raw=1)
 
