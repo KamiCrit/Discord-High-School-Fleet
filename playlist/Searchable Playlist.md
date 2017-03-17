@@ -784,7 +784,7 @@ Blue Avenue
 
 [HANDMADE EVERYDAY](https://www.dropbox.com/s/j0lrh9ku6o6pnhr/HANDMADE%20EVERYDAY%E2%99%AA.mp3?raw=1)
 
-##Anime
+## Anime
 
 Saki Achiga-hen
 
@@ -901,6 +901,34 @@ Little Witch Academia
 [Shiny Ray](https://www.dropbox.com/s/rbfji7wy73njc42/Shiny%20Ray.mp3?raw=1)
 
 [Hoshi wo Tadoreba](https://www.dropbox.com/s/jurw7i041rhwhih/Hoshi%20wo%20Tadoreba.mp3?raw=1)
+
+So Ra No Wo To
+
+[Hikari no Senritsu](https://www.dropbox.com/s/ecy1x8lrrwxg4un/Hikari%20no%20Senritsu.mp3?raw=1)
+
+[Girls, Be Ambitious](https://www.dropbox.com/s/27mumdb7vy74ajb/Girls%2C%20Be%20Ambitious..mp3?raw=1)
+
+Choujigen Game Neptune The Animation
+
+[Dimension Tripper!!!](https://www.dropbox.com/s/tbu1xoan3gevxl7/Dimension%20Tripper%21%21%21.mp3?raw=1)
+
+[Neptune Sagashite](https://www.dropbox.com/s/smuks9lilbeh4dy/Neptune%20Sagashite.mp3?raw=1)
+
+Mahou Shoujo Ikusei Keikaku
+
+[Sakebe](https://www.dropbox.com/s/17hc0prmptols8z/Sakebe.mp3?raw=1)
+
+ReZero kara Hajimeru Isekai Seikatsu
+
+[Redo](https://www.dropbox.com/s/xjc0nst224gxlnn/Redo.mp3?raw=1)
+
+Noucome
+
+[S.M.L](https://www.dropbox.com/s/10kmqspyrfd4aas/S.M.L.mp3?raw=1)
+
+Kiniro Mosaic
+
+[Your Voice](https://www.dropbox.com/s/gox51osxi26psyf/Your%20Voice.mp3?raw=1)
 
 ## Other Songs
 
