@@ -1382,7 +1382,7 @@ Hyperdimension Neptunia
 
 ## Games?
 
-[Faith is My Pillar](ttps://www.youtube.com/watch?v=8N8MLdJYfJ8)
+[Faith is My Pillar](https://www.youtube.com/watch?v=8N8MLdJYfJ8)
 
 [Cerulean Woodlands](https://www.youtube.com/watch?v=d2sf1WBklPo)
 
