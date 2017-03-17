@@ -818,6 +818,8 @@ Kiniro Mosaic
 
 [Yumeiro Parade](https://www.dropbox.com/s/12git4zsgek5m93/Yumeiro%20Parade.mp3?raw=1)
 
+[Your Voice](https://www.dropbox.com/s/gox51osxi26psyf/Your%20Voice.mp3?raw=1)
+
 Tantei Opera Milky Holmes
 
 [Seikai wa Hitotsu! Ja nai!!](https://www.dropbox.com/s/2wq269yqi6gg2cr/Seikai%20wa%20Hitotsu%21%20Ja%20nai%21%21.mp3?raw=1)
@@ -925,10 +927,6 @@ ReZero kara Hajimeru Isekai Seikatsu
 Noucome
 
 [S.M.L](https://www.dropbox.com/s/10kmqspyrfd4aas/S.M.L.mp3?raw=1)
-
-Kiniro Mosaic
-
-[Your Voice](https://www.dropbox.com/s/gox51osxi26psyf/Your%20Voice.mp3?raw=1)
 
 ## Other Songs
 
