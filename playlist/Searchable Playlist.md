@@ -1,4 +1,4 @@
-2017-02-25 1415
+2017-03-17 1545
 
 Crtl+F and right click URL's for quick !play-ing of songs:
 
@@ -6,7 +6,7 @@ Crtl+F and right click URL's for quick !play-ing of songs:
 
 [Formatting guide for submitting auto playlist additions](../playlist/Formatting%20Example)
 
-# KamiCrit 
+# KamiCrit
 
 ## Anime
 
