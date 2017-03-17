@@ -1100,51 +1100,51 @@ Hyperdimension Neptunia
 
 [Senbonzakura](https://www.youtube.com/watch?v=g7EHjb5k8c4)
 
-[Streaming Heart](https://dl.dropboxusercontent.com/u/65812877/Streaming%20Heart%20-%20Soraru.mp3)
+[Streaming Heart](https://www.dropbox.com/s/1q4p73ivhovn2eh/Streaming%20Heart%20-%20Soraru.mp3?dl=0)
 
 [Donut Hole](https://www.youtube.com/watch?v=GvrCH7gq1Kc)
 
-[Lost Time Memory](https://dl.dropboxusercontent.com/u/65812877/Lost%20Time%20Memory%20-%20Soraru.mp3)
+[Lost Time Memory](https://www.dropbox.com/s/n5lkzokos1n0mrp/Lost%20Time%20Memory%20-%20Soraru.mp3?dl=0)
 
 [World Calling](https://www.youtube.com/watch?v=N_EXEWA_868)
 
 [Hello, Worker](https://www.youtube.com/watch?v=Rkoaji09kXg)
 
-[curtain call](https://dl.dropboxusercontent.com/u/65812877/02%20-%20curtain%20call.mp3)
+[curtain call](https://www.dropbox.com/s/9c2s2wwbucg6bxm/02%20-%20curtain%20call.mp3?dl=0)
 
-[dreadnought](https://dl.dropboxusercontent.com/u/65812877/03%20-%20dreadnought.mp3)
+[dreadnought](https://www.dropbox.com/s/dr5l2ubseyags2j/03%20-%20dreadnought.mp3?dl=0)
 
-[Telecasister](https://dl.dropboxusercontent.com/u/65812877/04%20-%20Telecasister.mp3)
+[Telecasister](https://www.dropbox.com/s/3ihb8msw4ybzzya/04%20-%20Telecasister.mp3?dl=0)
 
-[Anonymous Onchuu](https://dl.dropboxusercontent.com/u/65812877/05%20-%20Anonymous%20Onchuu.mp3)
+[Anonymous Onchuu](https://www.dropbox.com/s/1cok5i3p3608bjr/05%20-%20Anonymous%20Onchuu.mp3?dl=0)
 
-[Game Shounen wa Shinanai] (https://dl.dropboxusercontent.com/u/65812877/06%20-%20Game%20Shounen%20wa%20Shinanai.mp3)
+[Game Shounen wa Shinanai](https://www.dropbox.com/s/yo7gn0n0rzy6g5v/06%20-%20Game%20Shounen%20wa%20Shinanai.mp3?dl=0)
 
-[Madamamagoto](https://dl.dropboxusercontent.com/u/65812877/07%20-%20Madamamagoto.mp3)
+[Madamamagoto](https://www.dropbox.com/s/nogsmklbhvfbeac/07%20-%20Madamamagoto.mp3?dl=0)
 
-[Nokoribi](https://dl.dropboxusercontent.com/u/65812877/09%20-%20Nokoribi.mp3)
+[Nokoribi](https://www.dropbox.com/s/d18elsfl8ejhmf8/09%20-%20Nokoribi.mp3?dl=0)
 
-[Tenbatsu](https://dl.dropboxusercontent.com/u/65812877/10%20-%20Tenbatsu.mp3)
+[Tenbatsu](https://www.dropbox.com/s/oa2xlbncbg9epko/10%20-%20Tenbatsu.mp3?dl=0)
 
-[blue](https://dl.dropboxusercontent.com/u/65812877/11%20-%20blue.mp3)
+[blue](https://www.dropbox.com/s/3ukrumyyz47hj7v/11%20-%20blue.mp3?dl=0)
 
-[Feel Good Time](https://dl.dropboxusercontent.com/u/65812877/12%20-%20Feel%20Good%20Time.mp3)
+[Feel Good Time](https://www.dropbox.com/s/b4i36v5mr0dppdg/12%20-%20Feel%20Good%20Time.mp3?dl=0)
 
-[Ark](https://dl.dropboxusercontent.com/u/65812877/13%20-%20Ark.mp3)
+[Ark](https://www.dropbox.com/s/yip1fehva7usdyx/13%20-%20Ark.mp3?dl=0)
 
-[Tatoeba](https://dl.dropboxusercontent.com/u/65812877/14%20-%20Tatoeba.mp3)
+[Tatoeba](https://www.dropbox.com/s/yaxe6da6nxqs0bp/14%20-%20Tatoeba.mp3?dl=0)
 
-[Yurayura](https://dl.dropboxusercontent.com/u/65812877/15%20-%20Yurayura.mp3)
+[Yurayura](https://www.dropbox.com/s/fex6w8qzcdrk5b7/15%20-%20Yurayura.mp3?dl=0)
 
-[Yuudamari no Shiori](https://dl.dropboxusercontent.com/u/65812877/16%20-%20Yuudamari%20no%20Shiori.mp3)
+[Yuudamari no Shiori](https://www.dropbox.com/s/4i5uo4chjj2rpub/16%20-%20Yuudamari%20no%20Shiori.mp3?dl=0)
 
-[Zetsubousei Hero Chiryouyaku](https://dl.dropboxusercontent.com/u/65812877/01%20-%20Zetsubousei%20Hero%20Chiryouyaku.mp3)
+[Zetsubousei Hero Chiryouyaku](https://www.dropbox.com/s/re4ntbm94pb08dm/01%20-%20Zetsubousei%20Hero%20Chiryouyaku.mp3?dl=0)
 
-[Hai iro Shounen Rock](https://dl.dropboxusercontent.com/u/65812877/02%20-%20Hai%20iro%20Shounen%20Rock.mp3)
+[Hai iro Shounen Rock](https://www.dropbox.com/s/099b95rmt6mlhh5/02%20-%20Hai%20iro%20Shounen%20Rock.mp3?dl=0)
 
-[Zoku Hetakuso Utopia Seisaku](https://dl.dropboxusercontent.com/u/65812877/03%20-%20Zoku%20Hetakuso%20Utopia%20Seisaku.mp3)
+[Zoku Hetakuso Utopia Seisaku](https://www.dropbox.com/s/vqkqzte2sjpxvph/03%20-%20Zoku%20Hetakuso%20Utopia%20Seisaku.mp3?dl=0)
 
-[Kashokusei Idol Shoukougun -GigaP Remix-](https://dl.dropboxusercontent.com/u/65812877/04%20-%20Kashokusei%20Idol%20Shoukougun%20-GigaP%20Remix-.mp3)
+[Kashokusei Idol Shoukougun -GigaP Remix-](https://www.dropbox.com/s/w0dd9q8ztwlp15x/04%20-%20Kashokusei%20Idol%20Shoukougun%20-GigaP%20Remix-.mp3?dl=0)
 
 [Clean Freak](https://www.youtube.com/watch?v=HUDHmJsJvYc)
 
@@ -1154,18 +1154,17 @@ Hyperdimension Neptunia
 
 [Lost One's Weeping](https://www.youtube.com/watch?v=IoKhXdPJRQg)
 
-
 ### Amatsuki
 
-[Envy Catwalk ~Last Note Arrange.](https://dl.dropboxusercontent.com/u/65812877/04.%20Envy%20Cat%20Walk%20%7ELast%20Note.%20Arrange%20Ver.%7E.mp3)
+[Envy Catwalk ~Last Note Arrange.](https://www.dropbox.com/s/3gb8wytj8doib4k/04.%20Envy%20Cat%20Walk%20~Last%20Note.%20Arrange%20Ver.~.mp3?dl=0)
 
-[Sweet Sugar Stick](https://dl.dropboxusercontent.com/u/65812877/06.%20Sweet%20Sugar%20Stick.mp3)
+[Sweet Sugar Stick](https://www.dropbox.com/s/xraar5huybw56cr/06.%20Sweet%20Sugar%20Stick.mp3?dl=0)
 
-[Netgame Haijin Sprechchor](https://dl.dropboxusercontent.com/u/65812877/10.%20Netgame%20Haijin%20Sprechchor.mp3)
+[Netgame Haijin Sprechchor](https://www.dropbox.com/s/p0hckojuz5euby7/10.%20Netgame%20Haijin%20Sprechchor.mp3?dl=0)
 
-[Eh? Ah Sou](https://dl.dropboxusercontent.com/u/65812877/11.%20Eh%20Ah%20Sou.mp3)
+[Eh? Ah Sou](https://www.dropbox.com/s/0lmr4rdb8s017ru/11.%20Eh%20Ah%20Sou.mp3?dl=0)
 
-[Calc.](https://dl.dropboxusercontent.com/u/65812877/12.%20Calc..mp3)
+[Calc.](https://www.dropbox.com/s/ozj5zewfcfh5ai2/12.%20Calc..mp3?dl=0)
 
 [Higurashi Moratorium](https://www.youtube.com/watch?v=KUv-spHFr50)
 
@@ -1189,11 +1188,11 @@ Hyperdimension Neptunia
 
 [Ai no Scenario](https://www.youtube.com/watch?v=anYV8DbA1Dw)
 
-[Kisaragi Attention](https://dl.dropboxusercontent.com/u/65812877/Kisaragi%20Attention%20-yuikonnu.mp3)
+[Kisaragi Attention](https://www.dropbox.com/s/kwxlgp59bgrk6jo/Kisaragi%20Attention%20-yuikonnu.mp3?dl=0)
 
-[Souzou Forest](https://dl.dropboxusercontent.com/u/65812877/Souzou%20Forest%20-%20yuikonnu.mp3)
+[Souzou Forest](https://www.dropbox.com/s/b0qpkw9zl1eu5p3/Souzou%20Forest%20-%20yuikonnu.mp3?dl=0)
 
-[Otsukimi Recital](https://dl.dropboxusercontent.com/u/65812877/Otsukimi%20Recital%20-%20Yuikonnu.mp3)
+[Otsukimi Recital](https://www.dropbox.com/s/4ahhmlazfswnxsk/Otsukimi%20Recital%20-%20Yuikonnu.mp3?dl=0)
 
 [Caramel Heaven](https://www.youtube.com/watch?v=WIqrKvfEJos)
 
@@ -1233,15 +1232,15 @@ Hyperdimension Neptunia
 
 ### JubyPhonic
 
-[Odds & Ends](https://dl.dropboxusercontent.com/u/65812877/Odds%20and%20Ends%20-%20JubyPhonic.mp3)
+[Odds & Ends](https://www.dropbox.com/s/rd6tirnbygsw990/Odds%20and%20Ends%20-%20JubyPhonic.mp3?dl=0)
 
-[Tell Your World](https://dl.dropboxusercontent.com/u/65812877/Tell%20Your%20World%20-%20Juby.mp3)
+[Tell Your World](https://www.dropbox.com/s/clnvxhivasnypab/Tell%20Your%20World%20-%20Juby.mp3?dl=0)
 
 [Setsuna Drive](https://www.youtube.com/watch?v=llFUzxVO_kA)
 
 [Inokori Sensei](https://www.youtube.com/watch?v=Vjq2w8WckZA)
 
-[Terror(ism)](https://www.youtube.com/watch?v=aeI71kzesUc)
+[Terror(ism]](https://www.youtube.com/watch?v=aeI71kzesUc)
 
 [A Realistic Logical Ideologist](https://www.youtube.com/watch?v=A-eMXWAzUlg)
 
@@ -1313,7 +1312,7 @@ Hyperdimension Neptunia
 
 [Tell Your World](https://www.youtube.com/watch?v=fmrA-gxJxgQ)
 
-[LIVEDRIVE](https://dl.dropboxusercontent.com/u/65812877/02.%20LIVEDRIVE.mp3)
+[LIVEDRIVE](https://www.dropbox.com/s/a9j8k58aujlsdsd/02.%20LIVEDRIVE.mp3?dl=0)
 
 [This is the Happiness and Peace of Mind Committee](https://www.youtube.com/watch?v=k6OuXkG39cA)
 
@@ -1331,7 +1330,7 @@ Hyperdimension Neptunia
 
 [EVER BLUE](https://www.youtube.com/watch?v=LpcuQjrIOH4)
 
-[Dried Up Youthful Fame](https://www.youtube.com/watch?v=DwzAXVpgpGU)
+[Dried Up Youthful Fame](https://www.youtube.com/watch?v=DwzAXVpgpGU]
 
 [FUTURE FISH](https://www.youtube.com/watch?v=BgCruH8nefQ)
 
@@ -1349,41 +1348,41 @@ Hyperdimension Neptunia
 
 [ALL OFF](https://www.youtube.com/watch?v=lZLEXj52lcc)
 
-[Afterglow](https://dl.dropboxusercontent.com/u/65812877/Maon%20Kurosaki%20-%20After%20Glow.mp3)
+[Afterglow](https://www.dropbox.com/s/goz5q58htcs19nn/Maon%20Kurosaki%20-%20After%20Glow.mp3?dl=0)
 
-[daze](https://www.youtube.com/watch?v=loLWOCl7nlk)
+[daze](https://www.youtube.com/watch?v=9d2iLvb3mwQ)
 
 [Lost Time Memory](https://www.youtube.com/watch?v=Xupu5BcWDLo)
 
-[IN MY WORLD](https://dl.dropboxusercontent.com/u/65812877/IN%20MY%20WORLD.mp3)
+[IN MY WORLD](https://www.dropbox.com/s/uje9ir4eusqgjj7/IN%20MY%20WORLD.mp3?dl=0)
 
-[Owaranai Melody wo Uta Idashi Mashita](https://dl.dropboxusercontent.com/u/65812877/01%20-%20Owaranai%20Melody%20wo%20Uta%20Idashi%20Mashita..mp3)
+[Owaranai Melody wo Uta Idashi Mashita](https://www.dropbox.com/s/0hhjvwohsou10ez/01%20-%20Owaranai%20Melody%20wo%20Uta%20Idashi%20Mashita..mp3?dl=0)
 
-[Yobanashi Deceive](https://www.youtube.com/watch?v=yNVSO8bHBEE)
+[Yobanashi Deceive](https://www.youtube.com/watch?v=bdyZ7PtjNMs)
 
 [Gunjou Rain](https://www.youtube.com/watch?v=Ncf5yZY5JDE)
 
-Dead Link~~[days](https://www.youtube.com/watch?v=INo6e9m6chA)~~
+[days](https://www.youtube.com/watch?v=2sPDPr3S7Zg)
 
 ## Love Live OST
 
-[Hajimari no Asa](https://dl.dropboxusercontent.com/u/65812877/01%20-%20Hajimari%20no%20Asa%20%28Main%20Theme%29.mp3)
+[Hajimari no Asa](https://www.dropbox.com/s/q8swth3j9gg5xgm/01%20-%20Hajimari%20no%20Asa%20%28Main%20Theme%29.mp3?dl=0)
 
-[Nico no Kako](https://dl.dropboxusercontent.com/u/65812877/05%20-%20Nico%20no%20Kako.mp3)
+[Nico no Kako](https://www.dropbox.com/s/cc7lhsa1122j94l/05%20-%20Nico%20no%20Kako.mp3?dl=0)
 
-[Asaren](https://dl.dropboxusercontent.com/u/65812877/08%20-%20Asaren.mp3)
+[Asaren](https://www.dropbox.com/s/c8v84jn8j55b3g4/08%20-%20Asaren.mp3?dl=0)
 
-[Gyakkou kara no Start](https://dl.dropboxusercontent.com/u/65812877/23%20-%20Gyakkyou%20kara%20no%20Start.mp3)
+[Gyakkou kara no Start](https://www.dropbox.com/s/gtsnb1g1t518m8t/23%20-%20Gyakkyou%20kara%20no%20Start.mp3?dl=0)
 
-[Yuujou](https://dl.dropboxusercontent.com/u/65812877/26%20-%20Yuujou.mp3)
+[Yuujou](https://www.dropbox.com/s/k4h5b0e79i1q4uz/26%20-%20Yuujou.mp3?dl=0)
 
-[Hanayo no Ketsui](https://dl.dropboxusercontent.com/u/65812877/32%20-%20Hanayo%20no%20Ketsui.mp3)
+[Hanayo no Ketsui](https://www.dropbox.com/s/iq0110kl4sn3zpn/32%20-%20Hanayo%20no%20Ketsui.mp3?dl=0)
 
-[Nozomi no Mune no Uchi](https://dl.dropboxusercontent.com/u/65812877/04.%20%E5%B8%8C%E3%81%AE%E8%83%B8%E3%81%AE%E5%86%85.mp3)
+[Nozomi no Mune no Uchi](https://www.dropbox.com/s/k359ysls0xf0r3r/04.%20%E5%B8%8C%E3%81%AE%E8%83%B8%E3%81%AE%E5%86%85.mp3?dl=0)
 
 ## Games?
 
-[Faith is My Pillar](https://www.youtube.com/watch?v=8N8MLdJYfJ8)
+[Faith is My Pillar](ttps://www.youtube.com/watch?v=8N8MLdJYfJ8)
 
 [Cerulean Woodlands](https://www.youtube.com/watch?v=d2sf1WBklPo)
 
@@ -1391,7 +1390,7 @@ Dead Link~~[days](https://www.youtube.com/watch?v=INo6e9m6chA)~~
 
 [Hoist the Sword and Pride in the Heart](https://www.youtube.com/watch?v=SIDTxtyUDfY)
 
-[Unbreakable Tie](https://www.youtube.com/watch?v=eAarVmqJwNw)
+[Unbreakable tie](https://www.youtube.com/watch?v=eAarVmqJwNw)
 
 # 1 6 8
 
