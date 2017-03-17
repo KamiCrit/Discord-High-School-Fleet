@@ -1330,7 +1330,7 @@ Hyperdimension Neptunia
 
 [EVER BLUE](https://www.youtube.com/watch?v=LpcuQjrIOH4)
 
-[Dried Up Youthful Fame](https://www.youtube.com/watch?v=DwzAXVpgpGU]
+[Dried Up Youthful Fame](https://www.youtube.com/watch?v=DwzAXVpgpGU)
 
 [FUTURE FISH](https://www.youtube.com/watch?v=BgCruH8nefQ)
 
