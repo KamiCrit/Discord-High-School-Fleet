@@ -396,7 +396,7 @@ Ore no Imouto ga Konnani Kawaii Wake ga Nai
 
 Oshiete! Galko-chan
 
-[YPMA☆GIRLS](https://www.dropbox.com/home/Anime?preview=Oshiete!+Galko-chan+-+YPMA%E2%98%86GIRLS.mp3)
+[YPMA☆GIRLS](https://www.dropbox.com/s/epr7cen99i9477l/Oshiete%21%20Galko-chan%20-%20YPMA%E2%98%86GIRLS.mp3?dl=0)
 
 Planetarian: Chiisana Hoshi no Yume
 
