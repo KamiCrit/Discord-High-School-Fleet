@@ -1240,7 +1240,7 @@ Hyperdimension Neptunia
 
 [Inokori Sensei](https://www.youtube.com/watch?v=Vjq2w8WckZA)
 
-[Terror(ism]](https://www.youtube.com/watch?v=aeI71kzesUc)
+[Terror(ism)](https://www.youtube.com/watch?v=aeI71kzesUc)
 
 [A Realistic Logical Ideologist](https://www.youtube.com/watch?v=A-eMXWAzUlg)
 
