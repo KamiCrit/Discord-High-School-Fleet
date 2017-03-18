@@ -1530,9 +1530,9 @@ Tonari no Kaibutsu-kun
 
 [Q&A Recital!](https://www.dropbox.com/s/etd3lf3hx3kgpr7/01%20-%20Q%26A%20Recital%21.mp3?raw=1)
 
-#Yukinori
+# Yukinori
 
-##Anime
+## Anime
 
 Nejimaki
 
