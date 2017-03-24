@@ -752,6 +752,14 @@ Blue Avenue
 
 ## Idolmaster
 
+765PRO ALLSTARS
+
+[READY!!](https://www.dropbox.com/s/jtn5mh2ckrgo6gj/READY%21%21%20%28M%40STER%20VERSION%29.mp3?raw=1)
+
+[The World is all One!!](https://www.dropbox.com/s/issua1hkgthcghn/The%20world%20is%20all%20one%21%21%20%28M%40STER%20VERSION%29.mp3?raw=1)
+
+Cinderella Girls
+
 [Star!!](https://www.dropbox.com/s/9jl1mb3fclajzw4/Star%21%21.mp3?raw=1)
 
 [Happyx2 Days](https://www.dropbox.com/s/njznlz6lxqi0g8q/Happy%C3%972%20Days.mp3?raw=1)
@@ -760,8 +768,6 @@ Blue Avenue
 
 [Tulip](https://www.dropbox.com/s/zd3ngn7huxjkl16/Tulip.mp3?raw=1)
 
-[READY!!](https://www.dropbox.com/s/jtn5mh2ckrgo6gj/READY%21%21%20%28M%40STER%20VERSION%29.mp3?raw=1)
-
 [HANAKANZASHI](https://www.dropbox.com/s/p3i8od0w78d2g1n/HANAKANZASHI.mp3?raw=1)
 
 [Trancing Pulse](https://www.dropbox.com/s/r18wn1tfdw38904/Trancing%20Pulse.mp3?raw=1)
@@ -769,6 +775,24 @@ Blue Avenue
 [Kono Sora no Shita](https://www.dropbox.com/s/ot1uwrjbyqubz3l/Kono%20Sora%20no%20Shita.mp3?raw=1)
 
 [Shine!!](https://www.dropbox.com/s/2dowkjqv4vd1ir9/Shine%21%21.mp3?raw=1)
+
+[Angel Dream](https://www.dropbox.com/s/427y2jgrbytqu4w/Angel%20Dream.mp3?raw=1)
+
+[Lilac Time](https://www.dropbox.com/s/8pp4pxq1h3yvxuk/Lilac%20Time.mp3?raw=1)
+
+[Treasure☆](https://www.dropbox.com/s/lo511ckqnohenom/Treasure%E2%98%86%20%28M%40STER%20VERSION%29.mp3?raw=1)
+
+[Love Letter](https://www.dropbox.com/s/lc8rs63qnvafiff/Love%20Letter%20%28M%40STER%20VERSION%29.mp3?raw=1)
+
+[Usubeni](https://www.dropbox.com/s/r5u7g7xhtawqn1n/Usubeni.mp3?raw=1)
+
+SideM
+
+[GOLD ～No．79～](https://www.dropbox.com/s/pkxp2dv8hr2vhwg/GOLD%20%EF%BD%9ENo%EF%BC%8E79%EF%BD%9E.mp3?raw=1)
+
+[Waga Konton no Sabbath Marriage](https://www.dropbox.com/s/cx4bjircsh368mv/Waga%20Konton%20no%20Sabbath%20Marriage.mp3?raw=1)
+
+[Cafe Parade!](https://www.dropbox.com/s/pj31rch50q9qfvt/Cafe%20Parade%21.mp3?raw=1)
 
 ## High School Fleet / Haifuri
 
