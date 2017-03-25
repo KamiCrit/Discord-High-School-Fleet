@@ -754,9 +754,13 @@ Blue Avenue
 
 765PRO ALLSTARS
 
-[READY!!](https://www.dropbox.com/s/jtn5mh2ckrgo6gj/READY%21%21%20%28M%40STER%20VERSION%29.mp3?raw=1)
+[Destiny -Taiyou no Hana-](https://www.dropbox.com/s/h9eeg1yxirzjws7/Destiny%20-Taiyou%20no%20Hana-.mp3?raw=1)
 
-[The World is all One!!](https://www.dropbox.com/s/issua1hkgthcghn/The%20world%20is%20all%20one%21%21%20%28M%40STER%20VERSION%29.mp3?raw=1)
+[Fate of the World](https://www.dropbox.com/s/yyc58ce3jv3pxx8/Fate%20of%20the%20World.mp3?raw=1)
+
+[It's Show](https://www.dropbox.com/s/h56af75sp3i4zkx/It%27s%20Show.mp3?raw=1)
+
+[Kazaguruma](https://www.dropbox.com/s/lke6g8jbu23oii8/Kazaguruma.mp3?raw=1)
 
 Cinderella Girls
 
