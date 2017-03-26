@@ -20,6 +20,8 @@ Crtl+F and right click URL's for quick !play-ing of songs:
 
 [Meow sound](https://www.dropbox.com/s/71ingtnwrqzk6nz/3-Gatsu%20No%20Lion%20-%2001.%20Meow%20sound.mp3?raw=1)
 
+[JIKAIYOKOKU](https://www.dropbox.com/s/6ksstsrledafr92/3-gatsu%20no%20Lion%20-%20JIKAIYOKOKU.mp3?dl=0)
+
 Aiu rabu
 
 [Kani Do-Luck!](https://www.dropbox.com/s/cwugoobbi95qvqk/Aiura%20-%20Aiu%20rabu%20-%20Kani%20Do-Luck%21.mp3?raw=1)
@@ -447,6 +449,10 @@ Shakunetsu no Takkyuu Musume
 [Bestie Storm](https://www.dropbox.com/s/pj082ochnof7n7a/Shakunetsu%20no%20Takkyuu%20Musume%20-%2001.%20Bestie%20Storm.mp3?raw=1)
 
 [Ping-Pong Pan Pen Response](https://www.dropbox.com/s/vdebekspffza556/Shakunetsu%20no%20Takkyuu%20Musume%20-%20Ping-Pong%20Pan%20Pen%20Response.mp3?dl=0)
+
+[Smile@wind](https://www.dropbox.com/s/o514nrnogj8ruwu/Shakunetsu%20no%20Takkyu%20Musume%20-%20Smile%40wind.mp3?dl=0)
+
+[Love All!](https://www.dropbox.com/s/8un8f7fu9skyrj8/Shakunetsu%20no%20Takkyu%20Musume%20-%20Love%20All%21.mp3?dl=0)
 
 Shirobako
 
