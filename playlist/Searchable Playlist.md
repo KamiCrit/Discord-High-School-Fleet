@@ -430,6 +430,10 @@ SD Gundam Force
 
 [The Name Is Captain](https://www.dropbox.com/s/u2r3qkksgvfbpvw/SD%20Gundam%20Force%20-%20The%20Name%20Is%20Captain.mp3?raw=1)
 
+Sekko Boys
+
+[Hoshizora Rendezvous](https://www.dropbox.com/s/f6pqnug7vl60kgz/Sekko%20Boys%20-%20Hoshizora%20Rendezvous.mp3?dl=0)
+
 Shakunetsu no Takkyuu Musume
 
 [Shakunetsu Switch](https://www.dropbox.com/s/75twqehfdf7ocm9/Shakunetsu%20no%20Takkyuu%20Musume%20-%20Shakunetsu%20Switch.mp3?raw=1)
