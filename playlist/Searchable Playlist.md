@@ -20,6 +20,8 @@ Crtl+F and right click URL's for quick !play-ing of songs:
 
 [Meow sound](https://www.dropbox.com/s/71ingtnwrqzk6nz/3-Gatsu%20No%20Lion%20-%2001.%20Meow%20sound.mp3?raw=1)
 
+[JIKAIYOKOKU](https://www.dropbox.com/s/6ksstsrledafr92/3-gatsu%20no%20Lion%20-%20JIKAIYOKOKU.mp3?dl=0)
+
 Aiu rabu
 
 [Kani Do-Luck!](https://www.dropbox.com/s/cwugoobbi95qvqk/Aiura%20-%20Aiu%20rabu%20-%20Kani%20Do-Luck%21.mp3?raw=1)
@@ -196,9 +198,9 @@ High School Fleet / Haifuri
 
 [High Free Spirits](https://www.dropbox.com/s/a2kg3l67xf88ddi/High%20School%20Fleet%20-%2001%20-%20High%20Free%20Spirits.mp3?raw=1)
 
-[Bokura no Symphony](https://www.dropbox.com/s/blxe374qbq3horo/High%20School%20Fleet%20-%2002%20-%20Bokura%20no%20Symphony.mp3?raw=1)
-
 [Ripple Effect](https://www.dropbox.com/s/uhnyh9tj34yv0ij/High%20School%20Fleet%20-%2001%20-%20Ripple%20Effect.mp3?raw=1)
+
+[Bokura no Symphony](https://www.dropbox.com/s/blxe374qbq3horo/High%20School%20Fleet%20-%2002%20-%20Bokura%20no%20Symphony.mp3?raw=1)
 
 [Dynamic Dreamers](https://www.dropbox.com/s/18oyy8xxtjyqb3p/High%20School%20Fleet%20-%2002%20-%20Dynamic%20Dreamers.mp3?raw=1)
 
@@ -368,6 +370,14 @@ Nichijou
 
 [Yukko wa hotoni baka da naa](https://soundcloud.com/panda-moon-2/nichijou-yukko-wa-hontoni-baka-da-naa)
 
+[Helvetica Standard ~Sono 1~](https://www.dropbox.com/s/sn3a17eu9933bto/Nichijou%20-%2005%20-%20Helvetica%20Standard%20~Sono%201~.mp3?dl=0)
+
+[Helvetica Standard ~Sono 2~](https://www.dropbox.com/s/z7cwj8uo7wlicmm/Nichijou%20-%2006%20-%20Helvetica%20Standard%20~Sono%202~.mp3?dl=0)
+
+[Helvetica Standard ~Sono 3~](https://www.dropbox.com/s/yqe1p1h2dlp484c/Nichijou%20-%2004%20-%20Helvetica%20Standard%20~Sono%203~.mp3?dl=0)
+
+[Maa Maa no Kiseki](https://www.dropbox.com/s/ou0grd6n71b2ksj/Nichijou%20-%2003%20-%20Maa%20Maa%20no%20Kiseki.mp3?dl=0)
+
 Nisekoi
 
 [ClariS - CLICK](https://www.dropbox.com/s/q6zwbui2svlxj6b/Nisekoi%20-%2001.%20CLICK.mp3?raw=1)
@@ -428,6 +438,10 @@ SD Gundam Force
 
 [The Name Is Captain](https://www.dropbox.com/s/u2r3qkksgvfbpvw/SD%20Gundam%20Force%20-%20The%20Name%20Is%20Captain.mp3?raw=1)
 
+Sekko Boys
+
+[Hoshizora Rendezvous](https://www.dropbox.com/s/f6pqnug7vl60kgz/Sekko%20Boys%20-%20Hoshizora%20Rendezvous.mp3?dl=0)
+
 Shakunetsu no Takkyuu Musume
 
 [Shakunetsu Switch](https://www.dropbox.com/s/75twqehfdf7ocm9/Shakunetsu%20no%20Takkyuu%20Musume%20-%20Shakunetsu%20Switch.mp3?raw=1)
@@ -447,6 +461,10 @@ Shakunetsu no Takkyuu Musume
 [Bestie Storm](https://www.dropbox.com/s/pj082ochnof7n7a/Shakunetsu%20no%20Takkyuu%20Musume%20-%2001.%20Bestie%20Storm.mp3?raw=1)
 
 [Ping-Pong Pan Pen Response](https://www.dropbox.com/s/vdebekspffza556/Shakunetsu%20no%20Takkyuu%20Musume%20-%20Ping-Pong%20Pan%20Pen%20Response.mp3?dl=0)
+
+[Smile@wind](https://www.dropbox.com/s/o514nrnogj8ruwu/Shakunetsu%20no%20Takkyu%20Musume%20-%20Smile%40wind.mp3?dl=0)
+
+[Love All!](https://www.dropbox.com/s/8un8f7fu9skyrj8/Shakunetsu%20no%20Takkyu%20Musume%20-%20Love%20All%21.mp3?dl=0)
 
 Shirobako
 
@@ -634,6 +652,8 @@ Blue Avenue
 
 ## Love Live
 
+μ's
+
 [Bokura no LIVE Kimi to no LIFE](https://www.dropbox.com/s/69ajqnd3bbptckt/Bokura%20no%20LIVE%2C%20Kimi%20to%20no%20LIFE.mp3?raw=1)
 
 [Snow Halation](https://www.dropbox.com/s/b3755jxv90lml2v/Snow%20Halation.mp3?raw=1)
@@ -658,7 +678,7 @@ Blue Avenue
 
 [Susume Tomorrow](https://www.dropbox.com/s/mpbbdl7ztxrxgl5/Susume%E2%86%92Tomorrow.mp3?raw=1)
 
-[No brand girls](https://www.dropbox.com/s/s0n7ecsjni5jfp4/No%20Brand%20Girls.mp3?raw=1)
+[No Brand Girls](https://www.dropbox.com/s/s0n7ecsjni5jfp4/No%20Brand%20Girls.mp3?raw=1)
 
 [Music S.T.A.R.T!!](https://www.dropbox.com/s/ggeh6n6cylr9bbu/Music%20S.T.A.R.T%21%21.mp3?raw=1)
 
@@ -672,9 +692,9 @@ Blue Avenue
 
 [COLORFUL VOICE](https://www.dropbox.com/s/lww42kxq2dlz6j7/COLORFUL%20VOICE.mp3?raw=1)
 
-[Yume no tobira](https://www.dropbox.com/s/do96t8k71vrugoc/Yume%20no%20Tobira.mp3?raw=1)
+[Yume no Tobira](https://www.dropbox.com/s/do96t8k71vrugoc/Yume%20no%20Tobira.mp3?raw=1)
 
-[Love wing bell](https://www.dropbox.com/s/mtgq7e1pmtpevn6/Love%20Wing%20Bell.mp3?raw=1)
+[Love Wing Bell](https://www.dropbox.com/s/mtgq7e1pmtpevn6/Love%20Wing%20Bell.mp3?raw=1)
 
 [Dancing Stars on Me](https://www.dropbox.com/s/xwmm61a26jgvhsj/Dancing%20Stars%20on%20Me.mp3?raw=1)
 
@@ -684,43 +704,23 @@ Blue Avenue
 
 [Angelic Angel](https://www.dropbox.com/s/feo71x091839s3i/Angelic%20Angel.mp3?raw=1)
 
-[SUNNY DAY SONG](https://www.dropbox.com/s/l3se7w4ahh95fnf/Sunny%20Day%20Song.mp3?raw=1)
+[Sunny Day Song](https://www.dropbox.com/s/l3se7w4ahh95fnf/Sunny%20Day%20Song.mp3?raw=1)
 
 [Bokutachi wa Hitotsu no Hikari](https://www.dropbox.com/s/w56fvqwadvoee1l/Bokutachi%20wa%20Hitotsu%20no%20Hikari.mp3?raw=1)
 
 [Cutie Panther](https://www.dropbox.com/s/k3w4387wd0iv6eu/Cutie%20Panther.mp3?raw=1)
 
-[Daring!!](https://www.dropbox.com/s/9fmzlq3yzgx1l10/Daring%21%21.mp3?raw=1)
-
-[Listen To My Heart!!](https://www.dropbox.com/s/4jlhan97uvk45qk/Listen%20to%20my%20Heart.mp3?raw=1)
-
 [Love Marginal](https://www.dropbox.com/s/vlfauatl2y3agew/Love%20Marginal.mp3?raw=1)
-
-[Kimeta yo Hand in Hand](https://www.dropbox.com/s/2gmrnjnl1rymnwf/Kimeta%20yo%20Hand%20in%20Hand.mp3?raw=1)
-
-[Daisuki Dattara Daijoubu!](https://www.dropbox.com/s/pf9tk62kztqkk1s/Daisuki%20dattara%20Daijoubu%21.mp3?raw=1)
-
-[Yume Kataru yori Yume Utaou](https://www.dropbox.com/s/l1k6jbk3hrvypnm/Yume%20Kataru%20yori%20Yume%20Utaou.mp3?raw=1)
-
-[Aozora Jumping Heart](https://www.dropbox.com/s/hn66oozf5fyd42l/Aozora%20Jumping%20Heart.mp3?raw=1)
-
-[Mijuku DREAMER](https://www.dropbox.com/s/5r4qmoafgdnqz8x/Mijuku%20DREAMER.mp3?raw=1)
 
 [PSYCHIC FIRE](https://www.dropbox.com/s/betpdydiohh1dmr/Psychic%20Fire.mp3?raw=1)
 
-[A-NO-NE-GA-N-BA-RE!](https://www.dropbox.com/s/k4qmfacjhxjl8ph/Anone%20Ganbare.mp3?raw=1)
-
-[Mermaid festa vol.2 (Passionate)](https://www.dropbox.com/s/mec9ur0z3z3jygh/Mermaid%20Festa%20Vol.2%20Passionate.mp3?raw=1)
-
-[after school NAVIGATORS](https://www.dropbox.com/s/pmrvxi3iup76wdu/After%20School%20Navigators.mp3?raw=1)
+[After School NAVIGATORS](https://www.dropbox.com/s/pmrvxi3iup76wdu/After%20School%20Navigators.mp3?raw=1)
 
 [Nico puri Joshi dou](https://www.dropbox.com/s/uifdbm8k1ajf2qz/Nico%20puri%20Joshi%20dou.mp3?raw=1) <-- Lac favourite song 
 
 [LONELIEST BABY](https://www.dropbox.com/s/9vvg69lmem3zhky/Loneliest%20Baby.mp3?raw=1)
 
 [Trouble Busters](https://www.dropbox.com/s/spyqlq0b2ncid2j/Trouble%20Busters.mp3?raw=1)
-
-[Genki Zenkai DAY! DAY! DAY!](https://www.dropbox.com/s/lbewn7g7zltgfgn/Genki%20Zenkai%20DAY%21%20DAY%21%20DAY%21.mp3?raw=1)
 
 [Korekara no Someday](https://www.dropbox.com/s/bzu5z2idm78jsr4/Korekara%20no%20Someday.mp3?raw=1)
 
@@ -730,19 +730,33 @@ Blue Avenue
 
 [Endless Parade](https://www.dropbox.com/s/lx7iu5yblyepa2h/Endless%20Parade.mp3?raw=1)
 
+[MOMENT RING](https://www.dropbox.com/s/p85sw3aof2zi1ik/MOMENT%20RING.mp3?raw=1)
+
+[Sayonara e Sayonara](https://www.dropbox.com/s/3y3vztm86gngd5h/Sayonara%20e%20Sayonara.mp3?raw=1)
+
+Aqours
+
 [Kimi no Kokoro wa Kagayaiteru kai](https://www.dropbox.com/s/j14t7qmfdf27csn/Kimi%20no%20Kokoro%20wa%20Kagayaiteru%20kai.mp3?raw=1)
 
-[tep! ZERO to ONE](https://www.dropbox.com/s/m0tx8lt9o9xh4js/Step%21%20ZERO%20to%20ONE.mp3?raw=1)
+[Step! ZERO to ONE](https://www.dropbox.com/s/m0tx8lt9o9xh4js/Step%21%20ZERO%20to%20ONE.mp3?raw=1)
 
 [Koi ni Naritai AQUARIUM](https://www.dropbox.com/s/1ryg74wga09kwum/Koi%20ni%20Naritai%20AQUARIUM.mp3?raw=1)
+
+[Kimeta yo Hand in Hand](https://www.dropbox.com/s/2gmrnjnl1rymnwf/Kimeta%20yo%20Hand%20in%20Hand.mp3?raw=1)
+
+[Daisuki Dattara Daijoubu!](https://www.dropbox.com/s/pf9tk62kztqkk1s/Daisuki%20dattara%20Daijoubu%21.mp3?raw=1)
+
+[Aozora Jumping Heart](https://www.dropbox.com/s/hn66oozf5fyd42l/Aozora%20Jumping%20Heart.mp3?raw=1)
+
+[Yume Kataru yori Yume Utaou](https://www.dropbox.com/s/l1k6jbk3hrvypnm/Yume%20Kataru%20yori%20Yume%20Utaou.mp3?raw=1)
+
+[Mijuku DREAMER](https://www.dropbox.com/s/5r4qmoafgdnqz8x/Mijuku%20DREAMER.mp3?raw=1)
+
+[Genki Zenkai DAY! DAY! DAY!](https://www.dropbox.com/s/lbewn7g7zltgfgn/Genki%20Zenkai%20DAY%21%20DAY%21%20DAY%21.mp3?raw=1)
 
 [Omoi yo Hitotsu ni Nare](https://www.dropbox.com/s/s4aoid514qusxka/Omoi%20yo%20Hitotsu%20ni%20Nare.mp3?raw=1)
 
 [MIRAI TICKET](https://www.dropbox.com/s/ccf71ca86w7eg5q/MIRAI%20TICKET.mp3?raw=1)
-
-[MOMENT RING](https://www.dropbox.com/s/p85sw3aof2zi1ik/MOMENT%20RING.mp3?raw=1)
-
-[Sayonara e Sayonara](https://www.dropbox.com/s/3y3vztm86gngd5h/Sayonara%20e%20Sayonara.mp3?raw=1)
 
 [SELF CONTROL!!](https://www.dropbox.com/s/djgh7f2o2bkp10d/SELF%20CONTROL%21%21.mp3?raw=1)
 
@@ -750,7 +764,21 @@ Blue Avenue
 
 [Thrilling One Way](https://www.dropbox.com/s/rpe9ds4c4xoh3v7/Thrilling%20One%20Way.mp3?raw=1)
 
+[Taiyou o Oikakero!](https://www.dropbox.com/s/yi8sqhoe9kui8ot/Taiyou%20o%20Oikakero%21.mp3?raw=1)
+
 ## Idolmaster
+
+765PRO ALLSTARS
+
+[Destiny -Taiyou no Hana-](https://www.dropbox.com/s/h9eeg1yxirzjws7/Destiny%20-Taiyou%20no%20Hana-.mp3?raw=1)
+
+[Fate of the World](https://www.dropbox.com/s/yyc58ce3jv3pxx8/Fate%20of%20the%20World.mp3?raw=1)
+
+[It's Show](https://www.dropbox.com/s/h56af75sp3i4zkx/It%27s%20Show.mp3?raw=1)
+
+[Kazaguruma](https://www.dropbox.com/s/lke6g8jbu23oii8/Kazaguruma.mp3?raw=1)
+
+Cinderella Girls
 
 [Star!!](https://www.dropbox.com/s/9jl1mb3fclajzw4/Star%21%21.mp3?raw=1)
 
@@ -760,8 +788,6 @@ Blue Avenue
 
 [Tulip](https://www.dropbox.com/s/zd3ngn7huxjkl16/Tulip.mp3?raw=1)
 
-[READY!!](https://www.dropbox.com/s/jtn5mh2ckrgo6gj/READY%21%21%20%28M%40STER%20VERSION%29.mp3?raw=1)
-
 [HANAKANZASHI](https://www.dropbox.com/s/p3i8od0w78d2g1n/HANAKANZASHI.mp3?raw=1)
 
 [Trancing Pulse](https://www.dropbox.com/s/r18wn1tfdw38904/Trancing%20Pulse.mp3?raw=1)
@@ -769,6 +795,24 @@ Blue Avenue
 [Kono Sora no Shita](https://www.dropbox.com/s/ot1uwrjbyqubz3l/Kono%20Sora%20no%20Shita.mp3?raw=1)
 
 [Shine!!](https://www.dropbox.com/s/2dowkjqv4vd1ir9/Shine%21%21.mp3?raw=1)
+
+[Angel Dream](https://www.dropbox.com/s/427y2jgrbytqu4w/Angel%20Dream.mp3?raw=1)
+
+[Lilac Time](https://www.dropbox.com/s/8pp4pxq1h3yvxuk/Lilac%20Time.mp3?raw=1)
+
+[Treasure☆](https://www.dropbox.com/s/lo511ckqnohenom/Treasure%E2%98%86%20%28M%40STER%20VERSION%29.mp3?raw=1)
+
+[Love Letter](https://www.dropbox.com/s/lc8rs63qnvafiff/Love%20Letter%20%28M%40STER%20VERSION%29.mp3?raw=1)
+
+[Usubeni](https://www.dropbox.com/s/r5u7g7xhtawqn1n/Usubeni.mp3?raw=1)
+
+SideM
+
+[GOLD ～No．79～](https://www.dropbox.com/s/pkxp2dv8hr2vhwg/GOLD%20%EF%BD%9ENo%EF%BC%8E79%EF%BD%9E.mp3?raw=1)
+
+[Waga Konton no Sabbath Marriage](https://www.dropbox.com/s/cx4bjircsh368mv/Waga%20Konton%20no%20Sabbath%20Marriage.mp3?raw=1)
+
+[Cafe Parade!](https://www.dropbox.com/s/pj31rch50q9qfvt/Cafe%20Parade%21.mp3?raw=1)
 
 ## High School Fleet / Haifuri
 
