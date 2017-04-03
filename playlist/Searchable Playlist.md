@@ -370,6 +370,14 @@ Nichijou
 
 [Yukko wa hotoni baka da naa](https://soundcloud.com/panda-moon-2/nichijou-yukko-wa-hontoni-baka-da-naa)
 
+[Helvetica Standard ~Sono 1~](https://www.dropbox.com/s/sn3a17eu9933bto/Nichijou%20-%2005%20-%20Helvetica%20Standard%20~Sono%201~.mp3?dl=0)
+
+[Helvetica Standard ~Sono 2~](https://www.dropbox.com/s/z7cwj8uo7wlicmm/Nichijou%20-%2006%20-%20Helvetica%20Standard%20~Sono%202~.mp3?dl=0)
+
+[Helvetica Standard ~Sono 3~](https://www.dropbox.com/s/yqe1p1h2dlp484c/Nichijou%20-%2004%20-%20Helvetica%20Standard%20~Sono%203~.mp3?dl=0)
+
+[Maa Maa no Kiseki](https://www.dropbox.com/s/ou0grd6n71b2ksj/Nichijou%20-%2003%20-%20Maa%20Maa%20no%20Kiseki.mp3?dl=0)
+
 Nisekoi
 
 [ClariS - CLICK](https://www.dropbox.com/s/q6zwbui2svlxj6b/Nisekoi%20-%2001.%20CLICK.mp3?raw=1)
