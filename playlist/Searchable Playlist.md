@@ -778,6 +778,10 @@ Aqours
 
 [Kazaguruma](https://www.dropbox.com/s/lke6g8jbu23oii8/Kazaguruma.mp3?raw=1)
 
+[READY!!](https://www.dropbox.com/s/jtn5mh2ckrgo6gj/READY%21%21%20%28M%40STER%20VERSION%29.mp3?raw=1)
+
+[The World is All One](https://www.dropbox.com/s/issua1hkgthcghn/The%20world%20is%20all%20one%21%21%20%28M%40STER%20VERSION%29.mp3?raw=1)
+
 Cinderella Girls
 
 [Star!!](https://www.dropbox.com/s/9jl1mb3fclajzw4/Star%21%21.mp3?raw=1)
@@ -870,7 +874,7 @@ Tantei Opera Milky Holmes
 
 [Honnou no DOUBT](https://www.dropbox.com/s/kscfojxz06lvmoh/Honnou%20no%20DOUBT.mp3?raw=1)
 
-[Nazo! Nazo Happiness!!](https://www.dropbox.com/s/mfqoku3j4vz1kps/Nazo%21%20Nazo%20Happiness%21%21.mp3?raw=1)
+[Nazo! Nazo? Happiness!!](https://www.dropbox.com/s/mfqoku3j4vz1kps/Nazo%21%20Nazo%EF%BC%9F%20Happiness%21%21.mp3?raw=1)
 
 Flip Flappers
 
@@ -907,6 +911,8 @@ Steins;Gate
 Wake Up, Girls!
 
 [7 Girls War](https://www.dropbox.com/s/n65nc3lw9j7yyje/7%20Girls%20War.mp3?raw=1)
+
+[DATTE](https://www.dropbox.com/s/fuh5ul2vnn0ar5d/DATTE.mp3?raw=1)
 
 Masamune-kun no Revenge
 
@@ -971,6 +977,20 @@ ReZero kara Hajimeru Isekai Seikatsu
 Noucome
 
 [S.M.L](https://www.dropbox.com/s/10kmqspyrfd4aas/S.M.L.mp3?raw=1)
+
+Shigatsu wa Kimi no Uso 
+
+[Hikaru nara](https://www.dropbox.com/s/59699d81l5tef1s/Hikaru%20nara.mp3?raw=1)
+
+BanG Dream!
+
+[Tokimeki Experience](https://www.dropbox.com/s/th6721rmgm1ws9t/Tokimeki%20Experience.mp3?raw=1)
+
+[Hashiri Hajimeta Bakari no Kimi ni](https://www.dropbox.com/s/utvb40n3ovhb098/Hashiri%20Hajimeta%20Bakari%20no%20Kimi%20ni.mp3?raw=1)
+
+[Teardrops](https://www.dropbox.com/s/d3ox1mxltui9r2a/Teardrops.mp3?raw=1)
+
+[Poppin' Party](https://www.dropbox.com/s/5bqeo3pxwslf6gh/Poppin%27%20Party.mp3?raw=1)
 
 ## Other Songs
 
