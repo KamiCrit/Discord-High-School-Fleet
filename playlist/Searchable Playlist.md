@@ -442,6 +442,11 @@ Sekko Boys
 
 [Hoshizora Rendezvous](https://www.dropbox.com/s/f6pqnug7vl60kgz/Sekko%20Boys%20-%20Hoshizora%20Rendezvous.mp3?dl=0)
 
+[Hoshizora Rendezvous (Masuda Moveman Remix)](https://www.dropbox.com/s/bx9biygyu36g5pn/Sekko%20Boys%20-%20%E6%98%9F%E7%A9%BA%E3%83%A9%E3%83%B3%E3%83%87%E3%83%96%E3%83%BC%20%28%E6%BA%80%E5%AF%BF%E7%94%B0%E3%83%A0%E3%83%BC%E3%83%96%E3%83%9E%E3%83%B3%20Remix%29.mp3?dl=0)
+
+[Hoshizora Rendezvous (Covered by Bonjour Suzuki)](https://www.dropbox.com/s/kjevegvviqau1ke/Sekko%20Boys%20-%20%E6%98%9F%E7%A9%BA%E3%83%A9%E3%83%B3%E3%83%87%E3%83%96%E3%83%BC%20%28Covered%20by%20%E3%83%9C%E3%83%B3%E3%82%B8%E3%83%A5%E3%83%BC%E3%83%AB%E9%88%B4%E6%9C%A8%29.mp3?dl=0)
+
+
 Shakunetsu no Takkyuu Musume
 
 [Shakunetsu Switch](https://www.dropbox.com/s/75twqehfdf7ocm9/Shakunetsu%20no%20Takkyuu%20Musume%20-%20Shakunetsu%20Switch.mp3?raw=1)
@@ -465,6 +470,8 @@ Shakunetsu no Takkyuu Musume
 [Smile@wind](https://www.dropbox.com/s/o514nrnogj8ruwu/Shakunetsu%20no%20Takkyu%20Musume%20-%20Smile%40wind.mp3?dl=0)
 
 [Love All!](https://www.dropbox.com/s/8un8f7fu9skyrj8/Shakunetsu%20no%20Takkyu%20Musume%20-%20Love%20All%21.mp3?dl=0)
+
+[Fairfight乂fielding](https://www.dropbox.com/s/9yyhmuec3hvm5h8/Shakunetsu%20no%20Takkyu%20Musume%20-%20Fairfight%E4%B9%82fielding.mp3?dl=0)
 
 Shirobako
 
