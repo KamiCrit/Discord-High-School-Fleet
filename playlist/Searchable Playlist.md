@@ -1,4 +1,4 @@
-2017-04-15 2145
+2017-04-21 2230
 
 Crtl+F and right click URL's for quick !play-ing of songs:
 
@@ -16,11 +16,11 @@ Crtl+F and right click URL's for quick !play-ing of songs:
 
 [BUMP OF CHICKEN - Fighter](https://www.dropbox.com/s/y5mpd8p2yk28fuu/3-Gatsu%20No%20Lion%20-%20BUMP%20OF%20CHICKEN%20-%20Fighter.mp3?raw=1)
 
-[Sayonara Bystander](https://www.dropbox.com/s/8ksiuj4l1dagljs/3-gatsu%20no%20Lion%20-%20Sayonara%20Bystander.mp3?raw=1)
+[Sayonara Bystander](https://www.dropbox.com/s/8ksiuj4l1dagljs/3-Gatsu%20no%20Lion%20-%20Sayonara%20Bystander.mp3?dl=0)
 
 [Meow sound](https://www.dropbox.com/s/71ingtnwrqzk6nz/3-Gatsu%20No%20Lion%20-%2001.%20Meow%20sound.mp3?raw=1)
 
-[JIKAIYOKOKU](https://www.dropbox.com/s/6ksstsrledafr92/3-gatsu%20no%20Lion%20-%20JIKAIYOKOKU.mp3?dl=0)
+[JIKAIYOKOKU](https://www.dropbox.com/s/6ksstsrledafr92/3-Gatsu%20no%20Lion%20-%20JIKAIYOKOKU.mp3?dl=0)
 
 Aiu rabu
 
@@ -44,7 +44,7 @@ Angel Beats
 
 Ano Hi Mita Hana no Namae wo Bokutachi wa Mada Shiranai.
 
-[secret base ~Kimi ga Kureta Mono~ (10 years after ver.)](https://www.dropbox.com/s/cfzl0hjlmbmq7yv/AnoHana%20-%2001%20-%20Secret%20Base%20~Kimi%20ga%20Kureta%20mono~%20%2810%20years%20after%20Ver.%29.mp3?raw=1)
+[secret base -Kimi ga Kureta Mono- (10 years after ver.)](https://www.dropbox.com/s/cfzl0hjlmbmq7yv/AnoHana%20-%2001%20-%20Secret%20Base%20~Kimi%20ga%20Kureta%20mono~%20%2810%20years%20after%20Ver.%29.mp3?raw=1)
 
 Azumanga Daioh
 
@@ -412,6 +412,8 @@ Planetarian: Chiisana Hoshi no Yume
 
 [Twinkle Starlight](https://www.dropbox.com/s/cwh0db9vbxl5g5e/Planetarian%20Chiisana%20Hoshi%20no%20Yume%20-%2001.%20Twinkle%20Starlight.mp3?raw=1)
 
+[星の世界 -Introduction-](https://www.dropbox.com/s/tsag2e0pj4a7d7t/Planetarian%20Chiisana%20Hoshi%20no%20Yume%20-%20%E6%98%9F%E3%81%AE%E4%B8%96%E7%95%8C%20-Introduction-.mp3?dl=0)
+
 Pokemon Anime
 
 [Mezase Pokemon Master](https://www.dropbox.com/s/plsludanqgvgf2h/Pokemon%20-%2001%20%E3%82%81%E3%81%96%E3%81%9B%E3%83%9D%E3%82%B1%E3%83%A2%E3%83%B3%E3%83%9E%E3%82%B9%E3%82%BF%E3%83%BC%20-%20Mezase%20Pokemon%20Master.mp3?raw=1)
@@ -442,6 +444,11 @@ Sekko Boys
 
 [Hoshizora Rendezvous](https://www.dropbox.com/s/f6pqnug7vl60kgz/Sekko%20Boys%20-%20Hoshizora%20Rendezvous.mp3?dl=0)
 
+[Hoshizora Rendezvous (Masuda Moveman Remix)](https://www.dropbox.com/s/bx9biygyu36g5pn/Sekko%20Boys%20-%20%E6%98%9F%E7%A9%BA%E3%83%A9%E3%83%B3%E3%83%87%E3%83%96%E3%83%BC%20%28%E6%BA%80%E5%AF%BF%E7%94%B0%E3%83%A0%E3%83%BC%E3%83%96%E3%83%9E%E3%83%B3%20Remix%29.mp3?dl=0)
+
+[Hoshizora Rendezvous (Covered by Bonjour Suzuki)](https://www.dropbox.com/s/kjevegvviqau1ke/Sekko%20Boys%20-%20%E6%98%9F%E7%A9%BA%E3%83%A9%E3%83%B3%E3%83%87%E3%83%96%E3%83%BC%20%28Covered%20by%20%E3%83%9C%E3%83%B3%E3%82%B8%E3%83%A5%E3%83%BC%E3%83%AB%E9%88%B4%E6%9C%A8%29.mp3?dl=0)
+
+
 Shakunetsu no Takkyuu Musume
 
 [Shakunetsu Switch](https://www.dropbox.com/s/75twqehfdf7ocm9/Shakunetsu%20no%20Takkyuu%20Musume%20-%20Shakunetsu%20Switch.mp3?raw=1)
@@ -465,6 +472,8 @@ Shakunetsu no Takkyuu Musume
 [Smile@wind](https://www.dropbox.com/s/o514nrnogj8ruwu/Shakunetsu%20no%20Takkyu%20Musume%20-%20Smile%40wind.mp3?dl=0)
 
 [Love All!](https://www.dropbox.com/s/8un8f7fu9skyrj8/Shakunetsu%20no%20Takkyu%20Musume%20-%20Love%20All%21.mp3?dl=0)
+
+[Fairfight乂fielding](https://www.dropbox.com/s/9yyhmuec3hvm5h8/Shakunetsu%20no%20Takkyu%20Musume%20-%20Fairfight%E4%B9%82fielding.mp3?dl=0)
 
 Shirobako
 
@@ -647,6 +656,8 @@ Blue Avenue
 [SUPERGiRLS - Toshishita no Otoko no Ko](https://www.dropbox.com/s/58me9uasbi2cnsd/SUPERGiRLS%20-%20Toshishita%20no%20Otoko%20no%20Ko.mp3?raw=1)
 
 [AKB48 - 01. Koi Suru Fortune Cookie](https://www.dropbox.com/s/5qwv1ayt4qb3jld/AKB48%20-%2001.%20Koi%20Suru%20Fortune%20Cookie.mp3?raw=1)
+
+[AKG Tribute - Re:Re:](https://www.dropbox.com/s/onhz7rybgqlroqf/AKG%20Tribute%20-%20Re-Re-.mp3?dl=0)
 
 # Lilac
 
