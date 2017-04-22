@@ -412,6 +412,8 @@ Planetarian: Chiisana Hoshi no Yume
 
 [Twinkle Starlight](https://www.dropbox.com/s/cwh0db9vbxl5g5e/Planetarian%20Chiisana%20Hoshi%20no%20Yume%20-%2001.%20Twinkle%20Starlight.mp3?raw=1)
 
+[星の世界 -Introduction-](https://www.dropbox.com/s/tsag2e0pj4a7d7t/Planetarian%20Chiisana%20Hoshi%20no%20Yume%20-%20%E6%98%9F%E3%81%AE%E4%B8%96%E7%95%8C%20-Introduction-.mp3?dl=0)
+
 Pokemon Anime
 
 [Mezase Pokemon Master](https://www.dropbox.com/s/plsludanqgvgf2h/Pokemon%20-%2001%20%E3%82%81%E3%81%96%E3%81%9B%E3%83%9D%E3%82%B1%E3%83%A2%E3%83%B3%E3%83%9E%E3%82%B9%E3%82%BF%E3%83%BC%20-%20Mezase%20Pokemon%20Master.mp3?raw=1)
@@ -654,6 +656,8 @@ Blue Avenue
 [SUPERGiRLS - Toshishita no Otoko no Ko](https://www.dropbox.com/s/58me9uasbi2cnsd/SUPERGiRLS%20-%20Toshishita%20no%20Otoko%20no%20Ko.mp3?raw=1)
 
 [AKB48 - 01. Koi Suru Fortune Cookie](https://www.dropbox.com/s/5qwv1ayt4qb3jld/AKB48%20-%2001.%20Koi%20Suru%20Fortune%20Cookie.mp3?raw=1)
+
+[AKG Tribute - Re:Re:](https://www.dropbox.com/s/onhz7rybgqlroqf/AKG%20Tribute%20-%20Re-Re-.mp3?dl=0)
 
 # Lilac
 
