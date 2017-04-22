@@ -1605,6 +1605,120 @@ Tonari no Kaibutsu-kun
 
 [Q&A Recital!](https://www.dropbox.com/s/etd3lf3hx3kgpr7/01%20-%20Q%26A%20Recital%21.mp3?raw=1)
 
+Neon Genesis Evangelion
+
+[A Cruel Angel's Thesis - Yoko Takahashi](https://www.dropbox.com/s/tj022qcgogjnf7b/A%20Cruel%20Angels%20Thesis%20-%20Yoko%20Takahashi.mp3?dl=0)
+
+Another
+
+[Anamnesis - Annabel](https://www.dropbox.com/s/9eq7idyb10qdc27/Anamnesis%20-%20Annabel.mp3?dl=0)
+
+[Kyomu Densen - Jayn](https://www.dropbox.com/s/5x9at1n7qynqpdq/Kyomu%20Densen%20-%20Jayn.mp3?dl=0)
+
+Gundam SEED
+
+[Believe - Nami Tamaki](https://www.dropbox.com/s/qsx5nq1x1q7wjcb/Believe%20-%20Nami%20Tamaki.mp3?dl=0)
+
+Trinity Blood
+
+[Broken Wings - Tomoko Tane](https://www.dropbox.com/s/pysdouo6a58i64l/Broken%20Wings%20-%20Tomoko%20Tane.mp3?dl=0)
+
+Blues Exorcist
+
+[Core Pride - Uverworld](https://www.dropbox.com/s/fsp0vw95zqx70dd/Core%20Pride%20-%20Uverworld.mp3?dl=0)
+
+Log Horizon
+
+[Database - Man With A Mission](https://www.dropbox.com/s/zophzeuay9r817w/Database%20%28Feat.%20Takuma%29%20-%20Man%20With%20A%20Mission.mp3?dl=0)
+
+Danganronpa
+
+[Dead Or Lie (Feat. Trustrick) - Maon Kurosaki](https://www.dropbox.com/s/wqw5gds01uh9v5b/Dead%20Or%20Lie%20%28Feat.%20Trustrick%29%20-%20Maon%20Kurosaki.mp3?dl=0)
+
+[Kamiro Awase - Binaria](https://www.dropbox.com/s/njnvwluss5ivxxh/Kamiro%20Awase%20-%20Binaria.mp3?dl=0)
+
+[Never Say Never - TKDz2b](https://www.dropbox.com/s/w7750pezsl9vxrg/Never%20Say%20Never%20-%20TKDz2b.mp3?dl=0)
+
+[Recall The End - Trustrick](https://www.dropbox.com/s/293ojwikpiwiaup/Recall%20The%20End%20-%20Trustrick.mp3?dl=0)
+
+[Zetsubousei Hero Chiryouyaku - Soraru](https://www.dropbox.com/s/o7yzvop00o4f31m/Zetsubousei%20Hero%20Chiryouyaku%20-%20Soraru.mp3?dl=0)
+
+Masamune-Kun No Revenge
+
+[Elemental World - ChouCho](https://www.dropbox.com/s/zdaunk90q5dc5v0/Elemental%20World%20-%20ChouCho.mp3?dl=0)
+
+[Wagamama Mirror Heart - Ayaka Ohashi](https://www.dropbox.com/s/0qwdm7aizn2b0bc/Wagamama%20Mirror%20Heart%20-%20Ayaka%20Ohashi.mp3?dl=0)
+
+Konosuba
+
+[Fantastic Dreamer - Machico](https://www.dropbox.com/s/8g1guzahuvvjgqf/Fantastic%20Dreamer%20-%20Machico.mp3?dl=0)
+
+[Fantastic Dreamer (Monday Afternoon) - Machico](https://www.dropbox.com/s/ie2px7her74b7be/Fantastic%20Dreamer%20%28Monday%20Afternoon%29%20-%20Machico.mp3?dl=0)
+
+[Tomorrow - Machico](https://www.dropbox.com/s/s8mt9h1bg4e525r/Tomorrow%20-%20Machico.mp3?dl=0)
+
+Ace Attorney
+
+[Gyakuten Winner - Johnny's West](https://www.dropbox.com/s/g1r6v3c8ihgtjtm/Gyakuten%20Winner%20-%20Johnnys%20West.mp3?dl=0)
+
+[Jinsei Wa Subarashii - Johnny's West](https://www.dropbox.com/s/95a367q5w8asky5/Jinsei%20wa%20Subarashii%20-%20Johnnys%20West.mp3?dl=0)
+
+Jushin Liger
+
+[Ikari No Jushin Liger - Yumi Hiroki](https://www.dropbox.com/s/nain75l9u4fv5di/Ikari%20no%20Jushin%20Liger%20-%20Yumi%20Hiroki.mp3?dl=0)
+
+Vocaloid
+
+[Jishou Mushoku (Feat. Hatsune Miku) - Nekobolo](https://www.dropbox.com/s/46kqoh7q5uqdtql/Jishou%20Mushoku%20%28Feat.%20Hatsune%20Miku%29%20-%20Nekobolo.mp3?dl=0)
+
+[Self Inflicted A-Chromatic/Jishou Mushoku - JubyPhonic](https://www.dropbox.com/s/g1g2heetegmzmf9/Self%20Inflicted%20A-Chromatic%20-%20JubyPhonic.mp3?dl=0)
+
+[World Is Mine (Feat. Hatsune Miku) - Ryo](https://www.dropbox.com/s/mqmeznlus8icao8/World%20Is%20Mine%20%28Feat.%20Hatsune%20Miku%29%20-%20Ryo.mp3?dl=0)
+
+Tiger Mask W
+
+[King Of The Wild - Shounan No Kaze](https://www.dropbox.com/s/dhcx5bmim5j0szg/King%20Of%20The%20Wild%20-%20Shounan%20no%20Kaze.mp3?dl=0)
+
+Sayuri
+
+[Light & Darkness - Sayuri](https://www.dropbox.com/s/zqghskcidhj6wb1/Light%20%26%20Darkness%20-%20Sayuri.m4a?dl=0)
+
+[See You In The Afterlife - Sayuri}(https://www.dropbox.com/s/4zx6ixwfj57u1wo/See%20You%20In%20The%20Afterlife%20-%20Sayuri.m4a?dl=0)
+
+BabyMetal
+
+[Megitsune - BabyMetal](https://www.dropbox.com/s/jbv4qevsb7ll2og/Megitsune%20-%20Babymetal.m4a?dl=0)
+
+Btooom!
+
+[No Pain, No Game - Nano](https://www.dropbox.com/s/mup0kw0n8ewopn7/No%20Pain%2C%20No%20Game%20-%20Nano.mp3?dl=0)
+
+Toradora
+
+[Pre-Parade - Rie Kugimiya, Yui Horie, Eri Kitamura](https://www.dropbox.com/s/qzipypqcvevlgo3/Pre-Parade%20-%20Rie%20Kugimiya%2C%20Yui%20Horie%2C%20Eri%20Kitamura.mp3?dl=0)
+
+My Little Monster
+
+[Q&A Recital - Haruka Tomatsu](https://www.dropbox.com/s/etd3lf3hx3kgpr7/Q%26A%20Recital%20-%20Haruka%20Tomatsu.mp3?dl=0)
+
+Gurren Lagann
+
+[Sora Iro Days - Shoko Nakagawa](https://www.dropbox.com/s/y6ta1otmy1vadj6/Sora%20iro%20Days%20-%20Shoko%20Nakagawa.mp3?dl=0)
+
+NJPW
+
+[Stardust - Kazsin](https://www.dropbox.com/s/c6yigt1y0p2ctx9/Stardust%20-%20Kazsin.m4a?dl=0)
+
+[Takeover - LOW IQ 01](https://www.dropbox.com/s/vxir1f6epd5q5wd/Takeover%20-%20LOW%20IQ%2001.mp3?dl=0)
+
+Cowboy Bebop
+
+[Tank - The Seatbelts](https://www.dropbox.com/s/o5yc9qoqb54u7xw/Tank%20-%20The%20Seatbelts.mp3?dl=0)
+
+Seraph Of The End
+
+[X.U - SawanoHiroyuki](https://www.dropbox.com/s/49eq0ao0z6qb2na/X.U%20-%20SawanoHiroyuki.mp3?dl=0)
+
 # Yukinori
 
 ## Anime
