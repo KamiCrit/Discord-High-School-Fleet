@@ -777,6 +777,8 @@ Aqours
 
 [Taiyou o Oikakero!](https://www.dropbox.com/s/yi8sqhoe9kui8ot/Taiyou%20o%20Oikakero%21.mp3?dl=0)
 
+[HAPPY PARTY TRAIN](https://www.dropbox.com/s/ymp6o7rlpf9escq/HAPPY%20PARTY%20TRAIN.mp3?dl=0)
+
 ## Idolmaster
 
 765PRO ALLSTARS
