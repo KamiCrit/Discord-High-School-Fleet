@@ -591,21 +591,21 @@ Yojouhan Shinwa Taikei
 
 [Snowy March / Yuki no Shingun](https://www.dropbox.com/s/45fz5yjlwncqqvz/Yuki%20no%20Shingun%20%5BEnglish%20Translation%5D.mp3?dl=0)
 
-[Warship March / Gunkan koshinkyoku](https://www.dropbox.com/s/0xp11vjpa4cxdpj/%E3%80%8A%E8%BB%8D%E6%AD%8C%E3%80%8B%E8%BB%8D%E8%89%A6%E3%83%9E%E3%83%BC%E3%83%81%EF%BC%88_Gunkan%20m%C4%81chi%20_%EF%BD%9EMarch%20_Man-of-War_%EF%BD%9E%EF%BC%89%20with%20Eng_Sub.mp3?dl=0)
+[Warship March / Gunkan kōshinkyoku](https://www.dropbox.com/s/0xp11vjpa4cxdpj/%E3%80%8A%E8%BB%8D%E6%AD%8C%E3%80%8B%E8%BB%8D%E8%89%A6%E3%83%9E%E3%83%BC%E3%83%81%EF%BC%88_Gunkan%20m%C4%81chi%20_%EF%BD%9EMarch%20_Man-of-War_%EF%BD%9E%EF%BC%89%20with%20Eng_Sub.mp3?dl=0)
 
-[Hinomaru March / ??????](https://www.dropbox.com/s/9sx1ym91cs2gdby/Japanese%20Military%20March%20-%20%E6%97%A5%E3%81%AE%E4%B8%B8%E8%A1%8C%E9%80%B2%E6%9B%B2.mp3?dl=0)
+[Hinomaru March / 日の丸行進曲](https://www.dropbox.com/s/9sx1ym91cs2gdby/Japanese%20Military%20March%20-%20%E6%97%A5%E3%81%AE%E4%B8%B8%E8%A1%8C%E9%80%B2%E6%9B%B2.mp3?dl=0)
 
-[Through The Day, Throughout The Week / ???????](https://www.dropbox.com/s/zz8r8rh853lqiwa/%E8%BB%8D%E6%AD%8C%EF%BC%9A%E6%9C%88%E6%9C%88%E7%81%AB%E6%B0%B4%E6%9C%A8%E9%87%91%E9%87%91%20%28Navy%20Song_%20%27Through%20the%20day%2C%20throughout%20the%20week%27%29.mp3?dl=0)
+[Through The Day, Throughout The Week / 月月火水木金金](https://www.dropbox.com/s/zz8r8rh853lqiwa/%E8%BB%8D%E6%AD%8C%EF%BC%9A%E6%9C%88%E6%9C%88%E7%81%AB%E6%B0%B4%E6%9C%A8%E9%87%91%E9%87%91%20%28Navy%20Song_%20%27Through%20the%20day%2C%20throughout%20the%20week%27%29.mp3?dl=0)
 
-[Pacific Ocean March / ??????](https://www.dropbox.com/s/p0jvlnutf6n0wmu/%E3%80%8A%E8%BB%8D%E6%AD%8C%E3%80%8B%E5%A4%AA%E5%B9%B3%E6%B4%8B%E8%A1%8C%E9%80%B2%E6%9B%B2%EF%BC%88_Taiheiy%C5%8D%20K%C5%8Dshinkyoku_%20-%20Pacific%20Ocean%20March%EF%BC%89with%20Eng_Sub.mp3?dl=0)
+[Pacific Ocean March / 太平洋行進曲](https://www.dropbox.com/s/p0jvlnutf6n0wmu/%E3%80%8A%E8%BB%8D%E6%AD%8C%E3%80%8B%E5%A4%AA%E5%B9%B3%E6%B4%8B%E8%A1%8C%E9%80%B2%E6%9B%B2%EF%BC%88_Taiheiy%C5%8D%20K%C5%8Dshinkyoku_%20-%20Pacific%20Ocean%20March%EF%BC%89with%20Eng_Sub.mp3?dl=0)
 
-[Song of the Battleship Yamato / ??????](https://www.dropbox.com/s/37c7foyw4tm5s4n/%E6%88%A6%E8%89%A6%E5%A4%A7%E5%92%8C%E3%81%AE%E6%AD%8C_%E6%88%A6%E8%89%A6%E5%A4%A7%E5%92%8C%E8%89%A6%E6%AD%8C%20%E3%80%90%E6%B5%B7%E8%BB%8D%E8%BB%8D%E6%AD%8C%E3%80%91.mp3?dl=0)
+[Song of the Battleship Yamato / 戦艦大和の歌](https://www.dropbox.com/s/37c7foyw4tm5s4n/%E6%88%A6%E8%89%A6%E5%A4%A7%E5%92%8C%E3%81%AE%E6%AD%8C_%E6%88%A6%E8%89%A6%E5%A4%A7%E5%92%8C%E8%89%A6%E6%AD%8C%20%E3%80%90%E6%B5%B7%E8%BB%8D%E8%BB%8D%E6%AD%8C%E3%80%91.mp3?dl=0)
 
-[Distress of the sixth submarine / ????????](https://www.dropbox.com/s/vjdnhgmnb3befwi/%E7%AC%AC%E5%85%AD%E6%BD%9C%E6%B0%B4%E8%89%87%E3%81%AE%E9%81%AD%E9%9B%A3%E3%80%90%E6%B5%B7%E8%BB%8D%E8%BB%8D%E6%AD%8C%E3%80%91.mp3?dl=0)
+[Distress of the sixth submarine / 第六潜水艇の遭難](https://www.dropbox.com/s/vjdnhgmnb3befwi/%E7%AC%AC%E5%85%AD%E6%BD%9C%E6%B0%B4%E8%89%87%E3%81%AE%E9%81%AD%E9%9B%A3%E3%80%90%E6%B5%B7%E8%BB%8D%E8%BB%8D%E6%AD%8C%E3%80%91.mp3?dl=0)
 
-[Maruyu Corps no Uta / ???????](https://www.dropbox.com/s/0y07i4k20g58n5d/%E3%80%90%E8%BB%8D%E6%AD%8C%E3%80%91%E3%81%BE%E3%82%8B%E3%82%86%E9%83%A8%E9%9A%8A%E3%81%AE%E6%AD%8C%EF%BC%88%E8%88%B9%E8%88%B6%E8%BC%B8%E9%80%81%E6%BD%9C%E8%88%AA%E8%89%87%E9%9A%8A%E6%AD%8C%EF%BC%89.mp3?dl=0)
+[Maruyu Corps no Uta / まるゆ部隊の歌](https://www.dropbox.com/s/0y07i4k20g58n5d/%E3%80%90%E8%BB%8D%E6%AD%8C%E3%80%91%E3%81%BE%E3%82%8B%E3%82%86%E9%83%A8%E9%9A%8A%E3%81%AE%E6%AD%8C%EF%BC%88%E8%88%B9%E8%88%B6%E8%BC%B8%E9%80%81%E6%BD%9C%E8%88%AA%E8%89%87%E9%9A%8A%E6%AD%8C%EF%BC%89.mp3?dl=0)
 
-[Gochin / ??](https://www.dropbox.com/s/h2eobbxm7d36mn0/%E3%80%8A%E8%BB%8D%E6%AD%8C%E3%80%8B%E8%BD%9F%E6%B2%88%20%EF%BC%88G%C5%8Dchin%20%EF%BC%89with%20Eng_Sub.mp3?dl=0)
+[Gochin / 轟沈](https://www.dropbox.com/s/h2eobbxm7d36mn0/%E3%80%8A%E8%BB%8D%E6%AD%8C%E3%80%8B%E8%BD%9F%E6%B2%88%20%EF%BC%88G%C5%8Dchin%20%EF%BC%89with%20Eng_Sub.mp3?dl=0)
 
 ## 3D Singing
 
