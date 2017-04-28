@@ -10,4 +10,6 @@ We are also associated with the following discord servers :
 
 [Military Moe](https://discord.gg/G4CYJHd)
 
+[Youjo Senki](https://discord.gg/wnGWuDe)
+
 And [Girls Und Panzer](https://discord.gg/cMMapvf) in KamiCrit's heart.

@@ -1,4 +1,4 @@
-2017-04-21 2230
+2017-04-28 1500
 
 Crtl+F and right click URL's for quick !play-ing of songs:
 
@@ -275,6 +275,8 @@ Koe no Katachi
 Kono Bijutsubu ni wa Mondai ga Aru
 
 [STARTING NOW!](https://www.dropbox.com/s/75b06umub6q8bnl/Kono%20Bijutsubu%20ni%20wa%20Mondai%20ga%20Aru%20-%2001.%20STARTING%20NOW%21.mp3?dl=0)
+
+[Koisuru Zukei (cubic futurismo)](https://www.dropbox.com/s/gn68dufm4czvrh7/Kono%20Bijutsubu%20ni%20wa%20Mondai%20ga%20Aru%21%20-%20%E6%81%8B%E3%81%99%E3%82%8B%E5%9B%B3%E5%BD%A2%28cubic%20futurismo%29.mp3?dl=0)
 
 Kono Subarashii Sekai ni Shukufuku wo!
 
@@ -777,6 +779,8 @@ Aqours
 
 [Taiyou o Oikakero!](https://www.dropbox.com/s/yi8sqhoe9kui8ot/Taiyou%20o%20Oikakero%21.mp3?dl=0)
 
+[HAPPY PARTY TRAIN](https://www.dropbox.com/s/ymp6o7rlpf9escq/HAPPY%20PARTY%20TRAIN.mp3?dl=0)
+
 ## Idolmaster
 
 765PRO ALLSTARS
@@ -843,7 +847,7 @@ SideM
 
 [HANDMADE EVERYDAY](https://www.dropbox.com/s/j0lrh9ku6o6pnhr/HANDMADE%20EVERYDAY%E2%99%AA.mp3?dl=0)
 
-## Anime
+## Anime Songs
 
 Saki Achiga-hen
 
@@ -1002,6 +1006,12 @@ BanG Dream!
 [Teardrops](https://www.dropbox.com/s/d3ox1mxltui9r2a/Teardrops.mp3?dl=0)
 
 [Poppin' Party](https://www.dropbox.com/s/5bqeo3pxwslf6gh/Poppin%27%20Party.mp3?dl=0)
+
+Long Riders!
+
+[♡ km/h](https://www.dropbox.com/s/faz23p1mzs31ey0/%E2%99%A1%20km%EF%BC%8Fh.mp3?dl=0)
+
+[Happy Ice Cream!](https://www.dropbox.com/s/phbo27b2szrwj8t/Happy%20Ice%20Cream%21.mp3?dl=0)
 
 ## Other Songs
 
