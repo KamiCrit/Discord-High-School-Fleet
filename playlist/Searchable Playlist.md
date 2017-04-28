@@ -80,7 +80,7 @@ Boku dake ga Inai Machi / ERASED
 
 Choujigen Game Neptune The Animation
 
-[Neptune?Sagashite](https://www.dropbox.com/s/61zwh40ffbv0ap2/Choujigen%20Game%20Neptune%20The%20Animation%20-%20Neptune%E2%98%86Sagashite.mp3?dl=0)
+[Neptune☆Sagashite](https://www.dropbox.com/s/61zwh40ffbv0ap2/Choujigen%20Game%20Neptune%20The%20Animation%20-%20Neptune%E2%98%86Sagashite.mp3?dl=0)
 
 Clannad
 
@@ -136,7 +136,7 @@ Gabriel DropOut
 
 [Gabriel Drop Kick](https://www.dropbox.com/s/6xdw3ihobtkr476/Gabriel%20DropOut%20-%20Gabriel%20Drop%20Kick.mp3?dl=0)
 
-[Hallelujah?Essaim](https://www.dropbox.com/s/r16fmtlkznzgw04/Gabriel%20DropOut%20-%20Hallelujah%E2%98%86Essaim.mp3?dl=0)
+[Hallelujah☆Essaim](https://www.dropbox.com/s/r16fmtlkznzgw04/Gabriel%20DropOut%20-%20Hallelujah%E2%98%86Essaim.mp3?dl=0)
 
 Gatchaman Crowds
 
@@ -408,7 +408,7 @@ Ore no Imouto ga Konnani Kawaii Wake ga Nai
 
 Oshiete! Galko-chan
 
-[YPMA?GIRLS](https://www.dropbox.com/s/epr7cen99i9477l/Oshiete%21%20Galko-chan%20-%20YPMA%E2%98%86GIRLS.mp3?dl=0)
+[YPMA☆GIRLS](https://www.dropbox.com/s/epr7cen99i9477l/Oshiete%21%20Galko-chan%20-%20YPMA%E2%98%86GIRLS.mp3?dl=0)
 
 Planetarian: Chiisana Hoshi no Yume
 
@@ -475,7 +475,7 @@ Shakunetsu no Takkyuu Musume
 
 [Love All!](https://www.dropbox.com/s/8un8f7fu9skyrj8/Shakunetsu%20no%20Takkyu%20Musume%20-%20Love%20All%21.mp3?dl=0)
 
-[Fairfight?fielding](https://www.dropbox.com/s/9yyhmuec3hvm5h8/Shakunetsu%20no%20Takkyu%20Musume%20-%20Fairfight%E4%B9%82fielding.mp3?dl=0)
+[Fairfight乂fielding](https://www.dropbox.com/s/9yyhmuec3hvm5h8/Shakunetsu%20no%20Takkyu%20Musume%20-%20Fairfight%E4%B9%82fielding.mp3?dl=0)
 
 Shirobako
 
@@ -503,7 +503,7 @@ Suzumiya Haruhi no Yuuutsu
 
 [Hare Hare Yukai](https://www.dropbox.com/s/7zeks6b70con703/Suzumiya%20Haruhi%20-%2001%20-%20Hare%20Hare%20Yukai.mp3?dl=0)
 
-[Super Driver](https://www.dropbox.com/s/3b5zuodep8ggeia/Suzumiya%20Haruhi%20-%20Super%20Driver.mp3?dl=0)
+[Driver](https://www.dropbox.com/s/3b5zuodep8ggeia/Suzumiya%20Haruhi%20-%20Super%20Driver.mp3?dl=0)
 
 [Tomare](https://www.dropbox.com/s/ofe2rapjeg969qv/Suzumiya%20Haruhi%20-%2001%20-%20Tomare%21.mp3?dl=0)
 
@@ -951,7 +951,7 @@ Youjo Senki
 
 Carnival Phantasm
 
-[Super?Affection](https://www.dropbox.com/s/g0ek46kxrt58isw/Super%E2%98%86Affection.mp3?dl=0)
+[Super☆Affection](https://www.dropbox.com/s/g0ek46kxrt58isw/Super%E2%98%86Affection.mp3?dl=0)
 
 Aoki Hagane no Arpeggio: Ars Nova
 
