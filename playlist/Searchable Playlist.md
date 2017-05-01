@@ -22,7 +22,7 @@ Crtl+F and right click URL's for quick !play-ing of songs:
 
 [JIKAIYOKOKU](https://www.dropbox.com/s/6ksstsrledafr92/3-Gatsu%20no%20Lion%20-%20JIKAIYOKOKU.mp3?dl=0)
 
-Aiu rabu
+Aiura
 
 [Kani Do-Luck!](https://www.dropbox.com/s/cwugoobbi95qvqk/Aiura%20-%20Aiu%20rabu%20-%20Kani%20Do-Luck%21.mp3?dl=0)
 
