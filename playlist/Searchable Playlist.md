@@ -9,14 +9,23 @@ Crtl+F and right click URL's for quick !play-ing of songs:
 # Additions By User
 
 [Akemi](https://github.com/KamiCrit/Discord-High-School-Fleet/blob/master/playlist/Searchable%20Playlist.md#akemi)
+
 [Brocky](https://github.com/KamiCrit/Discord-High-School-Fleet/blob/master/playlist/Searchable%20Playlist.md#brocky)
+
 [Falthie](https://github.com/KamiCrit/Discord-High-School-Fleet/blob/master/playlist/Searchable%20Playlist.md#falthie)
+
 [Lilac](https://github.com/KamiCrit/Discord-High-School-Fleet/blob/master/playlist/Searchable%20Playlist.md#lilac)
+
 [lostmyhead](https://github.com/KamiCrit/Discord-High-School-Fleet/blob/master/playlist/Searchable%20Playlist.md#lostmyhead)
+
 [MandalorTeSiit](https://github.com/KamiCrit/Discord-High-School-Fleet/blob/master/playlist/Searchable%20Playlist.md#mandalor)
+
 [PinkyForever](https://github.com/KamiCrit/Discord-High-School-Fleet/blob/master/playlist/Searchable%20Playlist.md#pinkyforever)
+
 [Smarty](https://github.com/KamiCrit/Discord-High-School-Fleet/blob/master/playlist/Searchable%20Playlist.md#smarty)
+
 [Yukinori](https://github.com/KamiCrit/Discord-High-School-Fleet/blob/master/playlist/Searchable%20Playlist.md#yukinori)
+
 [1 6 8](https://github.com/KamiCrit/Discord-High-School-Fleet/blob/master/playlist/Searchable%20Playlist.md#1-6-8)
 
 # KamiCrit
