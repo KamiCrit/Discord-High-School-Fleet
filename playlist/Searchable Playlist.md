@@ -1045,6 +1045,8 @@ Hyperdimension Neptunia
 
 [The Internationale](https://www.youtube.com/watch?v=lyfhs42mdyA)
 
+[Katyusha](https://www.youtube.com/watch?v=Ga-gyW61QWg)
+
 [Korobushka](https://www.youtube.com/watch?v=5R_8E-zIeLA)
 
 [Kike Bankoku no Roudou-sha](https://www.youtube.com/watch?v=F0d8G35La-I)
@@ -1082,6 +1084,10 @@ Hyperdimension Neptunia
 [Dragonfly Wings](https://www.youtube.com/watch?v=LnH_TL6HFBE)
 
 [kirina -The ONE-](https://www.youtube.com/watch?v=cXzvAuo6tLM)
+
+[Tsubomi - blue dreams](https://www.youtube.com/watch?v=Y4emZDAxSg0)
+
+[Tokyo Bushi](https://www.youtube.com/watch?v=dwLOBKphxPs)
 
 # lostmyhead
 
