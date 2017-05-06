@@ -14,6 +14,8 @@ Crtl+F and right click URL's for quick !play-ing of songs:
 
 [Falthie](https://github.com/KamiCrit/Discord-High-School-Fleet/blob/master/playlist/Searchable%20Playlist.md#falthie)
 
+[KamiCrit](https://github.com/KamiCrit/Discord-High-School-Fleet/blob/master/playlist/Searchable%20Playlist.md#kamicrit)
+
 [Lilac](https://github.com/KamiCrit/Discord-High-School-Fleet/blob/master/playlist/Searchable%20Playlist.md#lilac)
 
 [lostmyhead](https://github.com/KamiCrit/Discord-High-School-Fleet/blob/master/playlist/Searchable%20Playlist.md#lostmyhead)
