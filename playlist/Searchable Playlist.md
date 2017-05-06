@@ -20,7 +20,7 @@ Crtl+F and right click URL's for quick !play-ing of songs:
 
 [lostmyhead](https://github.com/KamiCrit/Discord-High-School-Fleet/blob/master/playlist/Searchable%20Playlist.md#lostmyhead)
 
-[MandalorTeSiit](https://github.com/KamiCrit/Discord-High-School-Fleet/blob/master/playlist/Searchable%20Playlist.md#mandalor)
+[MandalorTeSiit](https://github.com/KamiCrit/Discord-High-School-Fleet/blob/master/playlist/Searchable%20Playlist.md#mandalortesiit)
 
 [PinkyForever](https://github.com/KamiCrit/Discord-High-School-Fleet/blob/master/playlist/Searchable%20Playlist.md#pinkyforever)
 
