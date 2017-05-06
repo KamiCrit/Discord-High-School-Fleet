@@ -1,4 +1,4 @@
-2017-05-05 2100
+2017-05-06 1030
 
 **Crtl+F and right click URL's for quick !play-ing of songs:**
 
@@ -851,6 +851,8 @@ Cinderella Girls
 
 [Usubeni](https://www.dropbox.com/s/r5u7g7xhtawqn1n/Usubeni.mp3?dl=0)
 
+[Kiraa! Mankai Smile](https://www.dropbox.com/s/z4amv8m9vgtpm8i/Kiraa%21%20Mankai%20Smile.mp3?dl=0)
+
 SideM
 
 [GOLD ~No.79~](https://www.dropbox.com/s/pkxp2dv8hr2vhwg/GOLD%20%EF%BD%9ENo%EF%BC%8E79%EF%BD%9E.mp3?dl=0)
@@ -1033,11 +1035,23 @@ BanG Dream!
 
 [Poppin' Party](https://www.dropbox.com/s/5bqeo3pxwslf6gh/Poppin%27%20Party.mp3?dl=0)
 
+[BLACK SHOUT](https://www.dropbox.com/s/lqhstmvrwua9el4/BLACK%20SHOUT.mp3?dl=0)
+
+[LOUDER](https://www.dropbox.com/s/67kvoskdl2c306c/LOUDER.mp3?dl=0)
+
 Long Riders!
 
 [♡ km/h](https://www.dropbox.com/s/faz23p1mzs31ey0/%E2%99%A1%20km%EF%BC%8Fh.mp3?dl=0)
 
 [Happy Ice Cream!](https://www.dropbox.com/s/phbo27b2szrwj8t/Happy%20Ice%20Cream%21.mp3?dl=0)
+
+AKB0048
+
+[Kibou ni Tsuite](https://www.dropbox.com/s/ox65hl4xgvkaf99/Kibou%20ni%20Tsuite.mp3?dl=0)
+
+[Yume wa Nando mo Umare Kawaru](https://www.dropbox.com/s/vd56loff8uvh64i/Yume%20wa%20Nando%20mo%20Umare%20Kawaru.mp3?dl=0)
+
+[Aruji Naki Sono Koe](https://www.dropbox.com/s/sfsn92ngfyqejy2/Aruji%20Naki%20Sono%20Koe.mp3?dl=0)
 
 ## Other Songs
 
@@ -1050,6 +1064,28 @@ Long Riders!
 Hyperdimension Neptunia
 
 [Miracle! Portable Mission](https://www.dropbox.com/s/jy4ou2scdmu4ehm/Miracle%21%20Portable%E2%98%86Mission.mp3?dl=0)
+
+[Be My☆Zombie](https://www.dropbox.com/s/zjbcs4w4ovo94f9/Be%20My%E2%98%86Zombie.mp3?dl=0)
+
+[Log Out Shinaide!](https://www.dropbox.com/s/fdimnmecb1qtfwh/Log%20Out%20Shinaide%21.mp3?dl=0)
+
+AKB48
+
+[Heavy Rotation](https://www.dropbox.com/s/ghew4o655a8cev3/Heavy%20Rotation.mp3?dl=0)
+
+[Beginner](https://www.dropbox.com/s/b6u23yvfhn3czs1/Beginner.mp3?dl=0)
+
+Uma Musume Pretty Derby
+
+[Umapyoi Densetsu](https://www.dropbox.com/s/aaz5qt2rq02srod/Umapyoi%20Densetsu%2001.mp3?dl=0)
+
+[Silent Star](https://www.dropbox.com/s/atxs5uhzsutynyq/Silent%20Star.mp3?dl=0)
+
+[Kindan Burning Heart](https://www.dropbox.com/s/l33s7tfsvimlkol/Kindan%20Burning%20Heart.mp3?dl=0)
+
+[Rising Girl](https://www.dropbox.com/s/ny4oqa39mdw17rc/Rising%20Girl.mp3?dl=0)
+
+[Secret GRADUATION](https://www.dropbox.com/s/qlx9cpqvq71pozp/Secret%20GRADUATION.mp3?dl=0)
 
 # MandalorTeSiit
 
