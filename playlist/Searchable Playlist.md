@@ -1,6 +1,6 @@
 2017-05-05 2100
 
-Crtl+F and right click URL's for quick !play-ing of songs:
+**Crtl+F and right click URL's for quick !play-ing of songs:**
 
 ![alt text](https://raw.githubusercontent.com/KamiCrit/Discord-High-School-Fleet/master/playlist/2017-02-14_21-41-05.png "Best Song")
 
