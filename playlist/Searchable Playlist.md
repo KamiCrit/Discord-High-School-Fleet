@@ -1,4 +1,4 @@
-2017-04-28 1500
+2017-05-05 1930
 
 Crtl+F and right click URL's for quick !play-ing of songs:
 
@@ -476,6 +476,8 @@ Shakunetsu no Takkyuu Musume
 [Love All!](https://www.dropbox.com/s/8un8f7fu9skyrj8/Shakunetsu%20no%20Takkyu%20Musume%20-%20Love%20All%21.mp3?dl=0)
 
 [Fairfight乂fielding](https://www.dropbox.com/s/9yyhmuec3hvm5h8/Shakunetsu%20no%20Takkyu%20Musume%20-%20Fairfight%E4%B9%82fielding.mp3?dl=0)
+
+[The Sound of a Dream](https://www.dropbox.com/s/kqq35aotwx3kfk6/Shakunetsu%20no%20Takkyu%20Musume%20-%20The_sound_of_a_dream.mp3?dl=0)
 
 Shirobako
 
@@ -1840,3 +1842,301 @@ Ansatsu Kyoushitsu (assassination classroom)
 [Hello Shooting Star](https://www.dropbox.com/s/08yykemk01kprh3/01%20-%20Hello%2C%20shooting-star.mp3?dl=0)
 
 [Jikiri Hongan Revolution](https://www.dropbox.com/s/75gyt0p6cxkggl6/01%20-%20Jikiri%20Hongan%20Revolution.mp3?dl=0)
+
+# Akemi
+
+## Monstercat
+
+[Robotaki](https://www.youtube.com/watch?v=HJLaDoQzj_Q)
+
+[Pixel](https://www.youtube.com/watch?v=HCp-IpR54ZY)
+
+[Blast](https://www.youtube.com/watch?v=ycgtC0EDOfk)
+
+[Fight](https://www.youtube.com/watch?v=qvBlHBHUTMs)
+
+[Hype](https://www.youtube.com/watch?v=N17omU8oykU)
+
+[Party](https://www.youtube.com/watch?v=rpkDl6UN4a8)
+
+[Okay](https://www.youtube.com/watch?v=FABmGWoScDk)
+
+[Cheat Codes](https://www.youtube.com/watch?v=mdaCDsN1FJ0)
+
+[Flight](https://www.youtube.com/watch?v=OVMuwa-HRCQ)
+
+[Surface](https://www.youtube.com/watch?v=BrCKvKXvN2c)
+
+[New Game](https://www.youtube.com/watch?v=6y_NJg-xoeE)
+
+[4U](https://www.youtube.com/watch?v=oKbChvqADd0)
+
+[SuperNova](https://www.youtube.com/watch?v=PKfxmFU3lWY)
+
+[Words](https://www.youtube.com/watch?v=BMhrBLD_B2U)
+
+[MelodyMania](https://www.youtube.com/watch?v=-7Ok0O2nQaA)
+
+[WRLD](https://www.youtube.com/watch?v=6-hRrKFkAQE)
+
+[Spectrum](https://www.youtube.com/watch?v=1Rvf-E7zAAY)
+
+[Bubble Beam](https://www.youtube.com/watch?v=1Rvf-E7zAAY)
+
+[Virtuality](https://www.youtube.com/watch?v=8j5bRbdUMf0)
+
+[Tunnel Vision](https://www.youtube.com/watch?v=wVNUD-sqV1g)
+
+[For You](https://www.youtube.com/watch?v=4lJ8gjKq9y8)
+
+[Silence](https://www.youtube.com/watch?v=OT9tqddn9PY)
+
+[Tribal](https://www.youtube.com/watch?v=bhUH3NgnCrY)
+
+[Imperfect](https://www.youtube.com/watch?v=5hd53EIKRXI)
+
+[Strung Out](https://www.youtube.com/watch?v=lLHkEgrt0Lc)
+
+[City Lights](https://www.youtube.com/watch?v=amrvJOcaPpo)
+
+[SadBot](https://www.youtube.com/watch?v=8fcMWu5M2pM)
+
+[New Sky](https://www.youtube.com/watch?v=xXIwAsnL-Vc)
+
+[Home](https://www.youtube.com/watch?v=kPveq0RmjNU)
+
+[Dots](https://www.youtube.com/watch?v=PYEZfF6ncrY)
+
+[Chase it](https://www.youtube.com/watch?v=MsFNDf3fX1A)
+
+[Hyper Potions](https://www.youtube.com/watch?v=vxOewDbARxk)
+
+[Inferno](https://www.youtube.com/watch?v=9gpxv2PZe2U)
+
+[Stronger](https://www.youtube.com/watch?v=I1NuCWfYeYc)
+
+[My Friend](https://www.youtube.com/watch?v=M0CfCdQ2zPU)
+
+[Crossroad](https://www.youtube.com/watch?v=cUy78QHeuvs)
+
+[Lost Metropolis](https://www.youtube.com/watch?v=57mbvCXWswk)
+
+[Atlantic](https://www.youtube.com/watch?v=YTwema3-OTw)
+
+[Triumph](https://www.youtube.com/watch?v=5YxVMyeIGvA)
+
+[Turn Around](https://www.youtube.com/watch?v=4x11Kz3odi0)
+
+[Kaleidoscope](https://www.youtube.com/watch?v=rI-t2M0t63s)
+
+[Saviors](https://www.youtube.com/watch?v=C_fpzKoHyw8)
+
+[Prism](https://www.youtube.com/watch?v=VZmX8VQQiyk)
+
+[Battle Cry](https://www.youtube.com/watch?v=PkLIcyC_emg)
+
+[Orbit](https://www.youtube.com/watch?v=dpciZ0D-Hhc)
+
+[Frame Of Mind](https://www.youtube.com/watch?v=SCD2tB1qILc)
+
+[Quantum](https://www.youtube.com/watch?v=wtc9KcMbsio)
+
+[Canvas](https://www.youtube.com/watch?v=i0Ew3cl1gyc)
+
+[The Scarlet Dawn](https://www.youtube.com/watch?v=fyCKoJzKnz8)
+
+## Anime
+
+[Invoke](https://www.youtube.com/watch?v=jr9kO9Jlx7c)
+
+[儚くも永久のカナシ](https://youtu.be/IWPAOgU-d8M)
+
+[Namida No Mukou](https://youtu.be/RCe-BQmjLbk)
+
+[Rage of Dust](https://www.youtube.com/watch?v=cNfdwAPCEZs)
+
+[Fighter](https://www.youtube.com/watch?v=DkkfhVXXrSs)
+
+[Survivor](https://www.youtube.com/watch?v=gAF4t0xMwB8)
+
+[Raise Your Flag](https://www.youtube.com/watch?v=yPjeNtf_ZTs)
+
+[AGE 3](https://www.youtube.com/watch?v=JKzi22iZZNY)
+
+[Aurora](https://youtu.be/fHo9NOXd6VQ)
+
+[Crescent Moon](https://youtu.be/vH0vfh6Ov7g) <-- Makes me fly to the moon
+
+[Hitorigori](https://youtu.be/hjTAakwP924)
+
+[Catch The Moment](https://youtu.be/GC1igLEsa8I)
+
+[Itteki no Eikyou](https://youtu.be/t9-z8EnRCpo)
+
+[Exorcist](https://youtu.be/OGoPmctd4XM)
+
+[Limit Break x Survivor](https://youtu.be/2Hr5eYEg0hw) <-- Will be switched when the OST comes
+
+[Silhouetto](https://youtu.be/dlFA0Zq1k2A) <--- Naruto is cool go watch it (They paid me to do this)
+
+[Baton Road](https://youtu.be/VHNt-73k7MM) <--- Same issue with Limit Break
+
+[Shounen no Hate](https://youtu.be/qCfaNmA3hFs)
+
+[Freesia](https://youtu.be/FFoRBtCpi-Y)
+
+[Senko no Tomoshibi](https://youtu.be/_gYxvZenwzU) <--- I cry everytime I listen to this
+
+[Trust You](https://youtu.be/PkWpBzKIeCA)
+
+[Tomorrow](https://youtu.be/CvRNpvfEUEk)
+
+[Vestige](https://youtu.be/QWhWqtPOT84)
+
+[Life Will Change](https://youtu.be/lcE4-6QGgpc)
+
+[Last Surprise](https://youtu.be/JwKHxzfmAOY)
+
+[T.M. Revolution](https://youtu.be/bUTNuYXuq64)
+
+[The Part Must Go On](https://youtu.be/bUTNuYXuq64)
+
+[Last Party](https://youtu.be/z_0_PvSQHJA)
+
+[Nevereverland](https://youtu.be/2eGazzxcp3I)
+
+[終わりの世界から](https://youtu.be/zyJJlPSeEpo)
+
+[Last Smile](https://youtu.be/cE69xAWdTq8)
+
+[Aquaris](https://youtu.be/38NLAWKMlsc?list=PLTAgj6IfBoAJzPzAtj4UlXV8LXO_Xp03S)
+
+[Arcana](https://youtu.be/uCtcf7eOR6Q?list=PLTAgj6IfBoAJzPzAtj4UlXV8LXO_Xp03S)
+
+[Batallie Industrillie](https://youtu.be/CF3HOieVjGg?list=PLTAgj6IfBoAJzPzAtj4UlXV8LXO_Xp03S)
+
+[Beyond the horizon](https://youtu.be/-QiJqn-UF1Q?list=PLTAgj6IfBoAJzPzAtj4UlXV8LXO_Xp03S)
+
+[Blanket](https://youtu.be/bMX6tNDBkFI?list=PLTAgj6IfBoAJzPzAtj4UlXV8LXO_Xp03S)
+
+[Carnation](https://youtu.be/y6bC1YEN2GA?list=PLTAgj6IfBoAJzPzAtj4UlXV8LXO_Xp03S)
+
+[Chicken Hearted](https://youtu.be/itL32iEnoY4?list=PLTAgj6IfBoAJzPzAtj4UlXV8LXO_Xp03S)
+
+[Ice](https://youtu.be/QkFIMQnJOdU?list=PLTAgj6IfBoAJzPzAtj4UlXV8LXO_Xp03S)
+
+[Magical Freezing](https://youtu.be/NMsfjvaBNOo?list=PLTAgj6IfBoAJzPzAtj4UlXV8LXO_Xp03S)
+
+[Nizikiwa](https://youtu.be/2O55hyXxz-E?list=PLTAgj6IfBoAJzPzAtj4UlXV8LXO_Xp03S)
+
+[Flash Gun](https://youtu.be/j9Li3VnK5xM?list=PLTAgj6IfBoAJzPzAtj4UlXV8LXO_Xp03S) <-- beep beep beep
+
+[Gigantic Saga](https://youtu.be/NC4xKpUzeyU?list=PLTAgj6IfBoAJzPzAtj4UlXV8LXO_Xp03S)
+
+[Lhou](https://youtu.be/xpQZOcoMEpU?list=PLTAgj6IfBoAJzPzAtj4UlXV8LXO_Xp03S)
+
+[Hop Step Adventure](https://youtu.be/5IXwDykoPe8?list=PLTAgj6IfBoAJzPzAtj4UlXV8LXO_Xp03S) <-- Not Kirby
+
+[Imperium](https://youtu.be/m-zSJ0u_edA?list=PLTAgj6IfBoAJzPzAtj4UlXV8LXO_Xp03S)
+
+[Kimi no mita sora no uta](https://youtu.be/8nzExYkGor4?list=PLTAgj6IfBoAJzPzAtj4UlXV8LXO_Xp03S)
+
+[Kokoro](https://youtu.be/OjLl5ukjRZI?list=PLTAgj6IfBoAJzPzAtj4UlXV8LXO_Xp03S)
+
+[Last Escape](https://youtu.be/nGS5nxGwcuM?list=PLTAgj6IfBoAJzPzAtj4UlXV8LXO_Xp03S)
+
+[Lv.0](https://youtu.be/aQebWk24_lM?list=PLTAgj6IfBoAJzPzAtj4UlXV8LXO_Xp03S)
+
+[Infinite Circulation](https://youtu.be/hdTnmOA64J0?list=PLTAgj6IfBoAJzPzAtj4UlXV8LXO_Xp03S)
+
+[Owari to Hajimari no Oto](https://youtu.be/431WcfVoHjo?list=PLTAgj6IfBoAJzPzAtj4UlXV8LXO_Xp03S)
+
+[Rainbow](https://youtu.be/7lUOqBZIoEU?list=PLTAgj6IfBoAJzPzAtj4UlXV8LXO_Xp03S)
+
+[Re:sound, From the Full moon World](https://youtu.be/952I2xkIyIg?list=PLTAgj6IfBoAJzPzAtj4UlXV8LXO_Xp03S)
+
+[Scherezo](https://youtu.be/ae51rkyiyCs?list=PLTAgj6IfBoAJzPzAtj4UlXV8LXO_Xp03S)
+
+[LunaticSounds](https://youtu.be/X_gSu9HNRV8?list=PLTAgj6IfBoAJzPzAtj4UlXV8LXO_Xp03S)
+
+[Dachs](https://youtu.be/tE3s4VNbxw0?list=PLTAgj6IfBoAJzPzAtj4UlXV8LXO_Xp03S)
+
+[The Graduate](https://youtu.be/r88K9VVixIA?list=PLTAgj6IfBoAJzPzAtj4UlXV8LXO_Xp03S)
+
+[Time Traveler](https://youtu.be/3VUY7Lk40TQ?list=PLTAgj6IfBoAJzPzAtj4UlXV8LXO_Xp03S)
+
+[Twinkle Wink](https://youtu.be/1VI3oP6ragQ?list=PLTAgj6IfBoAJzPzAtj4UlXV8LXO_Xp03S)
+
+[Villie Villie](https://youtu.be/J4_OdTcTkI8?list=PLTAgj6IfBoAJzPzAtj4UlXV8LXO_Xp03S)
+
+[Verse Quence](https://youtu.be/eyFRxAXeQuQ?list=PLTAgj6IfBoAJzPzAtj4UlXV8LXO_Xp03S)
+
+[Dual Dragoon](https://youtu.be/y1A0pTAlmz4?list=PLTAgj6IfBoAJzPzAtj4UlXV8LXO_Xp03S)
+
+[Matsuruzuki](https://youtu.be/8TeB4qGaD4M?list=PLTAgj6IfBoAJzPzAtj4UlXV8LXO_Xp03S)
+
+[Ire](https://youtu.be/8Pvw-zmlFJU?list=PLTAgj6IfBoAJzPzAtj4UlXV8LXO_Xp03S)
+
+[Lexus Cyxanis](https://youtu.be/0oZ4fxpmQ1Q?list=PLTAgj6IfBoAJzPzAtj4UlXV8LXO_Xp03S)
+
+[キラッ！満開スマイル](https://www.dropbox.com/s/5m7upwppqxmtmp1/01.%20%E3%82%AD%E3%83%A9%E3%83%83%EF%BC%81%E6%BA%80%E9%96%8B%E3%82%B9%E3%83%9E%E3%82%A4%E3%83%AB.mp3?dl=0) <--- Kira Kira Kira~~~
+
+[ようこそジャパリパークへ](https://www.dropbox.com/s/9dmpplv28qhrg8s/01.%20%E3%82%88%E3%81%86%E3%81%93%E3%81%9D%E3%82%B8%E3%83%A3%E3%83%91%E3%83%AA%E3%83%91%E3%83%BC%E3%82%AF%E3%81%B8.flac?dl=0)
+
+[大空ドリーマー](https://www.dropbox.com/s/p6tiq7vw4a2tvww/02.%20%E5%A4%A7%E7%A9%BA%E3%83%89%E3%83%AA%E3%83%BC%E3%83%9E%E3%83%BC.flac?dl=0)
+
+[Armour Zone](https://www.dropbox.com/s/x5m621ytv5m3avk/23.%20Armour%20Zone.flac?dl=0)
+
+[勝利への手探り](https://cdn.discordapp.com/attachments/176540160563871751/308034204363390987/12._.mp3) <-- base base base~~
+
+[Zexal Opening 1](https://youtu.be/g4YTLH3eHHE) <--- I will kiss anyone who teach me how to sing this
+
+[Zexal Opening 2](https://youtu.be/zTRUP5xPvSE)
+
+[Zexal Opening 3](https://youtu.be/WL1jb80HR3o)
+
+[Zexal II Opening 1](https://youtu.be/Jx_yz50hwtg)
+
+## Super Sentai x Kamen Rider
+
+[Super Sentai 2016 Song](https://youtu.be/hg5yJnSZvFk)
+
+[Gokaiger OP](https://youtu.be/pRMBStnDhnQ)
+
+[Shinkenger OP](https://www.youtube.com/watch?v=0vToLwIEuI8) <-- Chanbarararara
+
+[Boukenger OP](https://youtu.be/6OwaJxPJioU)
+
+[Kyuranger OP](https://youtu.be/ZBAhac95CSQ)
+
+[Kyoruranger OP](https://youtu.be/rfEoDcpHBa4) <--- Carnival Dance
+
+[Sae Ikae](https://youtu.be/L34AgX7AXVc)
+
+[Go Buster OP](https://youtu.be/8SlOnQK_A8s)
+
+[TimeRanger OP](https://youtu.be/SXQfAcmlh6w)
+
+[Zyuranger OP](https://youtu.be/k308dg1Cynk) <-- We lost to Power Ranger On this
+
+[Excite](https://www.youtube.com/watch?v=B2lc1tB9N4k)
+
+[Ghost OP](https://www.youtube.com/watch?v=AQ1f8tShuT0)
+
+[Climax Jump](https://www.dropbox.com/s/y25uxmls0f3gt9v/01%20-%20Climax%20Jump.flac?dl=0)
+
+[Double Climax](https://www.dropbox.com/s/uil9v22ccbzp3wp/01%20-%20Double-Action%20CLIMAX%20form.flac?dl=0)
+
+[Double Action](https://www.dropbox.com/s/hys2cjxsh4j91on/01%20-%20Double-Action.flac?dl=0)
+
+[Armour Zone](https://www.dropbox.com/s/x5m621ytv5m3avk/23.%20Armour%20Zone.flac?dl=0)
+
+[Dream of Time Travel](https://www.dropbox.com/s/rcqfqwtexcdk6ks/01%20-%20Dream%20of%20Time%20Travel.flac?dl=0)
+
+[I, Have Arrived](https://www.dropbox.com/s/4l9xv1sej779llx/01%20-%20I%2C%20Have%20Arrived%21.flac?dl=0)
+
+[Double Action Rod Form](https://www.dropbox.com/s/0ki35jbgtuvjtav/02%20-%20Double-Action%20Rod%20form.flac?dl=0)
+
+[Double Action Ax Form](https://www.dropbox.com/s/czidhy126z4vd2w/03%20-%20Double-Action%20Ax%20form.flac?dl=0)
+
+[Double Action Gun Form](https://www.dropbox.com/s/pfnwf6ijlwb6xy7/04%20-%20Double-Action%20Gun%20form.flac?dl=0)
