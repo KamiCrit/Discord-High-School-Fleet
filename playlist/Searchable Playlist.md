@@ -1999,7 +1999,7 @@ Ansatsu Kyoushitsu (assassination classroom)
 
 [T.M. Revolution](https://youtu.be/bUTNuYXuq64)
 
-[The Part Must Go On](https://youtu.be/bUTNuYXuq64)
+[The Party Must Go On](https://youtu.be/9s4H8WYJYJg)
 
 [Last Party](https://youtu.be/z_0_PvSQHJA)
 
