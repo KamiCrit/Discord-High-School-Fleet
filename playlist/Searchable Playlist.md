@@ -1053,6 +1053,12 @@ AKB0048
 
 [Aruji Naki Sono Koe](https://www.dropbox.com/s/sfsn92ngfyqejy2/Aruji%20Naki%20Sono%20Koe.mp3?dl=0)
 
+Hinako Note
+
+[A E I U E O Ao!!](https://www.dropbox.com/s/f7tuz45c71ybsos/A%E3%83%BBE%E3%83%BBI%E3%83%BBU%E3%83%BBE%E3%83%BBO%E3%83%BBAo%21%21.mp3?dl=0)
+
+[Curtain Call!!!!!](https://www.dropbox.com/s/ek1bjh51t11y280/Curtain%20Call%21%21%21%21%21.mp3?dl=0)
+
 ## Other Songs
 
 [Cyber Thunder Cider](https://www.dropbox.com/s/qb9lm14yks4uyam/Cyber%20Thunder%20Cider.mp3?dl=0)
