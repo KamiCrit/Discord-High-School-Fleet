@@ -394,7 +394,7 @@ Nichijou
 
 [Hydaruko no Yuujoi Joujou](https://www.dropbox.com/s/7gp601ys53z3nc4/Nichijou%20-%2002%20-%20Hyadaruko%20no%20Yuujou%20Joujou.mp3?dl=0)
 
-[Yukko wa hotoni baka da naa](https://soundcloud.com/panda-moon-2/nichijou-yukko-wa-hontoni-baka-da-naa)
+[Yukko_wa_Hontoni_Baka_Danaa](https://cdn.discordapp.com/attachments/312399750093733888/312402379041669130/Nichijou_-_Yukko_wa_Hontoni_Baka_Danaa.mp3)
 
 [Helvetica Standard ~Sono 1~](https://www.dropbox.com/s/sn3a17eu9933bto/Nichijou%20-%2005%20-%20Helvetica%20Standard%20~Sono%201~.mp3?dl=0)
 
@@ -403,8 +403,6 @@ Nichijou
 [Helvetica Standard ~Sono 3~](https://www.dropbox.com/s/yqe1p1h2dlp484c/Nichijou%20-%2004%20-%20Helvetica%20Standard%20~Sono%203~.mp3?dl=0)
 
 [Maa Maa no Kiseki](https://www.dropbox.com/s/ou0grd6n71b2ksj/Nichijou%20-%2003%20-%20Maa%20Maa%20no%20Kiseki.mp3?dl=0)
-
-[Yukko_wa_Hontoni_Baka_Danaa](https://cdn.discordapp.com/attachments/312399750093733888/312402379041669130/Nichijou_-_Yukko_wa_Hontoni_Baka_Danaa.mp3)
 
 Nisekoi
 
@@ -1064,8 +1062,6 @@ Hinako Note
 ## Other Songs
 
 [Cyber Thunder Cider](https://www.dropbox.com/s/qb9lm14yks4uyam/Cyber%20Thunder%20Cider.mp3?dl=0)
-
-[Youthful Dreamer](https://www.dropbox.com/s/e0emanbytzh189c/Youthful%20Dreamer.mp3?dl=0)
 
 [Kurumi](https://www.dropbox.com/s/wtp85c5gi97ryor/Kurumi.mp3?dl=0)
 
