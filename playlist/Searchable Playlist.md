@@ -404,6 +404,8 @@ Nichijou
 
 [Maa Maa no Kiseki](https://www.dropbox.com/s/ou0grd6n71b2ksj/Nichijou%20-%2003%20-%20Maa%20Maa%20no%20Kiseki.mp3?dl=0)
 
+[Yukko_wa_Hontoni_Baka_Danaa](https://cdn.discordapp.com/attachments/312399750093733888/312402379041669130/Nichijou_-_Yukko_wa_Hontoni_Baka_Danaa.mp3)
+
 Nisekoi
 
 [ClariS - CLICK](https://www.dropbox.com/s/q6zwbui2svlxj6b/Nisekoi%20-%2001.%20CLICK.mp3?dl=0)
@@ -655,11 +657,11 @@ Claire
 
 [Tabidatsu Kanojo to Furui Sebyoushi](https://soundcloud.com/alghi-fary/tabidatsu-kanojo-to-furui-sebyoushi)
 
-[Mujakina Kimi to Manatsu no Melody](https://youtu.be/HvpBs_2gVqQ)
+[Mujakina Kimi to Manatsu no Melody](https://www.youtube.com/watch?v=HvpBs_2gVqQ)
 
 Blue Avenue
 
-[I Love New Day](https://youtu.be/5TQZZRtq83M)
+[I Love New Day](https://www.youtube.com/watch?v=5TQZZRtq83M)
 
 ### Other
 
@@ -1247,7 +1249,7 @@ Uma Musume Pretty Derby
 
 [Eh? Ah, sou](https://www.youtube.com/watch?v=2ZThjca5K_4)
 
-[Envy Catwalk](https://www.youtube.com/watch?v=e2TTTMESrPw0)
+[Envy Catwalk](https://www.youtube.com/watch?v=e2TTTMESrPw)
 
 [Renai Yuusha](https://www.youtube.com/watch?v=_czhtxNgbm0)
 
