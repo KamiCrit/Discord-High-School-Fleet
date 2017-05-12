@@ -1,4 +1,4 @@
-2017-05-11 2230
+2017-05-12 0845
 
 **Crtl+F and right click URL's for quick !play-ing of songs:**
 
@@ -1584,6 +1584,44 @@ Uma Musume Pretty Derby
 [P/masara - Love10 (ft. Juunana & Ran)](https://www.youtube.com/watch?v=jP1kz8aPywA)
 
 [ECHO Happy 2015!!!](https://www.youtube.com/watch?v=wIMmic7HhRg)
+
+[perthed again (yambabom remix)](https://www.dropbox.com/s/abg3sx5gvioizwp/06%20perthed%20again%20%28yambabom%20remix%29.mp3?dl=0)
+
+[ARM feat. Nanahira - BakunanaTestroyer](https://www.dropbox.com/s/n0t1b7j25gg7z0x/ARM%20feat.%20Nanahira%20-%20BakunanaTestroyer%20%28intoon%29.mp3?dl=0)
+
+[Ayumi. - Hanagoyomi short version](https://www.dropbox.com/s/5e2nnacdi5clvcq/Ayumi.%20-%20Hanagoyomi%20short%20version%20%28Lavender%29.mp3?dl=0)
+
+[BABYMETAL - THE ONE](https://www.dropbox.com/s/xfddl2czzy1mjuo/BABYMETAL%20-%20THE%20ONE%20%28Hysteria%29%20.mp3?dl=0)
+
+[AIMEE BLACKSCHLEGER - DOA] (https://www.dropbox.com/s/riap3hbgbu666k8/DOA.mp3?dl=0)
+
+[Ikimono Gakari - Netsujou no Spectrum](https://www.dropbox.com/s/zwnhw4zktnpylm6/Ikimono%20Gakari%20-%20Netsujou%20no%20Spectrum.mp3?dl=0)
+
+[Izumi Akazawa (CV. Madoka Yonezawa) - Responsibility Response](https://www.dropbox.com/s/sffacqhov2tumjf/Izumi%20Akazawa%20%28CV%20Madoka%20Yonezawa%29%20-%20Responsibility%20Response.mp3?dl=0)
+
+[KUMAMIKO DANCING](https://www.dropbox.com/s/jtybtu10lxkxd25/KUMAMIKO%20DANCINGTV%20size.mp3?dl=0)
+
+[Mewhan - Boku no Friend](https://www.dropbox.com/s/g3p4j3rktqdtb7c/Mewhan%20-%20Boku%20no%20Friend.mp3?dl=0)
+
+[SoundTeMP - Dreamer's Dream] (https://www.dropbox.com/s/mgqnk7g8ss9ly2g/Ragnarok%20Online%20OST%20-%20Dreamer%26%2339%3Bs%20Dream.mp3?dl=0)
+
+[Rita - Dream Walker](https://www.dropbox.com/s/zhizroc1qll6kp6/Rita%20-%20Dream%20Walker.mp3?dl=0)
+
+[Satoshi (CVRica Matsumoto) - XY&Z](https://www.dropbox.com/s/isuz5tkuaomfj9s/Satoshi%20%28CVRica%20Matsumoto%29%20-%20XY%26Z%20.mp3?dl=0)
+
+[Shikishima Mirei (CV: Iguchi Yuka) & Tokonome Mamori (CV: Izawa Mikako) - Super Ultra Hyper Mega Omega Delta TRIPLE Miracle Romantic](https://www.dropbox.com/s/ttrqe6lud8j1cwd/Shikishima%20Mirei%20%28CV%20Iguchi%20Yuka%29%20%26%20Tokonome%20Mamori%20%28CV%20Izawa%20Mikako%29%20-%20Super%20Ultra%20Hyper%20Miracle%20Romantic.mp3?dl=0)
+
+[THYME - forever we can make it!](https://www.dropbox.com/s/0g3p1a5i4hjw18u/THYME%20-%20forever%20we%20can%20make%20it%21.MP3?dl=0)
+
+[tokiwa yuu - shounen ripples](https://www.dropbox.com/s/xcgfksxz7vkkkj6/tokiwa%20yuu%20-%20shounen%20ripples.mp3?dl=0)
+
+[TrySail & TRUE - High Free Spirits ''Yuri Version''](https://www.dropbox.com/s/7qs6d53j64dulum/TrySail%20%26%20TRUE%20-%20High%20Free%20Spirits%20%28Yuri%20Euphonium%29.mp3?dl=0)
+
+[Vine (CV Onishi Saori) - Gabriel no Kazoe Uta](https://www.dropbox.com/s/mttv6ja1jn9czus/Vine%20%28CV%20Onishi%20Saori%29%20-%20Gabriel%20no%20Kazoe%20Uta.mp3?dl=0)
+
+[WALKUERE - Zettai Reido Novatic](https://www.dropbox.com/s/hp0lunzyhlvraxx/WALKUERE%20-%20Zettai%20Reido%20Novatic.mp3?dl=0)
+
+[yanaginagi - landscape](https://www.dropbox.com/s/gi7oy5kt4qfcdcv/yanaginagi%20-%20landscape.mp3?dl=0)
 
 # PinkyForever
 
