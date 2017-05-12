@@ -893,7 +893,7 @@ Kancolle
 
 Hanayamata
 
-[Hana wa Odore ya Irohaniho](https://www.dropbox.com/s/g8uk4jqzlqr321x/Hana%20wa%20Odore%20ya%20Irohaniho.mp3?dl=0)9
+[Hana wa Odore ya Irohaniho](https://www.dropbox.com/s/g8uk4jqzlqr321x/Hana%20wa%20Odore%20ya%20Irohaniho.mp3?dl=0)
 
 Girls und Panzer
 
@@ -1901,7 +1901,7 @@ Akame ga Kill
 
 [Skyreach](https://www.dropbox.com/s/vwzbahfcy4gx2a3/01%20-%20Skyreach%20-%20Akame%20ga%20Kill.mp3?dl=0)
 
-[Konno Sekai, Shiritaku Nakatta](https://www.dropbox.com/s/yfz3sxl6qiau3cv/01%20-%20Konna%20Sekai%2C%20Shiritaku%20Nakatta..mp3?dl=0)	
+[Konno Sekai, Shiritaku Nakatta](https://www.dropbox.com/s/yfz3sxl6qiau3cv/01%20-%20Konna%20Sekai%2C%20Shiritaku%20Nakatta..mp3?dl=0)
 
 Accel World
 
