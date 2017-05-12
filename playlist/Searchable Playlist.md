@@ -1593,7 +1593,7 @@ Uma Musume Pretty Derby
 
 [BABYMETAL - THE ONE](https://www.dropbox.com/s/xfddl2czzy1mjuo/BABYMETAL%20-%20THE%20ONE%20%28Hysteria%29%20.mp3?dl=0)
 
-[AIMEE BLACKSCHLEGER - DOA] (https://www.dropbox.com/s/riap3hbgbu666k8/DOA.mp3?dl=0)
+[AIMEE BLACKSCHLEGER - DOA](https://www.dropbox.com/s/riap3hbgbu666k8/DOA.mp3?dl=0)
 
 [Ikimono Gakari - Netsujou no Spectrum](https://www.dropbox.com/s/zwnhw4zktnpylm6/Ikimono%20Gakari%20-%20Netsujou%20no%20Spectrum.mp3?dl=0)
 
@@ -1603,7 +1603,7 @@ Uma Musume Pretty Derby
 
 [Mewhan - Boku no Friend](https://www.dropbox.com/s/g3p4j3rktqdtb7c/Mewhan%20-%20Boku%20no%20Friend.mp3?dl=0)
 
-[SoundTeMP - Dreamer's Dream] (https://www.dropbox.com/s/mgqnk7g8ss9ly2g/Ragnarok%20Online%20OST%20-%20Dreamer%26%2339%3Bs%20Dream.mp3?dl=0)
+[SoundTeMP - Dreamer's Dream](https://www.dropbox.com/s/mgqnk7g8ss9ly2g/Ragnarok%20Online%20OST%20-%20Dreamer%26%2339%3Bs%20Dream.mp3?dl=0)
 
 [Rita - Dream Walker](https://www.dropbox.com/s/zhizroc1qll6kp6/Rita%20-%20Dream%20Walker.mp3?dl=0)
 
