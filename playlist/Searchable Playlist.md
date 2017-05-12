@@ -394,7 +394,7 @@ Nichijou
 
 [Hydaruko no Yuujoi Joujou](https://www.dropbox.com/s/7gp601ys53z3nc4/Nichijou%20-%2002%20-%20Hyadaruko%20no%20Yuujou%20Joujou.mp3?dl=0)
 
-[Yukko wa hotoni baka da naa](https://soundcloud.com/panda-moon-2/nichijou-yukko-wa-hontoni-baka-da-naa)
+[Yukko_wa_Hontoni_Baka_Danaa](https://cdn.discordapp.com/attachments/312399750093733888/312402379041669130/Nichijou_-_Yukko_wa_Hontoni_Baka_Danaa.mp3)
 
 [Helvetica Standard ~Sono 1~](https://www.dropbox.com/s/sn3a17eu9933bto/Nichijou%20-%2005%20-%20Helvetica%20Standard%20~Sono%201~.mp3?dl=0)
 
@@ -655,11 +655,11 @@ Claire
 
 [Tabidatsu Kanojo to Furui Sebyoushi](https://soundcloud.com/alghi-fary/tabidatsu-kanojo-to-furui-sebyoushi)
 
-[Mujakina Kimi to Manatsu no Melody](https://youtu.be/HvpBs_2gVqQ)
+[Mujakina Kimi to Manatsu no Melody](https://www.youtube.com/watch?v=HvpBs_2gVqQ)
 
 Blue Avenue
 
-[I Love New Day](https://youtu.be/5TQZZRtq83M)
+[I Love New Day](https://www.youtube.com/watch?v=5TQZZRtq83M)
 
 ### Other
 
@@ -893,7 +893,7 @@ Kancolle
 
 Hanayamata
 
-[Hana wa Odore ya Irohaniho](https://www.dropbox.com/s/g8uk4jqzlqr321x/Hana%20wa%20Odore%20ya%20Irohaniho.mp3?dl=0)9
+[Hana wa Odore ya Irohaniho](https://www.dropbox.com/s/g8uk4jqzlqr321x/Hana%20wa%20Odore%20ya%20Irohaniho.mp3?dl=0)
 
 Girls und Panzer
 
@@ -1053,11 +1053,15 @@ AKB0048
 
 [Aruji Naki Sono Koe](https://www.dropbox.com/s/sfsn92ngfyqejy2/Aruji%20Naki%20Sono%20Koe.mp3?dl=0)
 
+Hinako Note
+
+[A E I U E O Ao!!](https://www.dropbox.com/s/f7tuz45c71ybsos/A%E3%83%BBE%E3%83%BBI%E3%83%BBU%E3%83%BBE%E3%83%BBO%E3%83%BBAo%21%21.mp3?dl=0)
+
+[Curtain Call!!!!!](https://www.dropbox.com/s/ek1bjh51t11y280/Curtain%20Call%21%21%21%21%21.mp3?dl=0)
+
 ## Other Songs
 
 [Cyber Thunder Cider](https://www.dropbox.com/s/qb9lm14yks4uyam/Cyber%20Thunder%20Cider.mp3?dl=0)
-
-[Youthful Dreamer](https://www.dropbox.com/s/e0emanbytzh189c/Youthful%20Dreamer.mp3?dl=0)
 
 [Kurumi](https://www.dropbox.com/s/wtp85c5gi97ryor/Kurumi.mp3?dl=0)
 
@@ -1241,7 +1245,7 @@ Uma Musume Pretty Derby
 
 [Eh? Ah, sou](https://www.youtube.com/watch?v=2ZThjca5K_4)
 
-[Envy Catwalk](https://www.youtube.com/watch?v=e2TTTMESrPw0)
+[Envy Catwalk](https://www.youtube.com/watch?v=e2TTTMESrPw)
 
 [Renai Yuusha](https://www.youtube.com/watch?v=_czhtxNgbm0)
 
@@ -1565,7 +1569,7 @@ Uma Musume Pretty Derby
 
 [Lies in Reality FELT Subbed](https://www.youtube.com/watch?v=F7mwMxTZT8U)
 
-[Rooftop Run (Modern) - Sonic Generations (OST)](https://www.youtube.com/watch?v=xnTyqig1R7I)
+[Blue Blur- Sonic Generations OST Rooftop Run Act 2](https://www.youtube.com/watch?v=lcCAUCe7ku8)
 
 [(MV) REOL / YoiYoi Kokon](https://www.youtube.com/watch?v=8IK6eLTNV1k)
 
@@ -1895,7 +1899,7 @@ Akame ga Kill
 
 [Skyreach](https://www.dropbox.com/s/vwzbahfcy4gx2a3/01%20-%20Skyreach%20-%20Akame%20ga%20Kill.mp3?dl=0)
 
-[Konno Sekai, Shiritaku Nakatta](https://www.dropbox.com/s/yfz3sxl6qiau3cv/01%20-%20Konna%20Sekai%2C%20Shiritaku%20Nakatta..mp3?dl=0)	
+[Konno Sekai, Shiritaku Nakatta](https://www.dropbox.com/s/yfz3sxl6qiau3cv/01%20-%20Konna%20Sekai%2C%20Shiritaku%20Nakatta..mp3?dl=0)
 
 Accel World
 
