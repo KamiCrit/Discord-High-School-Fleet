@@ -286,6 +286,14 @@ Kantai Collection
 
 [Hatsukoi! Suirai Sentai](https://www.dropbox.com/s/3tugubfkpyczm5u/Kantai%20Collection%20-%2003%20-%20Hatsukoi%21%20Suirai%20Sentai.mp3?dl=0)
 
+Kemono Friends
+
+[Youkoso Japari Park e](https://www.dropbox.com/s/h4e5rjx39tuemti/Kemono%20Friends%20-%20Youkoso%20Japari%20Park%20e.mp3?dl=0)
+
+[Boku no Friend](https://www.dropbox.com/s/7vvr12pn82mcm4u/Kemono%20Friends%20-%20Boku%20no%20Friend.mp3?dl=0)
+
+[PPP](https://www.dropbox.com/s/3n3y4eo5e7wcwep/Kemono%20Friends%20-%20PPP.mp3?dl=0)
+
 Kobayashi-san Chi no Maid Dragon
 
 [Aozora no Rhapsody](https://www.dropbox.com/s/u3bqag60lrudell/Kobayashi-san%20Chi%20no%20Maid%20Dragon%20-%20Aozora%20no%20Rhapsody.mp3?dl=0)
