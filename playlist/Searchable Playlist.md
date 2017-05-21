@@ -1,4 +1,4 @@
-2017-05-21 0000
+2017-05-21 0900
 
 **Crtl+F and right click URL's for quick !play-ing of songs:**
 
@@ -849,6 +849,12 @@ Aqours
 
 [The World is All One](https://www.dropbox.com/s/issua1hkgthcghn/The%20world%20is%20all%20one%21%21%20%28M%40STER%20VERSION%29.mp3?dl=0)
 
+Million Live
+
+[Sweet Sweet Soul](https://www.dropbox.com/s/254br3oh7wzsidt/Sweet%20Sweet%20Soul.mp3?dl=0)
+
+[bitter sweet](https://www.dropbox.com/s/kn4iiij5sk2o3ft/bitter%20sweet.mp3?dl=0)
+
 Cinderella Girls
 
 [Star!!](https://www.dropbox.com/s/9jl1mb3fclajzw4/Star%21%21.mp3?dl=0)
@@ -881,7 +887,7 @@ Cinderella Girls
 
 SideM
 
-[GOLD ~No.79~](https://www.dropbox.com/s/pkxp2dv8hr2vhwg/GOLD%20%EF%BD%9ENo%EF%BC%8E79%EF%BD%9E.mp3?dl=0)
+[GOLD -No.79-](https://www.dropbox.com/s/pkxp2dv8hr2vhwg/GOLD%20%EF%BD%9ENo%EF%BC%8E79%EF%BD%9E.mp3?dl=0)
 
 [Waga Konton no Sabbath Marriage](https://www.dropbox.com/s/cx4bjircsh368mv/Waga%20Konton%20no%20Sabbath%20Marriage.mp3?dl=0)
 
@@ -983,6 +989,12 @@ Wake Up, Girls!
 
 [DATTE](https://www.dropbox.com/s/fuh5ul2vnn0ar5d/DATTE.mp3?dl=0)
 
+[Tachiagare!](https://www.dropbox.com/s/c2q0gd3lhpc9zwo/Tachiagare%21.mp3?dl=0)
+
+[Taiyou Iwaku Moeyo Kaosu (Miyu Ver.)](https://www.dropbox.com/s/b59g8cv1u9htnym/Taiyou%20Iwaku%20Moeyo%20Kaosu%20%28Miyu%20Ver.%29.mp3?dl=0)
+
+[Wug Zoo Zoo](https://www.dropbox.com/s/rdb3b1c3ad1n2x3/Wug%20Zoo%20Zoo.mp3?dl=0)
+
 Masamune-kun no Revenge
 
 [Wagamama Mirror Heart](https://www.dropbox.com/s/zq2lwrfdkdqn15x/Wagamama%20MIRROR%20HEART.mp3?dl=0)
@@ -1016,6 +1028,14 @@ Idol Jihen
 [Utae! Ai no Kouyaku](https://www.dropbox.com/s/xo5nla5mqndynpw/Utae%21%20Ai%20no%20Kouyaku.mp3?dl=0)
 
 [Respect](https://www.dropbox.com/s/6ekaoljub32erk0/Respect.mp3?dl=0)
+
+[Jack in Dreamer](https://www.dropbox.com/s/f6rzc863thyklvl/Jack%20in%20Dreamer.mp3?dl=0)
+
+[Gamushura Girl](https://www.dropbox.com/s/ndaqpgiegpjqhzs/Gamushara%20Girl.mp3?dl=0)
+
+[Green Fairy](https://www.dropbox.com/s/giiu4w41csyh56c/Green%20Fairy.mp3?dl=0)
+
+[Koi no hide & seek](https://www.dropbox.com/s/gnqwf693x98d4ge/Koi%20no%20hide%20%26%20seek.mp3?dl=0)
 
 Little Witch Academia
 
@@ -1084,6 +1104,10 @@ Hinako Note
 [A E I U E O Ao!!](https://www.dropbox.com/s/f7tuz45c71ybsos/A%E3%83%BBE%E3%83%BBI%E3%83%BBU%E3%83%BBE%E3%83%BBO%E3%83%BBAo%21%21.mp3?dl=0)
 
 [Curtain Call!!!!!](https://www.dropbox.com/s/ek1bjh51t11y280/Curtain%20Call%21%21%21%21%21.mp3?dl=0)
+
+Urara Meirochou
+
+[Uraraka Biyori no Shijuusou](https://www.dropbox.com/s/bmly7lvpev5ii63/Uraraka%20Biyori%20no%20Shijuusou.mp3?dl=0)
 
 ## Other Songs
 
