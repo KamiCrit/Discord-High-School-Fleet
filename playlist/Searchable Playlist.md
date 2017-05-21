@@ -202,6 +202,8 @@ Girls Und Panzer
 
 [Senshamichi Koushinkyoku](https://www.dropbox.com/s/lrm2iijakug14pl/Girls%20und%20Panzer%20-%20Extra_%20Senshamichi%20koushinkyoku.mp3?dl=0)
 
+[Girls Und Panzer - Yuki no Shingun (Remix)](https://www.dropbox.com/s/wdjkft6izva2zy9/Girls%20Und%20Panzer%20-%20Yuki%20no%20Shingun%20%28Remix%29.mp3?dl=0)
+
 Girls Und Panzer Der Film
 
 [Panzer Vor?](https://www.dropbox.com/s/b53z4hxvqlkgetu/Girls%20und%20Panzer%20Der%20Film%20-%2001.%20Movie%20Version%20Panzerfahren%20Song%21%20Panzer%20Vor.mp3?dl=0)
