@@ -1,4 +1,4 @@
-2017-05-21 0900
+2017-05-21 1500
 
 **Crtl+F and right click URL's for quick !play-ing of songs:**
 
@@ -93,6 +93,10 @@ Bakemonogatari
 Bakuon!!
 
 [Sayaka Sasaki - FEELxALIVE](https://www.dropbox.com/s/64sjvv32dtvhn4s/Bakuon%21%21%20-%20Sayaka%20Sasaki%20-%20FEEL%C3%97ALIVE.mp3?dl=0)
+
+Bernard-jou Iwaku.
+
+[Love! Library](https://www.dropbox.com/s/eyg88ag7umghmbp/Bernard-jou%20Iwaku.%20-%20Love%21%20Library.mp3?dl=0)
 
 Boku dake ga Inai Machi / ERASED
 
@@ -496,6 +500,9 @@ Sekko Boys
 
 [Hoshizora Rendezvous (Covered by Bonjour Suzuki)](https://www.dropbox.com/s/kjevegvviqau1ke/Sekko%20Boys%20-%20%E6%98%9F%E7%A9%BA%E3%83%A9%E3%83%B3%E3%83%87%E3%83%96%E3%83%BC%20%28Covered%20by%20%E3%83%9C%E3%83%B3%E3%82%B8%E3%83%A5%E3%83%BC%E3%83%AB%E9%88%B4%E6%9C%A8%29.mp3?dl=0)
 
+Sengoku Choujuu Giga
+
+[Gekokujou de okashi cha e!](https://www.dropbox.com/s/4nsiwhrpluo6iwr/Sengoku%20Choujuu%20Giga%20-%20Gekokujou%20de%20okashi%20cha%20e%21.mp3?dl=0)
 
 Shakunetsu no Takkyuu Musume
 
