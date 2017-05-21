@@ -304,6 +304,10 @@ Kemono Friends
 
 [Oozora Dreamer](https://www.dropbox.com/s/3n3y4eo5e7wcwep/Kemono%20Friends%20-%20Oozora%20Dreamer.mp3?dl=0)
 
+[Kemono Frieds - Youkoso Japari Park e (Live VA)](https://www.dropbox.com/s/503fj8w2nvmrlhy/Kemono%20Frieds%20-%20Youkoso%20Japari%20Park%20e%20%28Live%20VA%29.mp3?dl=0)
+
+[Kemono Frieds - Youkoso Japari Park e (Live Oishi Masayoshi)](https://www.dropbox.com/s/uh9oi1njg0rdvnp/Kemono%20Frieds%20-%20Youkoso%20Japari%20Park%20e%20%28Live%20Oishi%20Masayoshi%29.mp3?dl=0)
+
 Kobayashi-san Chi no Maid Dragon
 
 [Aozora no Rhapsody](https://www.dropbox.com/s/u3bqag60lrudell/Kobayashi-san%20Chi%20no%20Maid%20Dragon%20-%20Aozora%20no%20Rhapsody.mp3?dl=0)
