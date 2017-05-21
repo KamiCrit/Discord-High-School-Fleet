@@ -140,9 +140,7 @@ Danshi Koukousei no Nichijou
 
 Death Parade
 
-[BRADIO - Flyers](https://www.dropbox.com/s/8yicty2c6d9vzpo/Death%20Parade%20-%20BRADIO%20-%20Flyers.mp3?dl=0)
-
-[BRADIO - Flyers (live)](https://www.dropbox.com/s/dbdbv3f4j1yf2s8/BRADIO%20-%20Flyers%20%28Live%29.mp3?dl=0)
+[Flyers](https://www.dropbox.com/s/8yicty2c6d9vzpo/Death%20Parade%20-%20BRADIO%20-%20Flyers.mp3?dl=0)
 
 DieBuster
 
@@ -202,7 +200,7 @@ Girls Und Panzer
 
 [Senshamichi Koushinkyoku](https://www.dropbox.com/s/lrm2iijakug14pl/Girls%20und%20Panzer%20-%20Extra_%20Senshamichi%20koushinkyoku.mp3?dl=0)
 
-[Girls Und Panzer - Yuki no Shingun (Remix)](https://www.dropbox.com/s/wdjkft6izva2zy9/Girls%20Und%20Panzer%20-%20Yuki%20no%20Shingun%20%28Remix%29.mp3?dl=0)
+[Yuki no Shingun (Remix)](https://www.dropbox.com/s/wdjkft6izva2zy9/Girls%20Und%20Panzer%20-%20Yuki%20no%20Shingun%20%28Remix%29.mp3?dl=0)
 
 Girls Und Panzer Der Film
 
@@ -306,9 +304,9 @@ Kemono Friends
 
 [Oozora Dreamer](https://www.dropbox.com/s/3n3y4eo5e7wcwep/Kemono%20Friends%20-%20Oozora%20Dreamer.mp3?dl=0)
 
-[Kemono Frieds - Youkoso Japari Park e (Live VA)](https://www.dropbox.com/s/503fj8w2nvmrlhy/Kemono%20Frieds%20-%20Youkoso%20Japari%20Park%20e%20%28Live%20VA%29.mp3?dl=0)
+[Youkoso Japari Park e (Live VA)](https://www.dropbox.com/s/503fj8w2nvmrlhy/Kemono%20Friends%20-%20Youkoso%20Japari%20Park%20e%20%28Live%20VA%29.mp3?dl=0)
 
-[Kemono Frieds - Youkoso Japari Park e (Live Oishi Masayoshi)](https://www.dropbox.com/s/uh9oi1njg0rdvnp/Kemono%20Frieds%20-%20Youkoso%20Japari%20Park%20e%20%28Live%20Oishi%20Masayoshi%29.mp3?dl=0)
+[Youkoso Japari Park e (Live Oishi Masayoshi)](https://www.dropbox.com/s/uh9oi1njg0rdvnp/Kemono%20Friends%20-%20Youkoso%20Japari%20Park%20e%20%28Live%20Oishi%20Masayoshi%29.mp3?dl=0)
 
 Kobayashi-san Chi no Maid Dragon
 
@@ -712,6 +710,8 @@ Blue Avenue
 [AKB48 - 01. Koi Suru Fortune Cookie](https://www.dropbox.com/s/5qwv1ayt4qb3jld/AKB48%20-%2001.%20Koi%20Suru%20Fortune%20Cookie.mp3?dl=0)
 
 [AKG Tribute - Re:Re:](https://www.dropbox.com/s/onhz7rybgqlroqf/AKG%20Tribute%20-%20Re-Re-.mp3?dl=0)
+
+[BRADIO - Flyers (live)](https://www.dropbox.com/s/dbdbv3f4j1yf2s8/BRADIO%20-%20Flyers%20%28Live%29.mp3?dl=0)
 
 # Lilac
 
