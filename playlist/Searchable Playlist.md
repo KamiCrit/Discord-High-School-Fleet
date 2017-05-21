@@ -1,4 +1,4 @@
-2017-05-13 1700
+2017-05-21 0000
 
 **Crtl+F and right click URL's for quick !play-ing of songs:**
 
@@ -142,9 +142,19 @@ Death Parade
 
 [BRADIO - Flyers](https://www.dropbox.com/s/8yicty2c6d9vzpo/Death%20Parade%20-%20BRADIO%20-%20Flyers.mp3?dl=0)
 
+[BRADIO - Flyers (live)](https://www.dropbox.com/s/dbdbv3f4j1yf2s8/BRADIO%20-%20Flyers%20%28Live%29.mp3?dl=0)
+
 DieBuster
 
 [Groovin Magic](https://www.dropbox.com/s/tr322ho2y46giks/DieBuster%20-%20Groovin%27s%20Magic%20DieBuster%20Ost.mp3?dl=0)
+
+Eromanga-sensei 
+
+[Hitorigoto](https://www.dropbox.com/s/1jv7lhg84b2c8tj/Eromanga-sensei%20-%20Hitorigoto.mp3?dl=0)
+
+Frame Arms Girl
+
+[Tiny Tiny](https://www.dropbox.com/s/7im8io9s6ndcyc1/Frame%20Arms%20Girl%20-%20Tiny%20Tiny.mp3?dl=0)
 
 Fullmetal Alchemist
 
@@ -595,7 +605,9 @@ Yojouhan Shinwa Taikei
 
 [Youjouhan Shinwa Taikei ED](https://www.dropbox.com/s/b410metyqfbj9y8/Yojouhan%20Shinwa%20Taikei%20-%2001%20Kami-sama%20no%20Iu%20Toori.mp3?dl=0)
 
+Yuru Yuri
 
+[Girls Power de](https://www.dropbox.com/s/1dsyi7pwgbohiie/Yuru%20Yuri%20-%20Girls%20Power%20de.mp3?dl=0)
 
 ## Oranges & Lemons - Tribute to Azumanga Daioh
 
