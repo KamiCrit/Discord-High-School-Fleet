@@ -310,7 +310,7 @@ Kemono Friends
 
 [Youkoso Japari Park e (Live VA)](https://www.dropbox.com/s/503fj8w2nvmrlhy/Kemono%20Friends%20-%20Youkoso%20Japari%20Park%20e%20%28Live%20VA%29.mp3?dl=0)
 
-[Youkoso Japari Park e (Live Oishi Masayoshi)](https://www.dropbox.com/s/uh9oi1njg0rdvnp/Kemono%20Friends%20-%20Youkoso%20Japari%20Park%20e%20%28Live%20Oishi%20Masayoshi%29.mp3?dl=0)
+[Youkoso Japari Park e (Live Masayoshi Ooishi)](https://www.dropbox.com/s/uh9oi1njg0rdvnp/Kemono%20Friends%20-%20Youkoso%20Japari%20Park%20e%20%28Live%20Masayoshi%20Ooishi%29.mp3?dl=0)
 
 Kobayashi-san Chi no Maid Dragon
 
