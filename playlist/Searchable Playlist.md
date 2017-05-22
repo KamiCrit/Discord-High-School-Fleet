@@ -1,4 +1,4 @@
-2017-05-22 1200
+2017-05-22 1430
 
 **Crtl+F and right click URL's for quick !play-ing of songs:**
 
@@ -307,6 +307,8 @@ Kemono Friends
 [Boku no Friend](https://www.dropbox.com/s/7vvr12pn82mcm4u/Kemono%20Friends%20-%20Boku%20no%20Friend.mp3?dl=0)
 
 [Oozora Dreamer](https://www.dropbox.com/s/3n3y4eo5e7wcwep/Kemono%20Friends%20-%20Oozora%20Dreamer.mp3?dl=0)
+
+[Youkoso Japari Park e (PPP ver.)](https://www.dropbox.com/s/i34vqaaxh245ryu/Kemono%20Friends%20-%20Youkoso%20Japari%20Park%20e%20%28PPP%20ver.%29.mp3?dl=0)
 
 [Youkoso Japari Park e (Live VA)](https://www.dropbox.com/s/503fj8w2nvmrlhy/Kemono%20Friends%20-%20Youkoso%20Japari%20Park%20e%20%28Live%20VA%29.mp3?dl=0)
 
