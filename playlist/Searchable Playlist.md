@@ -1,4 +1,4 @@
-2017-05-21 1500
+2017-05-22 1200
 
 **Crtl+F and right click URL's for quick !play-ing of songs:**
 
@@ -1698,20 +1698,6 @@ Uma Musume Pretty Derby
 
 [Supernova](https://www.youtube.com/watch?v=4u_7gxcvni8)
 
-## KIVA Category
-
-[Dasein](https://www.youtube.com/watch?v=Xb2jS7cSwHY)
-
-[Phanerozoic](https://www.youtube.com/watch?v=zsKU-iKXIRg)
-
-[Preface](https://www.youtube.com/watch?v=R0YOVyve67M)
-
-[Qualia](https://www.youtube.com/watch?v=CZfjDFqfjuA)
-
-[Black Hole](https://www.youtube.com/watch?v=fA4aANYJ4U0)
-
-[Let Me Go](https://www.youtube.com/watch?v=s3ajqCBmYys)
-
 ## XI Category
 
 [Halycon](https://www.youtube.com/watch?v=KgZOITzM05c)
@@ -1751,30 +1737,6 @@ Uma Musume Pretty Derby
 [Indepedent Puppet](https://www.youtube.com/watch?v=9PEBvw1XFcg)
 
 [Terminal](https://www.youtube.com/watch?v=Z7OQUsRP3TQ)
-
-## M2U Category
-
-[Quo Vadis](https://www.youtube.com/watch?v=7pY2y3ABo_Y)
-
-[Gypstronic](https://www.youtube.com/watch?v=pVeBWdE2Wrk)
-
-[Howling](https://www.youtube.com/watch?v=zQKOIPfAjCk)
-
-[Masquerade](https://www.youtube.com/watch?v=_-LpDo9vVN8)
-
-[A Bella!](https://www.youtube.com/watch?v=vJk4K9ASKIY)
-
-[Gravity](https://www.youtube.com/watch?v=cfX1yBMQW3E)
-
-[Stellar](https://www.youtube.com/watch?v=Ie2c3vN2YUQ)
-
-[PandorA](https://www.youtube.com/watch?v=3EfmUf7ZR8E)
-
-[Velocity](https://www.youtube.com/watch?v=NmjlN6vo92w)
-
-[Wicked Fate](https://www.youtube.com/watch?v=PF22ak1gJ9w)
-
-[Lunatic Sky](https://www.youtube.com/watch?v=xsEQuSZkGnw)
 
 # Brocky
 
