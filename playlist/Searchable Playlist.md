@@ -1,4 +1,4 @@
-2017-05-22 1430
+2017-05-25 0000
 
 **Crtl+F and right click URL's for quick !play-ing of songs:**
 
@@ -154,6 +154,8 @@ Eromanga-sensei
 
 [Hitorigoto](https://www.dropbox.com/s/1jv7lhg84b2c8tj/Eromanga-sensei%20-%20Hitorigoto.mp3?dl=0)
 
+[adrenaline!!!](https://www.dropbox.com/s/gfyb6m7hgjwmdbn/Eromanga-sensei%20-%20adrenaline%21%21%21.mp3?dl=0)
+
 Frame Arms Girl
 
 [Tiny Tiny](https://www.dropbox.com/s/7im8io9s6ndcyc1/Frame%20Arms%20Girl%20-%20Tiny%20Tiny.mp3?dl=0)
@@ -266,7 +268,7 @@ K-On
 
 [Utauyo!!MIRACLE](https://www.dropbox.com/s/rh6ch9c0leewsdh/K-On%21%21%20-%2001%20-%20Utauyo%21%21MIRACLE.mp3?dl=0)
 
-Tea
+K-On (Tea Time)
 
 [Have some tea](https://www.dropbox.com/s/bqt5w59ntl1x39y/K-On%21%20-%2001%20-%20Have%20some%20tea.mp3?dl=0)
 
@@ -285,6 +287,12 @@ Tea
 [Spilled tea](https://www.dropbox.com/s/7osvba1smrzktxp/K-On%21%20Movie%20-%2017%20-%20Spilled%20tea.mp3?dl=0)
 
 [Traditional tea](https://www.dropbox.com/s/bb1kmsmg305q94y/K-On%21%20Movie%20-%2018%20-%20Traditional%20tea.mp3?dl=0)
+
+Kabukibu!
+
+[Running High](https://www.dropbox.com/s/2d9rl2l6mhzvxko/Kabukibu%21%20-%20Running%20High.mp3?dl=0)
+
+[O・EDO](https://www.dropbox.com/s/fb7vvvx3k37k8ik/Kabukibu%21%20-%20%E3%81%8A%E6%B1%9F%E6%88%B8-O%E3%83%BBEDO-.mp3?dl=0)
 
 Kami nomi zo Shiru Sekai
 
@@ -595,6 +603,10 @@ Totoro
 [The path of the wind totoro](https://soundcloud.com/nguyenrom/the-path-of-the-wind-totoro)
 
 [Tonari no totoro ending](https://soundcloud.com/snuryus/tonari-no-totoro-ending)
+
+Tsugumomo
+
+[METAMORISER](https://www.dropbox.com/s/g1qz2dco4ggw67n/Tsugumomo%20-%20METAMORISER.mp3?dl=0)
 
 Uchuu Senkan Yamato 2199
 
