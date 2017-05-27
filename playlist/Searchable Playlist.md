@@ -1,4 +1,4 @@
-2017-05-25 0000
+2017-05-27 0930
 
 **Crtl+F and right click URL's for quick !play-ing of songs:**
 
@@ -927,6 +927,8 @@ SideM
 [C H A T T Y (CHATTY)](https://www.dropbox.com/s/j6mqyvy16shnnek/C%E3%83%BBH%E3%83%BBA%E3%83%BBT%E3%83%BBT%E3%83%BBY.mp3?dl=0)
 
 [HANDMADE EVERYDAY](https://www.dropbox.com/s/j0lrh9ku6o6pnhr/HANDMADE%20EVERYDAY%E2%99%AA.mp3?dl=0)
+
+[TRIGGER HAPPY GIRL](https://www.dropbox.com/s/d7cxz5vg2t6eo6r/TRIGGER%20HAPPY%20GIRL.mp3?dl=0)
 
 ## Anime Songs
 
