@@ -2502,7 +2502,7 @@ Uma Musume Pretty Derby
 
 [ゆいこんぬ](https://youtu.be/KsxaenQU7aU?list=PLo6AKDnecdaO6y8t1fkI4Cecj4JO5HjEf)
 
-[告白日和])(https://youtu.be/CfB4kaV2yQo?list=PLo6AKDnecdaO6y8t1fkI4Cecj4JO5HjEf)
+[告白日和](https://youtu.be/CfB4kaV2yQo?list=PLo6AKDnecdaO6y8t1fkI4Cecj4JO5HjEf)
 
 [ルートスフィア](https://youtu.be/hb5JOZOCGnY?list=PLo6AKDnecdaO6y8t1fkI4Cecj4JO5HjEf)
 
