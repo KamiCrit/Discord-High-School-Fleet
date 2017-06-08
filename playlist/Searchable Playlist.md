@@ -1,4 +1,4 @@
-2017-05-29 2115
+2017-06-07 1815
 
 **Crtl+F and right click URL's for quick !play-ing of songs:**
 
@@ -946,6 +946,10 @@ Kancolle
 
 [Cape Kaga](https://www.dropbox.com/s/a6i6p0cviz1s0n0/Cape%20Kaga.mp3?dl=0)
 
+[Our Bond with the Admiral](https://www.dropbox.com/s/vvpgbgt8ow84ixs/Our%20Bond%20with%20the%20Admiral.mp3?dl=0)
+
+[Doko Made mo Hibiku Harasho](https://www.dropbox.com/s/6u0l1tm7piirm41/Doko%20Made%20mo%20Hibiku%20Harasho.mp3?dl=0)
+
 Hanayamata
 
 [Hana wa Odore ya Irohaniho](https://www.dropbox.com/s/g8uk4jqzlqr321x/Hana%20wa%20Odore%20ya%20Irohaniho.mp3?dl=0)
@@ -1131,6 +1135,22 @@ Hinako Note
 Urara Meirochou
 
 [Uraraka Biyori no Shijuusou](https://www.dropbox.com/s/bmly7lvpev5ii63/Uraraka%20Biyori%20no%20Shijuusou.mp3?dl=0)
+
+Tsuki ga Kirei
+
+[Imakoko](https://www.dropbox.com/s/3feljs8ujrnkzpd/Imakoko.mp3?dl=0)
+
+[Tsuki ga Kirei](https://www.dropbox.com/s/t7pqvlowjh987er/Tsuki%20ga%20Kirei.mp3?dl=0)
+
+[Hatsukoi](https://www.dropbox.com/s/us47o1ksx9tsly9/Hatsukoi.mp3?dl=0)
+
+Kaitou Tenshi Twin Angel
+
+[Love-tte Jewelry Angel Break!!](https://www.dropbox.com/s/uqk637o4v765g03/Love-tte%E2%99%A5Jewelry%E2%99%AAAngel%E2%98%86Break%21%21.mp3?dl=0)
+
+Renai Boukun 
+
+[Koi? De Ai? De Boukun desu!](https://www.dropbox.com/s/zykekdtze38922b/Koi%EF%BC%9F%20De%20Ai%EF%BC%9F%20De%20Boukun%20desu%21.mp3?dl=0)
 
 ## Other Songs
 
@@ -2394,6 +2414,138 @@ Uma Musume Pretty Derby
 
 [ハンディキャップ](https://youtu.be/4mAoJexG1TQ)
 
+## Yuiko
+
+[In the Garden](https://youtu.be/5Cof9rP7TEQ?list=RD5Cof9rP7TEQ)
+
+[Fragile Garden](https://youtu.be/p_fn_0ENAbc?list=RD5Cof9rP7TEQ)
+
+[Awake](https://youtu.be/Za3SaGnFCFI?list=RD5Cof9rP7TEQ)
+
+[Primary World](https://youtu.be/uLjDP1hBkxU?list=RD5Cof9rP7TEQ)
+
+[心ノ約束](https://youtu.be/sdVn-_3O6GU?list=RD5Cof9rP7TEQ)
+
+[CrossRoad](https://youtu.be/FlqMQmS0cnU?list=RD5Cof9rP7TEQ)
+
+[Kageri Sora](https://youtu.be/bbnWqBH0qyo?list=RD5Cof9rP7TEQ)
+
+[Marigold](https://youtu.be/1YczJ6B-sWE?list=RD5Cof9rP7TEQ)
+
+[Caramel Heaven](https://youtu.be/WIqrKvfEJos?list=RD5Cof9rP7TEQ)
+
+[Sweet Weekend](https://youtu.be/ICfpraea5Sg)
+
+[セカイノハテ](https://youtu.be/_HrB6_k0CKA?list=PLo6AKDnecdaO6y8t1fkI4Cecj4JO5HjEf)
+
+[Doom and Gloom](https://youtu.be/h62CQJ-jwwE?list=PLo6AKDnecdaO6y8t1fkI4Cecj4JO5HjEf)
+
+[RooM](https://youtu.be/M1RhaikTvJY?list=PLo6AKDnecdaO6y8t1fkI4Cecj4JO5HjEf)
+
+[Aggeration](https://youtu.be/sECEM9WQi5k?list=PLo6AKDnecdaO6y8t1fkI4Cecj4JO5HjEf)
+
+[Dear Scarlet Sky](https://youtu.be/n1H1QQR-Y2A?list=PLo6AKDnecdaO6y8t1fkI4Cecj4JO5HjEf)
+
+[00-77](https://youtu.be/NNd_3DZo_ec?list=PLo6AKDnecdaO6y8t1fkI4Cecj4JO5HjEf)
+
+[蒼い海](https://youtu.be/u8jz-glSF3w?list=PLo6AKDnecdaO6y8t1fkI4Cecj4JO5HjEf)
+
+[マリーゴールド](https://youtu.be/wgJfTUtBwaU?list=PLo6AKDnecdaO6y8t1fkI4Cecj4JO5HjEf)
+
+[Butterfly](https://youtu.be/kaF1J1qOoG8?list=PLo6AKDnecdaO6y8t1fkI4Cecj4JO5HjEf)
+
+[二つ目の手](https://youtu.be/vtNWYqyXf4o?list=PLo6AKDnecdaO6y8t1fkI4Cecj4JO5HjEf)
+
+[Infinity](https://youtu.be/CY00cCCuyhI?list=PLo6AKDnecdaO6y8t1fkI4Cecj4JO5HjEf)
+
+[Thanks Too](https://youtu.be/S8O7dQyUC5Q?list=PLo6AKDnecdaO6y8t1fkI4Cecj4JO5HjEf)
+
+[僕らの色](https://youtu.be/eC9NbmJoI7I?list=PLo6AKDnecdaO6y8t1fkI4Cecj4JO5HjEf)
+
+[桜色の願い](https://youtu.be/erkf5SCQFIY?list=PLo6AKDnecdaO6y8t1fkI4Cecj4JO5HjEf)
+
+[君が望む世界](https://youtu.be/ezi3JgKukqM?list=PLo6AKDnecdaO6y8t1fkI4Cecj4JO5HjEf)
+
+[As](https://youtu.be/RIolKfG39eQ?list=PLo6AKDnecdaO6y8t1fkI4Cecj4JO5HjEf)
+
+[傷口](https://youtu.be/owl2oFXwCH8?list=PLo6AKDnecdaO6y8t1fkI4Cecj4JO5HjEf)
+
+[Perfect Lie](https://youtu.be/gr9U52uPyZI?list=PLo6AKDnecdaO6y8t1fkI4Cecj4JO5HjEf)
+
+[Shi'non](https://youtu.be/rqgTBs3NaFw?list=PLo6AKDnecdaO6y8t1fkI4Cecj4JO5HjEf)
+
+[Houkago Strive](https://youtu.be/c0jtG72PiWU?list=PLo6AKDnecdaO6y8t1fkI4Cecj4JO5HjEf)
+
+[Childhood Blues](https://youtu.be/1fPUBG8aJbg?list=PLo6AKDnecdaO6y8t1fkI4Cecj4JO5HjEf)
+
+[Sayako](https://youtu.be/4PMFvHWnQ2A?list=PLo6AKDnecdaO6y8t1fkI4Cecj4JO5HjEf)
+
+[How are you](https://youtu.be/o1TfDZ3w410?list=PLo6AKDnecdaO6y8t1fkI4Cecj4JO5HjEf)
+
+[Setsuna Trip](https://youtu.be/w3PwDYh0SIU?list=PLo6AKDnecdaO6y8t1fkI4Cecj4JO5HjEf)
+
+[Delusion Sketch](https://youtu.be/dJKs3viWuzI?list=PLo6AKDnecdaO6y8t1fkI4Cecj4JO5HjEf)
+
+[想像フォレスト](https://youtu.be/XOOPC3F7q5U?list=PLo6AKDnecdaO6y8t1fkI4Cecj4JO5HjEf)
+
+[如月アテンション](https://youtu.be/msbZOobsc-E?list=PLo6AKDnecdaO6y8t1fkI4Cecj4JO5HjEf)
+
+[スキキライ](https://youtu.be/WnB2LYe4M-E?list=PLo6AKDnecdaO6y8t1fkI4Cecj4JO5HjEf)
+
+[クノイチでも恋がしたい](https://youtu.be/MrOAKfa9Rnw?list=PLo6AKDnecdaO6y8t1fkI4Cecj4JO5HjEf)
+
+[深海少女](https://youtu.be/Q0rNBxCRogg?list=PLo6AKDnecdaO6y8t1fkI4Cecj4JO5HjEf)
+
+[まち](https://youtu.be/SSbuqXqX-w4?list=PLo6AKDnecdaO6y8t1fkI4Cecj4JO5HjEf)
+
+[ゆいこんぬ](https://youtu.be/KsxaenQU7aU?list=PLo6AKDnecdaO6y8t1fkI4Cecj4JO5HjEf)
+
+[告白日和])(https://youtu.be/CfB4kaV2yQo?list=PLo6AKDnecdaO6y8t1fkI4Cecj4JO5HjEf)
+
+[ルートスフィア](https://youtu.be/hb5JOZOCGnY?list=PLo6AKDnecdaO6y8t1fkI4Cecj4JO5HjEf)
+
+[┌|∵|┘](https://youtu.be/80Qn8ogaioQ?list=PLo6AKDnecdaO6y8t1fkI4Cecj4JO5HjEf)
+
+[Otsumiki Recital](https://youtu.be/t78g1u9hpRc?list=PLo6AKDnecdaO6y8t1fkI4Cecj4JO5HjEf)
+
+[青空メモリーズ](https://youtu.be/hOZfhM4_NVQ?list=PLo6AKDnecdaO6y8t1fkI4Cecj4JO5HjEf)
+
+[Solitary Flower](https://youtu.be/gWYUuZmD1vI?list=PLo6AKDnecdaO6y8t1fkI4Cecj4JO5HjEf)
+
+[カケラ](https://youtu.be/C_aEYRdUDT0?list=PLo6AKDnecdaO6y8t1fkI4Cecj4JO5HjEf)
+
+[Discolor](https://youtu.be/I2bZPizG2CA?list=PLo6AKDnecdaO6y8t1fkI4Cecj4JO5HjEf)
+
+[Prototype](https://youtu.be/018i8gEpQcU?list=PLo6AKDnecdaO6y8t1fkI4Cecj4JO5HjEf)
+
+[Junjou Skirt](https://youtu.be/Wa3ARmmREO0?list=PLo6AKDnecdaO6y8t1fkI4Cecj4JO5HjEf)
+
+[干物妹！うまるちゃん](https://youtu.be/2D5FhT39Qxs?list=PLo6AKDnecdaO6y8t1fkI4Cecj4JO5HjEf)
+
+[シリョクケンサ](https://youtu.be/TTndCOtnRlM?list=PLo6AKDnecdaO6y8t1fkI4Cecj4JO5HjEf)
+
+[Drop](https://youtu.be/I1wkvcoz6Mg?list=PLo6AKDnecdaO6y8t1fkI4Cecj4JO5HjEf)
+
+[夢地図](https://youtu.be/_mQdPgIzGII?list=PLo6AKDnecdaO6y8t1fkI4Cecj4JO5HjEf)
+
+[全力バタンキュー](https://youtu.be/4cmG-NrP1OA?list=PLo6AKDnecdaO6y8t1fkI4Cecj4JO5HjEf)
+
+[Secret Cover](https://youtu.be/x6bmsg6eJF8?list=PLo6AKDnecdaO6y8t1fkI4Cecj4JO5HjEf)
+
+[Ecstatic Vivace](https://youtu.be/jNCo1T0QmEo?list=PLo6AKDnecdaO6y8t1fkI4Cecj4JO5HjEf)
+
+[小夜子](https://youtu.be/-IjGzn09hKA?list=PLo6AKDnecdaO6y8t1fkI4Cecj4JO5HjEf)
+
+[すーぱーぬこわーるど](https://youtu.be/QGIjVcyyN84?list=PLo6AKDnecdaO6y8t1fkI4Cecj4JO5HjEf)
+
+[おこちゃま戦争](https://youtu.be/0dALy35idSY?list=PLo6AKDnecdaO6y8t1fkI4Cecj4JO5HjEf)
+
+[ナイショの話](https://youtu.be/WpbGXIHTw1U?list=PLo6AKDnecdaO6y8t1fkI4Cecj4JO5HjEf)
+
+[Spring Snow](https://youtu.be/sDSCb3Yt9Vg)
+
+[翳り空](https://youtu.be/GDmAn9xaeM8)
+
 # Brocky
 
 Tonari no Kaibutsu-kun
@@ -2823,3 +2975,15 @@ Ansatsu Kyoushitsu (assassination classroom)
 [Double Action Ax Form](https://www.dropbox.com/s/czidhy126z4vd2w/03%20-%20Double-Action%20Ax%20form.flac?dl=0)
 
 [Double Action Gun Form](https://www.dropbox.com/s/pfnwf6ijlwb6xy7/04%20-%20Double-Action%20Gun%20form.flac?dl=0)
+
+# N3DSdude
+
+## Weeb Music
+
+Boku no Hero Academia
+
+[THE DAY](https://www.dropbox.com/s/magen45t2w2bmwj/THE%20DAY.mp3?dl=0)
+
+[HEROES](https://www.dropbox.com/s/jwnr8vv2leficdo/HEROES.mp3?dl=0)
+
+[Dakara, Hitori ja nai](https://www.dropbox.com/s/8bmgv3vki7mqpv3/Dakara%2C%20Hitori%20ja%20nai.mp3?dl=0)
