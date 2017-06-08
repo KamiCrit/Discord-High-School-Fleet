@@ -22,7 +22,7 @@
 
 [MandalorTeSiit](https://github.com/KamiCrit/Discord-High-School-Fleet/blob/master/playlist/Searchable%20Playlist.md#mandalortesiit)
 
-[Ned](https://github.com/KamiCrit/Discord-High-School-Fleet/blob/master/playlist/Searchable%20Playlist.md#n3dsdude)
+[Ned](https://github.com/KamiCrit/Discord-High-School-Fleet/blob/master/playlist/Searchable%20Playlist.md#n3dsdude-lilacs-stolen-songs)
 
 [PinkyForever](https://github.com/KamiCrit/Discord-High-School-Fleet/blob/master/playlist/Searchable%20Playlist.md#pinkyforever)
 
