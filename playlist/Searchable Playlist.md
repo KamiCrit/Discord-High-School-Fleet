@@ -98,7 +98,7 @@ Bakuon!!
 
 Bernard-jou Iwaku.
 
-[Love! Library](https://www.dropbox.com/s/eyg88ag7umghmbp/Bernard-jou%20Iwaku.%20-%20Love%21%20Library.mp3?dl=0)
+[Love! Library](https://www.dropbox.com/s/czdj4608r4yh1l8/Bernard-jou%20Iwaku.%20-%20Love%21%20Library.mp3?dl=0)
 
 Boku dake ga Inai Machi / ERASED
 
