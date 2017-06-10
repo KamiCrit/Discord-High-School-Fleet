@@ -1,4 +1,4 @@
-2017-06-09 2300
+2017-06-10 1000
 
 **Crtl+F and right click URL's for quick !play-ing of songs:**
 
@@ -320,9 +320,17 @@ Kemono Friends
 
 [Youkoso Japari Park e (PPP ver.)](https://www.dropbox.com/s/i34vqaaxh245ryu/Kemono%20Friends%20-%20Youkoso%20Japari%20Park%20e%20%28PPP%20ver.%29.mp3?dl=0)
 
+[Youkoso Japari Park e (with Kaban)](https://www.dropbox.com/s/tk3f90wfqeg88b1/Kemono%20Friends%20-%20Youkoso%20Japari%20Park%20e%20%28with%20Kaban%29.mp3?dl=0)
+
 [Youkoso Japari Park e (Live VA)](https://www.dropbox.com/s/503fj8w2nvmrlhy/Kemono%20Friends%20-%20Youkoso%20Japari%20Park%20e%20%28Live%20VA%29.mp3?dl=0)
 
 [Youkoso Japari Park e (Live Masayoshi Ooishi)](https://www.dropbox.com/s/7qchxh3ysorcc46/Kemono%20Friends%20-%20Youkoso%20Japari%20Park%20e%20%28Live%20Masayoshi%20Ooishi%29.mp3?dl=0)
+
+[Kemono Parade -Japari Park Memorial-](https://www.dropbox.com/s/flktbo1lm4n6tza/Kemono%20Friends%20-%20Kemono%20Parade%20~Japari%20Park%20Memorial~.mp3?dl=0)
+
+[Hop Step Friends](https://www.dropbox.com/s/ooyzesia32dkzci/Kemono%20Friends%20-%20Hop%20Step%20Friends.mp3?dl=0)
+
+[Kimi no mama de](https://www.dropbox.com/s/063tgg4fhrk620v/Kemono%20Friends%20-%20Kimi%20no%20mama%20de.mp3?dl=0)
 
 Kobayashi-san Chi no Maid Dragon
 
