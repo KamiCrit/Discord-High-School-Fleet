@@ -1,4 +1,4 @@
-2017-06-07 1815
+2017-06-09 2300
 
 **Crtl+F and right click URL's for quick !play-ing of songs:**
 
@@ -2989,3 +2989,9 @@ Boku no Hero Academia
 [HEROES](https://www.dropbox.com/s/jwnr8vv2leficdo/HEROES.mp3?dl=0)
 
 [Dakara, Hitori ja nai](https://www.dropbox.com/s/8bmgv3vki7mqpv3/Dakara%2C%20Hitori%20ja%20nai.mp3?dl=0)
+
+Sakura Quest 
+
+[Morning Glory](https://www.dropbox.com/s/ieh7bea2nlbpe0r/Morning%20Glory.mp3?dl=0)
+
+[Freesia](https://www.dropbox.com/s/6g7sxqm6oxey5x7/Freesia.mp3?dl=0)
