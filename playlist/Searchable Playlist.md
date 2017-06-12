@@ -1,4 +1,4 @@
-2017-06-10 1000
+2017-06-11 1830
 
 **Crtl+F and right click URL's for quick !play-ing of songs:**
 
@@ -1943,8 +1943,6 @@ Uma Musume Pretty Derby
 [Center Piercing](https://youtu.be/WZVtmZVTnRM)
 
 [Transportation](https://youtu.be/vndRNQaVrgY)
-
-[水蓮](https://youtu.be/A9MrEzRKCbs?list=PL_Iqy3gzHAmPi2iLjZjd8hfMzP1naSiZO)
 
 [Sabbat](https://youtu.be/N_mw7bE2Sdk?list=PL_Iqy3gzHAmPi2iLjZjd8hfMzP1naSiZO)
 
