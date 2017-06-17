@@ -1,4 +1,4 @@
-2017-06-11 1830
+2017-06-17 1000
 
 **Crtl+F and right click URL's for quick !play-ing of songs:**
 
@@ -161,6 +161,8 @@ Eromanga-sensei
 Frame Arms Girl
 
 [Tiny Tiny](https://www.dropbox.com/s/7im8io9s6ndcyc1/Frame%20Arms%20Girl%20-%20Tiny%20Tiny.mp3?dl=0)
+
+[FULLSCRATCH LOVE](https://www.dropbox.com/s/ysqgzm6jauom61p/Frame%20Arms%20Girl%20-%20FULLSCRATCH%20LOVE.mp3?dl=0)
 
 Fullmetal Alchemist
 
@@ -359,6 +361,10 @@ Kono Subarashii Sekai ni Shukufuku wo! 2
 [TOMORROW](https://www.dropbox.com/s/azl5itymsrci0rb/Kono%20Subarashii%20Sekai%20ni%20Shukufuku%20wo%21%202%20-%2001.%20TOMORROW.mp3?dl=0)
 
 [Oie ni Kaeritai](https://www.dropbox.com/s/20w20c68i495gck/Kono%20Subarashii%20Sekai%20ni%20Shukufuku%20wo%21%202%20-%20Oie%20ni%20Kaeritai.mp3?dl=0)
+
+Koutetsujou no Kabaneri
+
+[KABANERI OF THE IRON FORTRESS](https://www.dropbox.com/s/0vjv0j9s43zkea9/Koutetsujou%20no%20Kabaneri%20-%20KABANERI%20OF%20THE%20IRON%20FORTRESS.mp3?dl=0)
 
 Love Live
 
