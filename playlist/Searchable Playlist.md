@@ -1,4 +1,4 @@
-2017-06-17 1100
+2017-07-08 0100
 
 **Crtl+F and right click URL's for quick !play-ing of songs:**
 
@@ -616,6 +616,10 @@ Tanaka-kun wa Itsumo Kedaruge
 
 [CooRie - BON-BON](https://www.dropbox.com/s/127b831ctqj0h5r/Tanaka-kun%20wa%20Itsumo%20Kedaruge%20-%20CooRie%20-%20BON-BON.mp3?dl=0)
 
+Tonari no Seki-kun
+
+[Meiwaku Spectacle](https://www.dropbox.com/s/li5fw8eg9xp5jk9/Tonari%20no%20Seki-kun%20-%20Meiwaku%20Spectacle.mp3?dl=0)
+
 Totoro
 
 [The path of the wind totoro](https://soundcloud.com/nguyenrom/the-path-of-the-wind-totoro)
@@ -888,11 +892,21 @@ Aqours
 
 [The World is All One](https://www.dropbox.com/s/issua1hkgthcghn/The%20world%20is%20all%20one%21%21%20%28M%40STER%20VERSION%29.mp3?dl=0)
 
+[Catch You Catch Me](https://www.dropbox.com/s/7ys68dp52iwv3b3/Catch%20You%20Catch%20Me.mp3?dl=0)
+
 Million Live
 
 [Sweet Sweet Soul](https://www.dropbox.com/s/254br3oh7wzsidt/Sweet%20Sweet%20Soul.mp3?dl=0)
 
 [bitter sweet](https://www.dropbox.com/s/kn4iiij5sk2o3ft/bitter%20sweet.mp3?dl=0)
+
+[Festa Illumination](https://www.dropbox.com/s/1sywb5gbwaw7gcq/Festa%20Illumination.mp3?dl=0)
+
+[Maria Trap](https://www.dropbox.com/s/ruflxqjlhak8z7m/Maria%20Trap.mp3?dl=0)
+
+[Aile](https://www.dropbox.com/s/4iw5ubua38g4mtt/Aile.mp3?dl=0)
+
+[Thank You!!](https://www.dropbox.com/s/am5mbh16qqb4jqq/Thank%20You%21%20%28765%20MILLIONSTARS%20Ver.%29.mp3?dl=0)
 
 Cinderella Girls
 
@@ -931,6 +945,12 @@ SideM
 [Waga Konton no Sabbath Marriage](https://www.dropbox.com/s/cx4bjircsh368mv/Waga%20Konton%20no%20Sabbath%20Marriage.mp3?dl=0)
 
 [Cafe Parade!](https://www.dropbox.com/s/pj31rch50q9qfvt/Cafe%20Parade%21.mp3?dl=0)
+
+[Kira! Mankai Smile](https://www.dropbox.com/s/z4amv8m9vgtpm8i/Kira%21%20Mankai%20Smile.mp3?dl=0) (Link replacement)
+
+[Etude wa Ikkyoku Dake](https://www.dropbox.com/s/xwfirhsku2vdu57/%C3%89tude%20wa%20Ikkyoku%20Dake.mp3?dl=0)
+
+[Sun Flower](https://www.dropbox.com/s/x2nn1fsmdk20vn5/SUN%E2%99%A1FLOWER.mp3?dl=0)
 
 ## High School Fleet / Haifuri
 
@@ -975,6 +995,8 @@ Hanayamata
 Girls und Panzer
 
 [Katyusha](https://www.dropbox.com/s/fwpkz2k32m1xc6o/Katyusha.mp3?dl=0)
+
+[Yuki no Shingun](https://www.dropbox.com/s/6ax29j71o8wb6w3/Yuki%20No%20Shingun%20%28Yukari%20%26%20Erwin%20Ver.%29.mp3?dl=0)
 
 Mahou Shoujo Madoka Magica
 
@@ -1130,6 +1152,8 @@ BanG Dream!
 
 [LOUDER](https://www.dropbox.com/s/67kvoskdl2c306c/LOUDER.mp3?dl=0)
 
+[Hidamari Rhodonite](https://www.dropbox.com/s/gqrya27yvv42h8e/Hidamari%20Rhodonite.mp3?dl=0)
+
 Long Riders!
 
 [♡ km/h](https://www.dropbox.com/s/faz23p1mzs31ey0/%E2%99%A1%20km%EF%BC%8Fh.mp3?dl=0)
@@ -1169,6 +1193,14 @@ Kaitou Tenshi Twin Angel
 Renai Boukun 
 
 [Koi? De Ai? De Boukun desu!](https://www.dropbox.com/s/zykekdtze38922b/Koi%EF%BC%9F%20De%20Ai%EF%BC%9F%20De%20Boukun%20desu%21.mp3?dl=0)
+
+Re:Creators
+
+[gravityWall](https://www.dropbox.com/s/z5o58lu0uw8e5q5/gravityWall.mp3?dl=0)
+
+[Layers](https://www.dropbox.com/s/ec8ng8jymexewk2/Layers.mp3?dl=0)
+
+[BRAVE THE OCEAN](https://www.dropbox.com/s/gxxhqn7btale2as/BRAVE%20THE%20OCEAN.mp3?dl=0)
 
 ## Other Songs
 
@@ -3009,3 +3041,11 @@ Sakura Quest
 [Morning Glory](https://www.dropbox.com/s/ieh7bea2nlbpe0r/Morning%20Glory.mp3?dl=0)
 
 [Freesia](https://www.dropbox.com/s/6g7sxqm6oxey5x7/Freesia.mp3?dl=0)
+
+## Non-Stolen Weeb Music
+
+Rokudenashi Majutsu Koushi to Akashic Records 
+
+[Blow Out](https://www.dropbox.com/s/a0dsh8xkgibqw4f/280129205BE988B4E69CA8E38193E381AEE381BF5D20B%CA%9F%E1%B4%8F%E1%B4%A120out.flac?dl=0)
+
+[Precious You?](https://www.dropbox.com/s/e0ygljjsrq60w7s/01%20Precious%20You%E2%98%86.mp3?dl=0)
