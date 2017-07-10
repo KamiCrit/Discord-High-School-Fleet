@@ -1,4 +1,4 @@
-2017-07-08 0100
+2017-07-10 1100
 
 **Crtl+F and right click URL's for quick !play-ing of songs:**
 
@@ -936,7 +936,11 @@ Cinderella Girls
 
 [Usubeni](https://www.dropbox.com/s/r5u7g7xhtawqn1n/Usubeni.mp3?dl=0)
 
-[Kiraa! Mankai Smile](https://www.dropbox.com/s/z4amv8m9vgtpm8i/Kiraa%21%20Mankai%20Smile.mp3?dl=0)
+[Kira! Mankai Smile](https://www.dropbox.com/s/z4amv8m9vgtpm8i/Kira%21%20Mankai%20Smile.mp3?dl=0)
+
+[Etude wa Ikkyoku Dake](https://www.dropbox.com/s/xwfirhsku2vdu57/%C3%89tude%20wa%20Ikkyoku%20Dake.mp3?dl=0)
+
+[Sun Flower](https://www.dropbox.com/s/x2nn1fsmdk20vn5/SUN%E2%99%A1FLOWER.mp3?dl=0)
 
 SideM
 
@@ -945,12 +949,6 @@ SideM
 [Waga Konton no Sabbath Marriage](https://www.dropbox.com/s/cx4bjircsh368mv/Waga%20Konton%20no%20Sabbath%20Marriage.mp3?dl=0)
 
 [Cafe Parade!](https://www.dropbox.com/s/pj31rch50q9qfvt/Cafe%20Parade%21.mp3?dl=0)
-
-[Kira! Mankai Smile](https://www.dropbox.com/s/z4amv8m9vgtpm8i/Kira%21%20Mankai%20Smile.mp3?dl=0) (Link replacement)
-
-[Etude wa Ikkyoku Dake](https://www.dropbox.com/s/xwfirhsku2vdu57/%C3%89tude%20wa%20Ikkyoku%20Dake.mp3?dl=0)
-
-[Sun Flower](https://www.dropbox.com/s/x2nn1fsmdk20vn5/SUN%E2%99%A1FLOWER.mp3?dl=0)
 
 ## High School Fleet / Haifuri
 
