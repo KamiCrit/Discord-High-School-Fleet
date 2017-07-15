@@ -1,4 +1,4 @@
-2017-07-10 1100
+2017-07-15 1420
 
 **Crtl+F and right click URL's for quick !play-ing of songs:**
 
@@ -110,6 +110,8 @@ Boku dake ga Inai Machi / ERASED
 
 [Asian Kung-Fu Generation - Re:Re: (2004)](https://www.dropbox.com/s/h8d0fr52s0b1kyp/Boku%20dake%20ga%20Inai%20Machi%20-%20Asian%20Kung-Fu%20Generation%20-%20ReRe%20%282004%29.mp3?dl=0)
 
+[AKG Tribute - Re:Re:](https://www.dropbox.com/s/onhz7rybgqlroqf/AKG%20Tribute%20-%20Re-Re-.mp3?dl=0)
+
 Choujigen Game Neptune The Animation
 
 [Neptune☆Sagashite](https://www.dropbox.com/s/61zwh40ffbv0ap2/Choujigen%20Game%20Neptune%20The%20Animation%20-%20Neptune%E2%98%86Sagashite.mp3?dl=0)
@@ -149,6 +151,8 @@ Danshi Koukousei no Nichijou
 Death Parade
 
 [Flyers](https://www.dropbox.com/s/8yicty2c6d9vzpo/Death%20Parade%20-%20BRADIO%20-%20Flyers.mp3?dl=0)
+
+[Flyers (live)](https://www.dropbox.com/s/dbdbv3f4j1yf2s8/BRADIO%20-%20Flyers%20%28Live%29.mp3?dl=0)
 
 DieBuster
 
@@ -300,6 +304,8 @@ Kabukibu!
 
 [O・EDO](https://www.dropbox.com/s/fb7vvvx3k37k8ik/Kabukibu%21%20-%20%E3%81%8A%E6%B1%9F%E6%88%B8-O%E3%83%BBEDO-.mp3?dl=0)
 
+[KABUKI ROCKS - お江戸-O・EDO-](https://www.dropbox.com/s/j65p5d0vd807vx3/KABUKI%20ROCKS%20-%20%E3%81%8A%E6%B1%9F%E6%88%B8-O%E3%83%BBEDO-.mp3?dl=0)
+
 Kami nomi zo Shiru Sekai
 
 [God only knows Daisanmaku](https://www.dropbox.com/s/xvarcv0ppig3win/Kami%20nomi%20zo%20Shiru%20Sekai%20-%20God%20only%20knows%20Daisanmaku.mp3?dl=0)
@@ -429,6 +435,8 @@ Nagato Yuki-chan no Shoushitsu
 Netoge no Yome wa Onnanoko ja Nai to Omotta?
 
 [Luce Twinkle Wink - 1st Love Story](https://www.dropbox.com/s/4yyn1rqjng954iy/Netoge%20no%20Yome%20wa%20Onnanoko%20ja%20Nai%20to%20Omotta%20-%2001.%201st%20Love%20Story.mp3?dl=0)
+
+[Shiny Day, Shiny Life](https://www.dropbox.com/s/dva8cua1fmrcxys/Netoge%20no%20Yome%20wa%20Onnanoko%20ja%20Nai%20to%20Omotta%20-%20Shiny%20Day%2C%20Shiny%20Life.mp3?dl=0)
 
 New Game!
 
@@ -751,10 +759,6 @@ Blue Avenue
 [SUPERGiRLS - Toshishita no Otoko no Ko](https://www.dropbox.com/s/58me9uasbi2cnsd/SUPERGiRLS%20-%20Toshishita%20no%20Otoko%20no%20Ko.mp3?dl=0)
 
 [AKB48 - 01. Koi Suru Fortune Cookie](https://www.dropbox.com/s/5qwv1ayt4qb3jld/AKB48%20-%2001.%20Koi%20Suru%20Fortune%20Cookie.mp3?dl=0)
-
-[AKG Tribute - Re:Re:](https://www.dropbox.com/s/onhz7rybgqlroqf/AKG%20Tribute%20-%20Re-Re-.mp3?dl=0)
-
-[BRADIO - Flyers (live)](https://www.dropbox.com/s/dbdbv3f4j1yf2s8/BRADIO%20-%20Flyers%20%28Live%29.mp3?dl=0)
 
 # Lilac
 
