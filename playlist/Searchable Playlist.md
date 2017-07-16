@@ -1,4 +1,4 @@
-2017-07-15 1420
+2017-07-15 1930
 
 **Crtl+F and right click URL's for quick !play-ing of songs:**
 
@@ -735,6 +735,14 @@ Claire
 Blue Avenue
 
 [I Love New Day](https://www.youtube.com/watch?v=5TQZZRtq83M)
+
+Opportunity
+
+[Kaleidoscope](https://www.dropbox.com/s/x8m083sx4kphzqf/Kana%20Hanazawa%20-%2006.%20%E3%82%AB%E3%83%AC%E3%82%A4%E3%83%89%E3%82%B9%E3%82%B3%E3%83%BC%E3%83%97.mp3?dl=0)
+
+[Marmalade Jam](https://www.dropbox.com/s/q2qplg606ror856/Kana%20Hanazawa%20-%2008.%20Marmalade%20Jam.mp3?dl=0)
+
+[FLOWER MARKET](https://www.dropbox.com/s/okoqufk9lo2gg9s/Kana%20Hanazawa%20-%2012.%20FLOWER%20MARKET.mp3?dl=0)
 
 ### Other
 
