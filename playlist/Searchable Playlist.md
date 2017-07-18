@@ -1,4 +1,4 @@
-2017-07-15 1930
+2017-07-18 1300
 
 **Crtl+F and right click URL's for quick !play-ing of songs:**
 
@@ -49,6 +49,10 @@
 [Meow sound](https://www.dropbox.com/s/71ingtnwrqzk6nz/3-Gatsu%20No%20Lion%20-%2001.%20Meow%20sound.mp3?dl=0)
 
 [JIKAIYOKOKU](https://www.dropbox.com/s/6ksstsrledafr92/3-Gatsu%20no%20Lion%20-%20JIKAIYOKOKU.mp3?dl=0)
+
+Aho Girl
+
+[Summer!](https://www.dropbox.com/s/gx8ai1axh90u170/Aho%20Girl%20-%20%E5%85%A8%E5%8A%9B%E2%98%86Summer%21.mp3?dl=0)
 
 Aiura
 
