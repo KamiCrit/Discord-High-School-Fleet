@@ -1,4 +1,4 @@
-2017-07-18 1300
+2017-07-22 2230
 
 **Crtl+F and right click URL's for quick !play-ing of songs:**
 
@@ -544,6 +544,10 @@ Sengoku Choujuu Giga
 
 [Gekokujou de okashi cha e!](https://www.dropbox.com/s/4nsiwhrpluo6iwr/Sengoku%20Choujuu%20Giga%20-%20Gekokujou%20de%20okashi%20cha%20e%21.mp3?dl=0)
 
+Servant x Service
+
+[May I Help You?](https://www.dropbox.com/s/05b52bpognuvc4q/Servant%20x%20Service%20-%20May%20I%20Help%20You.mp3?dl=0)
+
 Shakunetsu no Takkyuu Musume
 
 [Shakunetsu Switch](https://www.dropbox.com/s/75twqehfdf7ocm9/Shakunetsu%20no%20Takkyuu%20Musume%20-%20Shakunetsu%20Switch.mp3?dl=0)
@@ -982,6 +986,36 @@ SideM
 
 [TRIGGER HAPPY GIRL](https://www.dropbox.com/s/d7cxz5vg2t6eo6r/TRIGGER%20HAPPY%20GIRL.mp3?dl=0)
 
+## BanG Dream!
+
+Poppin' Party
+
+[Tokimeki Experience](https://www.dropbox.com/s/th6721rmgm1ws9t/Tokimeki%20Experience.mp3?dl=0)
+
+[Hashiri Hajimeta Bakari no Kimi ni](https://www.dropbox.com/s/utvb40n3ovhb098/Hashiri%20Hajimeta%20Bakari%20no%20Kimi%20ni.mp3?dl=0)
+
+[Teardrops](https://www.dropbox.com/s/d3ox1mxltui9r2a/Teardrops.mp3?dl=0)
+
+[Poppin' Party](https://www.dropbox.com/s/5bqeo3pxwslf6gh/Poppin%27%20Party.mp3?dl=0)
+
+[Natsuzora SUN! SUN! SEVEN!](https://www.dropbox.com/s/pg02dpl63ebr26f/Natsuzora%20SUN%21%20SUN%21%20SEVEN%21.mp3?dl=0)
+
+[STAR BEAT! ~Hoshi no Kodou~](https://www.dropbox.com/s/az76wxcny1y5cdl/STAR%20BEAT%21%20%EF%BD%9EHoshi%20no%20Kodou%EF%BD%9E.mp3?dl=0)
+
+[Mae e Susume!](https://www.dropbox.com/s/qw2w7ukktoj5nx2/Mae%20e%20Susume%21.mp3?dl=0)
+
+Roselia
+
+[BLACK SHOUT](https://www.dropbox.com/s/lqhstmvrwua9el4/BLACK%20SHOUT.mp3?dl=0)
+
+[LOUDER](https://www.dropbox.com/s/67kvoskdl2c306c/LOUDER.mp3?dl=0)
+
+[Hidamari Rhodonite](https://www.dropbox.com/s/gqrya27yvv42h8e/Hidamari%20Rhodonite.mp3?dl=0)
+
+Pastel*Palettes
+
+[Shuwarin Dream~in](https://www.dropbox.com/s/cb5jj8frngi76p4/Shuwarin%E2%98%86Drea~min.mp3?dl=0)
+
 ## Anime Songs
 
 Saki Achiga-hen
@@ -1076,6 +1110,8 @@ Wake Up, Girls!
 
 [Wug Zoo Zoo](https://www.dropbox.com/s/rdb3b1c3ad1n2x3/Wug%20Zoo%20Zoo.mp3?dl=0)
 
+[Sugao de KISS ME](https://www.dropbox.com/s/53u28jwbxmructh/Sugao%20de%20KISS%20ME.mp3?dl=0)
+
 Masamune-kun no Revenge
 
 [Wagamama Mirror Heart](https://www.dropbox.com/s/zq2lwrfdkdqn15x/Wagamama%20MIRROR%20HEART.mp3?dl=0)
@@ -1152,22 +1188,6 @@ Shigatsu wa Kimi no Uso
 
 [Hikaru nara](https://www.dropbox.com/s/59699d81l5tef1s/Hikaru%20nara.mp3?dl=0)
 
-BanG Dream!
-
-[Tokimeki Experience](https://www.dropbox.com/s/th6721rmgm1ws9t/Tokimeki%20Experience.mp3?dl=0)
-
-[Hashiri Hajimeta Bakari no Kimi ni](https://www.dropbox.com/s/utvb40n3ovhb098/Hashiri%20Hajimeta%20Bakari%20no%20Kimi%20ni.mp3?dl=0)
-
-[Teardrops](https://www.dropbox.com/s/d3ox1mxltui9r2a/Teardrops.mp3?dl=0)
-
-[Poppin' Party](https://www.dropbox.com/s/5bqeo3pxwslf6gh/Poppin%27%20Party.mp3?dl=0)
-
-[BLACK SHOUT](https://www.dropbox.com/s/lqhstmvrwua9el4/BLACK%20SHOUT.mp3?dl=0)
-
-[LOUDER](https://www.dropbox.com/s/67kvoskdl2c306c/LOUDER.mp3?dl=0)
-
-[Hidamari Rhodonite](https://www.dropbox.com/s/gqrya27yvv42h8e/Hidamari%20Rhodonite.mp3?dl=0)
-
 Long Riders!
 
 [♡ km/h](https://www.dropbox.com/s/faz23p1mzs31ey0/%E2%99%A1%20km%EF%BC%8Fh.mp3?dl=0)
@@ -1216,6 +1236,12 @@ Re:Creators
 
 [BRAVE THE OCEAN](https://www.dropbox.com/s/gxxhqn7btale2as/BRAVE%20THE%20OCEAN.mp3?dl=0)
 
+[Sh0ut](https://www.dropbox.com/s/o0pmq55aqtqyw8f/sh0ut.mp3?dl=0)
+
+Fate/Apocrypha
+
+[Eiyuu Unmei no Uta](https://www.dropbox.com/s/6haaf584j3kotnf/Eiyuu%20Unmei%20no%20Uta.mp3?dl=0)
+
 ## Other Songs
 
 [Cyber Thunder Cider](https://www.dropbox.com/s/qb9lm14yks4uyam/Cyber%20Thunder%20Cider.mp3?dl=0)
@@ -1247,6 +1273,16 @@ Uma Musume Pretty Derby
 [Rising Girl](https://www.dropbox.com/s/ny4oqa39mdw17rc/Rising%20Girl.mp3?dl=0)
 
 [Secret GRADUATION](https://www.dropbox.com/s/qlx9cpqvq71pozp/Secret%20GRADUATION.mp3?dl=0)
+
+Re:Stage!
+
+[Startin' My Re:STAGE!!](https://www.dropbox.com/s/cks0uyxumfoophc/Startin%27%20My%20Re%EF%BC%9ASTAGE%21%21.mp3?dl=0)
+
+[Akogare Future Sign](https://www.dropbox.com/s/ygsev5grtg4ljm1/Akogare%20Future%20Sign.mp3?dl=0)
+
+[Do it!! PARTY!!](https://www.dropbox.com/s/16r2vuasxnfxrxn/Do%20it%21%21%20PARTY%21%21.mp3?dl=0)
+
+[Dream a gate](https://www.dropbox.com/s/5qdh8y2ftxo8y9b/Dream%20a%20gate.mp3?dl=0)
 
 # MandalorTeSiit
 
