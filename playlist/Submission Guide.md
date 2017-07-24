@@ -9,15 +9,31 @@ From most to least
 3) General Japaense Music (music should have Japanese lyrics)
 4) Anime OST
 
-## How to format song for the auto playlist
+## How shoud my submission be formatted?
 
->Link to formatting example here<
+[Answer here!](..blob/master/playlist/Formatting%20Example)
+
+```
+# KamiCrit
+
+## Music (or what ever you want to categorize your songs as)
+
+High School Fleet
+
+[High Free Spirits](https://www.dropbox.com/s/a2kg3l67xf88ddi/High%20School%20Fleet%20-%2001%20-%20High%20Free%20Spirits.mp3?dl=0)
+
+[Ripple Effect](https://www.dropbox.com/s/uhnyh9tj34yv0ij/High%20School%20Fleet%20-%2001%20-%20Ripple%20Effect.mp3?dl=0)
+```
 
 ## How to Submit Songs to the Auto Playlist
 
-PM KamiCrit#3786
+PM KamiCrit#3786 a .txt file of your new/updated auto playlist section
 
-## Finding your section in the auto playlist after it's been approved
+Or fork and submit a pull request.
 
-Click to the raw button 
+## How to find your auto playlist section in raw text
+
+[Click the raw button](https://raw.githubusercontent.com/KamiCrit/Discord-High-School-Fleet/master/playlist/Searchable%20Playlist.md)
+
+![alt text](https://raw.githubusercontent.com/KamiCrit/Discord-High-School-Fleet/master/playlist/Raw%20Button.png)
 
