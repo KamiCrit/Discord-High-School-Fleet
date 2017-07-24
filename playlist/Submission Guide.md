@@ -11,7 +11,7 @@ From most to least
 
 ## How shoud my submission be formatted?
 
-Like so! Note the double line spacing.](../playlist/Formatting%20Example)
+Like so! Note the double line spacing.
 
 ```
 # KamiCrit
