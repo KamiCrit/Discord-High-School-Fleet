@@ -1,4 +1,4 @@
-2017-07-22 2230
+2017-07-24 0100
 
 **Crtl+F and right click URL's for quick !play-ing of songs:**
 
@@ -3076,7 +3076,7 @@ Ansatsu Kyoushitsu (assassination classroom)
 
 # ~~N3DSdude~~ Lilac's Stolen Songs
 
-## Weeb Music
+## Stolen Weeb Music
 
 Boku no Hero Academia
 
@@ -3099,3 +3099,9 @@ Rokudenashi Majutsu Koushi to Akashic Records
 [Blow Out](https://www.dropbox.com/s/a0dsh8xkgibqw4f/280129205BE988B4E69CA8E38193E381AEE381BF5D20B%CA%9F%E1%B4%8F%E1%B4%A120out.flac?dl=0)
 
 [Precious You?](https://www.dropbox.com/s/e0ygljjsrq60w7s/01%20Precious%20You%E2%98%86.mp3?dl=0)
+
+Ro-Kyu-Bu!
+
+[SHOOT!](https://www.dropbox.com/s/ti5yb8cxjdw2ql6/01.%20SHOOT%21.mp3?dl=0)
+
+[Party Love](https://www.dropbox.com/s/7uwnwml63o4nnvt/02.%20Party%20Love%20~Okkiku%20Naritai~.mp3?dl=0)
