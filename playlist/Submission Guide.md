@@ -1,15 +1,15 @@
 # Auto Playlist Submission Guide
 
-## What's acceptiable?
+## What's acceptable?
 
 From most to least
 
 1) Anime OP's and ED's
-2) Anime OP and ED remixs (but not meme remixes, radio's hold final say if the remix is too meme-y)
-3) General Japaense Music (music should have Japanese lyrics)
+2) Anime OP and ED remixes (but not meme remixes, radio's hold final say if the remix is too meme-y)
+3) General Japanense Music (music should have Japanese lyrics)
 4) Anime OST
 
-## How shoud my submission be formatted?
+## How should my submission be formatted?
 
 Like so! Note the double line spacing.
 
