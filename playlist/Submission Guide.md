@@ -6,7 +6,7 @@ From most to least
 
 1) Anime OP's and ED's
 2) Anime OP and ED remixes (but not meme remixes, radio's hold final say if the remix is too meme-y)
-3) General Japanense Music (music should have Japanese lyrics)
+3) General Japanese Music (music should have Japanese lyrics)
 4) Anime OST
 
 ## How should my submission be formatted?
