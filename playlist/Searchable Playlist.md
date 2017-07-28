@@ -3105,3 +3105,7 @@ Ro-Kyu-Bu!
 [SHOOT!](https://www.dropbox.com/s/ti5yb8cxjdw2ql6/01.%20SHOOT%21.mp3?dl=0)
 
 [Party Love](https://www.dropbox.com/s/7uwnwml63o4nnvt/02.%20Party%20Love%20~Okkiku%20Naritai~.mp3?dl=0)
+
+Tenshi no 3P!
+
+[Habataki no Birthday](https://www.dropbox.com/s/v73wzl3kjzn8f1q/01.%20Habataki%20no%20Birthday.mp3?dl=0)
