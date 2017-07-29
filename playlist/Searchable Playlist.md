@@ -54,6 +54,8 @@ Aho Girl
 
 [Summer!](https://www.dropbox.com/s/gx8ai1axh90u170/Aho%20Girl%20-%20%E5%85%A8%E5%8A%9B%E2%98%86Summer%21.mp3?dl=0)
 
+[あんぢぇら音頭](https://www.dropbox.com/s/ugby7eh77gs3gue/Aho%20Girl%20-%20%E3%81%82%E3%82%93%E3%81%A2%E3%81%87%E3%82%89%E9%9F%B3%E9%A0%AD.mp3?dl=0)
+
 Aiura
 
 [Kani Do-Luck!](https://www.dropbox.com/s/cwugoobbi95qvqk/Aiura%20-%20Aiu%20rabu%20-%20Kani%20Do-Luck%21.mp3?dl=0)
