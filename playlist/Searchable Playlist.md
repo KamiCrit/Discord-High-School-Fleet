@@ -1,4 +1,4 @@
-2017-07-28 1500
+2017-08-03 0230
 
 **Crtl+F and right click URL's for quick !play-ing of songs:**
 
@@ -244,6 +244,10 @@ Girls Und Panzer Der Film
 
 [Panzerlied](https://www.dropbox.com/s/0ttvjlg9l91f0c9/Girls%20und%20Panzer%20Der%20Film%20-%2007.%20Panzerlied.mp3?dl=0)
 
+Haiyore! Nyaruko-san W
+
+[Yotte S.O.S.](https://www.dropbox.com/s/2caw9c8b6xiz1nf/Haiyore%21%20Nyaruko-san%20W%20-%20Yotte%20S.O.S.mp3?dl=0)
+
 Hibike
 
 [TRUE - Dream Solister](https://www.dropbox.com/s/chfw9fu5x58fcsp/Hibike%21%20Euphonium%20-%20TRUE%20-%20DREAM%20SOLISTER.mp3?dl=0)
@@ -449,6 +453,12 @@ New Game!
 [SAKURA Skip](https://www.dropbox.com/s/5xnxu4bsza5hg6q/New%20Game%20-%2001.%20SAKURA%20Skip.mp3?dl=0)
 
 [Now Loading!!!!](https://www.dropbox.com/s/162kzxf3f92ya7r/New%20Game%20-%20Now%20Loading%21%21%21%21.mp3?dl=0)
+
+New Game!!
+
+[STEP by STEP UP↑↑↑↑](https://www.dropbox.com/s/ve9w9a0p0va9bez/New%20Game%21%21%20-%20STEP%20by%20STEP%20UP%E2%86%91%E2%86%91%E2%86%91%E2%86%91.mp3?dl=0)
+
+[JUMPin' JUMP UP!!!!](https://www.dropbox.com/s/y5m3trgk9yn1s5b/New%20Game%21%21%20-%20JUMPin%27%20JUMP%20UP%21%21%21%21.mp3?dl=0)
 
 Nichijou
 
