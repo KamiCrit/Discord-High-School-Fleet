@@ -658,6 +658,10 @@ Tsugumomo
 
 [METAMORISER](https://www.dropbox.com/s/g1qz2dco4ggw67n/Tsugumomo%20-%20METAMORISER.mp3?dl=0)
 
+Uchiage Hanabi, Shita kara Miru ka? Yoko kara Miru ka?
+
+[Forever Friends](https://www.dropbox.com/s/ri75ahdb9ikbwab/Uchiage%20Hanabi%2C%20Shita%20kara%20Miru%20ka%20Yoko%20kara%20Miru%20ka%20-%20Forever%20Friends.mp3?dl=0)
+
 Uchuu Senkan Yamato 2199
 
 [Space Battleship Yamato](https://www.dropbox.com/s/84rtldoldsr22qd/Uchuu%20Senkan%20Yamato%202199%20-%20Space%20Battleship%20Yamato.mp3?dl=0)
