@@ -35,5 +35,5 @@ Or fork and submit a pull request.
 
 [Click the raw button](https://raw.githubusercontent.com/KamiCrit/Discord-High-School-Fleet/master/playlist/Searchable%20Playlist.md)
 
-![alt text](https://raw.githubusercontent.com/KamiCrit/Discord-High-School-Fleet/master/playlist/Raw%20Button.png)
+![alt text](https://raw.githubusercontent.com/KamiCrit/Discord-High-School-Fleet/guide/Raw%20Button.png)
 
