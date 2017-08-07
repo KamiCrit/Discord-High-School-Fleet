@@ -1,4 +1,4 @@
-2017-08-03 0230
+2017-08-07 1530
 
 **Crtl+F and right click URL's for quick !play-ing of songs:**
 
@@ -1442,17 +1442,47 @@ Re:Stage!
 
 [Ghost Rule](https://www.youtube.com/watch?v=NHQdDs1I5LM)
 
+[Streaming Heart](https://www.dropbox.com/s/1q4p73ivhovn2eh/Streaming%20Heart%20-%20Soraru.mp3?dl=0)
+
+[Donut Hole](https://www.youtube.com/watch?v=GvrCH7gq1Kc)
+
+[Lost Time Memory](https://www.dropbox.com/s/n5lkzokos1n0mrp/Lost%20Time%20Memory%20-%20Soraru.mp3?dl=0)
+
+[World Calling](https://www.youtube.com/watch?v=N_EXEWA_868)
+
+[Hello, Worker](https://www.youtube.com/watch?v=Rkoaji09kXg)
+
+[Clean Freak](https://www.youtube.com/watch?v=HUDHmJsJvYc)
+
+[Pomp and Circumstance](https://tmbox.net/pl/789009)
+
+[Unhappy Refrain](https://www.youtube.com/watch?v=xYRDBK3LoFQ)
+
+[Lost One's Weeping](https://www.youtube.com/watch?v=IoKhXdPJRQg)
+
+[Dear Doppelganger](https://www.youtube.com/watch?v=zyMhjcu3yeA)
+
+Soraai
+
 [Kimi no Mewo](https://www.youtube.com/watch?v=4msdlMZBxiQ)
 
 [Kagerou Days](https://www.youtube.com/watch?v=YIY1--KbFk4)
+
+[Kusare Gedou to Chocolate](https://www.youtube.com/watch?v=ctPWhjEWz2Y)
+
+[glow](https://www.youtube.com/watch?v=xJNB-_nYVuM)
+
+[Shinzou Democracy](https://www.youtube.com/watch?v=c-V29ndlq2w)
 
 [Mozaik Role](https://www.youtube.com/watch?v=hvrdeo_ggJY)
 
 [Aimai Elegy](https://www.youtube.com/watch?v=jk7GidMiJM0)
 
-[Kusare Gedou to Chocolate](https://www.youtube.com/watch?v=ctPWhjEWz2Y)
+SoraRhyThm
 
 [Eh? Ah, sou](https://www.youtube.com/watch?v=2ZThjca5K_4)
+
+[Ama no Jaku](https://www.youtube.com/watch?v=xyUBHVkwetQ)
 
 [Envy Catwalk](https://www.youtube.com/watch?v=e2TTTMESrPw)
 
@@ -1464,15 +1494,49 @@ Re:Stage!
 
 [Senbonzakura](https://www.youtube.com/watch?v=g7EHjb5k8c4)
 
-[Streaming Heart](https://www.dropbox.com/s/1q4p73ivhovn2eh/Streaming%20Heart%20-%20Soraru.mp3?dl=0)
+Zetsubousei: Hero Chiryouyaku
 
-[Donut Hole](https://www.youtube.com/watch?v=GvrCH7gq1Kc)
+[Zetsubousei Hero Chiryouyaku](https://www.dropbox.com/s/re4ntbm94pb08dm/01%20-%20Zetsubousei%20Hero%20Chiryouyaku.mp3?dl=0)
 
-[Lost Time Memory](https://www.dropbox.com/s/n5lkzokos1n0mrp/Lost%20Time%20Memory%20-%20Soraru.mp3?dl=0)
+[Hai iro Shounen Rock](https://www.dropbox.com/s/099b95rmt6mlhh5/02%20-%20Hai%20iro%20Shounen%20Rock.mp3?dl=0)
 
-[World Calling](https://www.youtube.com/watch?v=N_EXEWA_868)
+[Zoku Hetakuso Utopia Seisaku](https://www.dropbox.com/s/vqkqzte2sjpxvph/03%20-%20Zoku%20Hetakuso%20Utopia%20Seisaku.mp3?dl=0)
 
-[Hello, Worker](https://www.youtube.com/watch?v=Rkoaji09kXg)
+[Kashokusei Idol Shoukougun -GigaP Remix-](https://www.dropbox.com/s/w0dd9q8ztwlp15x/04%20-%20Kashokusei%20Idol%20Shoukougun%20-GigaP%20Remix-.mp3?dl=0)
+
+SoraRhyThm 2
+
+[SoraRhyThm](https://www.dropbox.com/s/6e6jy5zdlyr59z7/2.%20SoraRhyThm.mp3?dl=0)
+
+[Existence](https://www.dropbox.com/s/n4osa9pwpk4pd2j/3.%20Existence.mp3?dl=0)
+
+[Baburebariichie](https://www.dropbox.com/s/puww4ud4mkya1ie/4.%20Baburebariichie.mp3?dl=0)
+
+[Sekai Jumyou to Saigo no Ichinichi -Acoustic Summer Arrange-](https://www.dropbox.com/s/7ubkusffro8tp1x/6.%20Sekai%20Jumyou%20to%20Saigo%20no%20Ichinichi%20-Acoustic%20Summer%20Arrange-.mp3?dl=0)
+
+[Level 100 no Ikemen ni Arigachi na Koto](https://www.dropbox.com/s/mwepdz6tq32pijn/7.%20Level%20100%20no%20Ikemen%20ni%20Arigachi%20na%20Koto.mp3?dl=0)
+
+[Death Without Life](https://www.dropbox.com/s/a6ylaorod43fq3e/8.%20Death%20Without%20Life.mp3?dl=0)
+
+[Aka Oni to Kamisama](https://www.dropbox.com/s/xvjzaczm5qswyds/10.%20Aka%20Oni%20to%20Kamisama.mp3?dl=0)
+
+[Usotsuki Peter Pan](https://www.dropbox.com/s/nv00vsnttsbuae1/11.%20Usotsuki%20Peter%20Pan.mp3?dl=0)
+
+[Utakata, Natsu no Owari ni Kakushita](https://www.dropbox.com/s/m45z09280no6z16/12.%20Utakata%2C%20Natsu%20no%20Owari%20ni%20Kakushita.mp3?dl=00)
+
+Otogibanashi Gekijou
+
+[Loli to Kaiketsu Meitantei!](https://www.dropbox.com/s/sc5pu7a5kpfgoun/03%20-%20Loli%20to%20Kaiketsu%20Meitantei%21.mp3?dl=0)
+
+[Garakuta no March](https://www.dropbox.com/s/pjs0vnvhsyzhxyp/04%20-%20Garakuta%20no%20March.mp3?dl=0)
+
+[I Am Sophie](https://www.dropbox.com/s/f0zzjgbjkp0i3gr/05%20-%20I%20Am%20Sophie.mp3?dl=0)
+
+[Tsuukouryou](https://www.dropbox.com/s/y9vcpqizagxc7yf/06%20-%20Tsuukouryou.mp3?dl=0)
+
+[Gessekai Ryokou](https://www.dropbox.com/s/7t03vnd3462ma2u/10%20-%20Gessekai%20Ryokou.mp3?dl=0)
+
+Yuudamari no Shiori
 
 [curtain call](https://www.dropbox.com/s/9c2s2wwbucg6bxm/02%20-%20curtain%20call.mp3?dl=0)
 
@@ -1502,21 +1566,17 @@ Re:Stage!
 
 [Yuudamari no Shiori](https://www.dropbox.com/s/4i5uo4chjj2rpub/16%20-%20Yuudamari%20no%20Shiori.mp3?dl=0)
 
-[Zetsubousei Hero Chiryouyaku](https://www.dropbox.com/s/re4ntbm94pb08dm/01%20-%20Zetsubousei%20Hero%20Chiryouyaku.mp3?dl=0)
+Biidama no Naka no Uchuu
 
-[Hai iro Shounen Rock](https://www.dropbox.com/s/099b95rmt6mlhh5/02%20-%20Hai%20iro%20Shounen%20Rock.mp3?dl=0)
+[Discord Alien](https://www.dropbox.com/s/yiy441vzax26y2x/3.%20Discord%20Alien.mp3?dl=0)
 
-[Zoku Hetakuso Utopia Seisaku](https://www.dropbox.com/s/vqkqzte2sjpxvph/03%20-%20Zoku%20Hetakuso%20Utopia%20Seisaku.mp3?dl=0)
+[Black Hole Teki Hankou](https://www.dropbox.com/s/pjtga5omvy503ti/6.%20Black%20Hole%20Teki%20Hankou.mp3?dl=0)
 
-[Kashokusei Idol Shoukougun -GigaP Remix-](https://www.dropbox.com/s/w0dd9q8ztwlp15x/04%20-%20Kashokusei%20Idol%20Shoukougun%20-GigaP%20Remix-.mp3?dl=0)
+[Chuu no Iriguchi](https://www.dropbox.com/s/mz4jkhzcw3r3ap5/7.%20Chuu%20no%20Iriguchi.mp3?dl=0)
 
-[Clean Freak](https://www.youtube.com/watch?v=HUDHmJsJvYc)
+[Tokoshie no Superstar](https://www.dropbox.com/s/oglgurdycsf7vgm/8.%20Tokoshie%20no%20Superstar.mp3?dl=0)
 
-[Pomp and Circumstance](https://tmbox.net/pl/789009)
-
-[Unhappy Refrain](https://www.youtube.com/watch?v=xYRDBK3LoFQ)
-
-[Lost One's Weeping](https://www.youtube.com/watch?v=IoKhXdPJRQg)
+[Pluto](https://www.dropbox.com/s/sesl73c025dxf0a/12.%20Pluto.mp3?dl=0)
 
 ### Amatsuki
 
@@ -1541,6 +1601,14 @@ Re:Stage!
 [Ghost Rule](https://www.youtube.com/watch?v=FVoZvo1YMA4)
 
 [Streaming Heart](https://www.youtube.com/watch?v=Z8RXp-jP34Y)
+
+[Ama no Jaku](https://www.youtube.com/watch?v=aLEgp11YTDM)
+
+[Silhouette](https://www.youtube.com/watch?v=flAs1j8kBYk)
+
+[Hoshiai](https://www.youtube.com/watch?v=8wBD1euHABY)
+
+[Zenzenzense](https://www.youtube.com/watch?v=-HX8oI_7cPo)
 
 ### yuikonnu
 
@@ -1577,6 +1645,8 @@ Re:Stage!
 [Bad Apple](https://www.youtube.com/watch?v=BPnn42w9458)
 
 [Cat Food](https://www.youtube.com/watch?v=_PAd1IXgA1g)
+
+[Strelka](https://www.youtube.com/watch?v=pk3bfLYCmTk)
 
 ### taiga
 
@@ -1642,6 +1712,22 @@ Re:Stage!
 
 [Renai Yuusha](https://www.youtube.com/watch?v=Kd-aqMrVapc)
 
+[Donut Hole](https://www.youtube.com/watch?v=INRzyrmjeRs)
+
+[daze](https://www.youtube.com/watch?v=_YY4X1btmLM)
+
+[Sugar Song to Bitter Step](https://www.youtube.com/watch?v=Bnwd4bPNF6M)
+
+[Zenzenzense](https://www.youtube.com/watch?v=IsxOS0CNx7s)
+
+[Ai no Scenario](https://www.youtube.com/watch?v=Y2OEaMCEauk)
+
+[Ghost Rule](https://www.youtube.com/watch?v=1-lgItmByvA)
+
+[Liar Dance](https://www.youtube.com/watch?v=lSbdgaDLeh4)
+
+[Reversible Campaign](https://www.youtube.com/watch?v=py7U28qEbPU)
+
 ## Various Vocaloids
 
 [LIAR DANCE](https://www.youtube.com/watch?v=FOvfM0fe-FE)
@@ -1686,6 +1772,26 @@ Re:Stage!
 
 [There's Supposed to Be a Cheat Code for Happiness](https://www.youtube.com/watch?v=wyUR1_19KAM)
 
+[HIBANA](https://www.youtube.com/watch?v=hxSg2Ioz3LM)
+
+## KagePro
+
+[daze](https://www.youtube.com/watch?v=9d2iLvb3mwQ)
+
+[Lost Time Memory](https://www.youtube.com/watch?v=Xupu5BcWDLo)
+
+[Yobanashi Deceive](https://www.youtube.com/watch?v=bdyZ7PtjNMs)
+
+[Gunjou Rain](https://www.youtube.com/watch?v=Ncf5yZY5JDE)
+
+[days](https://www.youtube.com/watch?v=2sPDPr3S7Zg)
+
+[Summertime Record](https://www.youtube.com/watch?v=C1DKz2cTDWg)
+
+[Toumei Answer](https://www.youtube.com/watch?v=102Gb0yNYBM)
+
+[RED](https://www.dropbox.com/s/15gb4994ehkkdas/01.%20RED.mp3?dl=0)
+
 ## Free!
 
 [Rage on](https://www.youtube.com/watch?v=p9WrJg_P9m4)
@@ -1702,49 +1808,285 @@ Re:Stage!
 
 [Aching Horns](https://www.youtube.com/watch?v=yijyGXoceLE)
 
+[NEO BLUE BREATHING](https://www.youtube.com/watch?v=W1rYhAH4tEs)
+
+[RISING FREE](https://www.youtube.com/watch?v=-mIzU4SGkvg)
+
+### Free OST
+
+[Our Promise](https://www.youtube.com/watch?v=sNpt7I7j7qU)
+
+[Each Way](https://www.youtube.com/watch?v=0UnoqZwVVDc)
+
+[Precious Teammate](https://www.youtube.com/watch?v=-sTGXZcndCY)
+
+[Get Ready!](https://www.youtube.com/watch?v=5HJs8JVPKIY)
+
+[What You See](https://www.youtube.com/watch?v=uzvfRJx14rE)
+
+[Never Say Never](https://www.youtube.com/watch?v=o2VCjOH-fPc)
+
+[My Future, Your Future](https://www.youtube.com/watch?v=qInPXqumfII)
+
+[Step to Hope](https://www.youtube.com/watch?v=u4WLkdxKUns)
+
+[Leave Me Alone](https://www.youtube.com/watch?v=SRg35cvaQ0U)
+
+[My Best Team](https://www.youtube.com/watch?v=gI6LYIKEtZg)
+
+[Swim For My Dream](https://www.youtube.com/watch?v=2yRbkh4Abfw)
+
+[Eternal Blue](https://www.youtube.com/watch?v=GpWqZZn_o0o)
+
+[Departure for the Future](https://www.youtube.com/watch?v=SikX7qNUCm4)
+
+## Gintama
+
+[Sanagi](https://www.dropbox.com/s/t7nl9upvmhg0y8f/Sanagi.mp3?dl=0)
+
+[Asa Answer](https://www.dropbox.com/s/4swc423rew50u5j/Asa%20Answer.mp3?dl=0)
+
+[Sakura Mitsutsuki](https://www.dropbox.com/s/o1bevtnsyprk7mv/06.%20%E3%82%B5%E3%82%AF%E3%83%A9%E3%83%9F%E3%83%84%E3%83%84%E3%82%AD.mp3?dl=0)
+
+[Samurai Heart! Some Like It Hot!](https://www.dropbox.com/s/uigpwit5id5xtuq/12.%20%E3%82%B5%E3%83%A0%E3%83%A9%E3%82%A4%E3%83%8F%E3%83%BC%E3%83%88%28Some%20Like%20It%20Hot%21%21%29.mp3?dl=0)
+
+[Pride Kakumei](https://www.dropbox.com/s/m10pozd6wlnayil/01.Pride%20Kakumei.mp3?dl=0)
+
+## Haikyuu
+
+[Imagination](https://www.dropbox.com/s/zibi0gs2m4q6bmk/01%20Imagination.mp3?dl=0)
+
+[Ah Yeah!!](https://www.dropbox.com/s/eucdvukk120wqvl/01.%20Ah%20Yeah%21%21.mp3?dl=0)
+
+[I'm A Believer](https://www.dropbox.com/s/gwr4pexfk9rmsuo/01.%20%E3%82%A2%E3%82%A4%E3%83%A0%E3%83%BB%E3%82%A2%E3%83%BB%E3%83%93%E3%83%AA%E3%83%BC%E3%83%90%E3%83%BC.mp3?dl=0)
+
+[FLY HIGH!!](https://www.dropbox.com/s/cq9srssmuupuigo/01%20FLY%20HIGH%21%21.mp3?dl=0)
+
+[Hikariare](https://www.dropbox.com/s/escx60yrkl4y1vl/01.%20Hikariare.mp3?dl=0)
+
 ## Various Animu
+
+Devil Survivor 2 The Animation
 
 [Take Your Way](https://www.youtube.com/watch?v=W_ZXidH4XbE)
 
 [Be](https://www.youtube.com/watch?v=QzZsWKqn27k)
 
+Mob Psycho 100
+
 [99](https://www.youtube.com/watch?v=h2N4wQuho9k)
 
 [ALL OFF](https://www.youtube.com/watch?v=lZLEXj52lcc)
 
+Gakkou Gurashi
+
+[Harmonize Clover](https://www.dropbox.com/s/dnf98e339eam2m6/01%20Harmonize%20Clover.mp3?dl=0)
+
 [Afterglow](https://www.dropbox.com/s/goz5q58htcs19nn/Maon%20Kurosaki%20-%20After%20Glow.mp3?dl=0)
 
-[daze](https://www.youtube.com/watch?v=9d2iLvb3mwQ)
-
-[Lost Time Memory](https://www.youtube.com/watch?v=Xupu5BcWDLo)
+Blue Exorcist
 
 [IN MY WORLD](https://www.dropbox.com/s/uje9ir4eusqgjj7/IN%20MY%20WORLD.mp3?dl=0)
 
+Kamisama no Inai Nichiyoubi
+
 [Owaranai Melody wo Uta Idashi Mashita](https://www.dropbox.com/s/0hhjvwohsou10ez/01%20-%20Owaranai%20Melody%20wo%20Uta%20Idashi%20Mashita..mp3?dl=0)
 
-[Yobanashi Deceive](https://www.youtube.com/watch?v=bdyZ7PtjNMs)
+Macross Delta
 
-[Gunjou Rain](https://www.youtube.com/watch?v=Ncf5yZY5JDE)
+[Ikenai Borderline](https://www.dropbox.com/s/vlbflwwwr3vircq/01%20-%20%E3%81%84%E3%81%91%E3%81%AA%E3%81%84%E3%83%9C%E3%83%BC%E3%83%80%E3%83%BC%E3%83%A9%E3%82%A4%E3%83%B3.mp3?dl=0)
 
-[days](https://www.youtube.com/watch?v=2sPDPr3S7Zg)
+Sousei no Aquarion
+
+[Genesis of Aquarion](https://www.dropbox.com/s/jwwsqnyt0lyo2ti/Genesis%20of%20Aquarion.mp3?dl=0)
+
+Full Metal Panic
+
+[Tomorrow](https://www.youtube.com/watch?v=wL3XPLKE6I0)
+
+[Sore ga, Ai deshou!](https://www.youtube.com/watch?v=L8S-s7Tyt8A)
+
+[Minamikaze](https://www.youtube.com/watch?v=s7VtgeQwV0o)
+
+## 流's the COVER
+
+[Susume → Tomorrow](https://www.dropbox.com/s/n2conzs2xa4ilcv/01.%20%E3%82%B9%E3%82%B9%E3%83%A1%E2%86%92%E3%83%88%E3%82%A5%E3%83%A2%E3%83%AD%E3%82%A6.mp3?dl=0)
+
+[Bokura wa Ima no Naka de](https://www.dropbox.com/s/qtvop2313vjjvko/02.%20%E5%83%95%E3%82%89%E3%81%AF%E4%BB%8A%E3%81%AE%E3%81%AA%E3%81%8B%E3%81%A7.mp3?dl=0)
+
+[START:DASH!!](https://www.dropbox.com/s/7dd2831h1zhr3dd/03.%20START%EF%BC%9ADASH%21%21.mp3?dl=0)
+
+[No brand girls](https://www.dropbox.com/s/6n1kj54j3kgfsgf/04.%20No%20brand%20girls.mp3?dl=0)
+
+[Natsuiro Egao de 1, 2, Jump!](https://www.dropbox.com/s/omvadyafvwgdsl7/05.%20%E5%A4%8F%E8%89%B2%E3%81%88%E3%81%8C%E3%81%8A%E3%81%A7%201%2C2%2CJump%21.mp3?dl=0)
+
+[Kitto Seishun ga Kikoeru](https://www.dropbox.com/s/7et9pgtqmhfp7cq/06.%20%E3%81%8D%E3%81%A3%E3%81%A8%E9%9D%92%E6%98%A5%E3%81%8C%E8%81%9E%E3%81%93%E3%81%88%E3%82%8B.mp3?dl=0)
+
+[Sore wa Bokutachi no Kiseki](https://www.dropbox.com/s/dorpxnx3ynp7sin/07.%20%E3%81%9D%E3%82%8C%E3%81%AF%E5%83%95%E3%81%9F%E3%81%A1%E3%81%AE%E5%A5%87%E8%B7%A1.mp3?dl=0)
+
+[soldier game](https://www.dropbox.com/s/h8hx1t653nbz1gm/08.%20soldier%20game.mp3?dl=0)
+
+[LOVELESS WORLD](https://www.dropbox.com/s/wh37wp6g7in9wqy/09.%20LOVELESS%20WORLD.mp3?dl=0)
+
+[Snow halation](https://www.dropbox.com/s/bw4ps4ozl07axb0/10.%20Snow%20halation.mp3?dl=0)
+
+[Wonderful Rush](https://www.dropbox.com/s/6cesukgrf65vhfr/11.%20Wonderful%20Rush.mp3?dl=0)
+
+[Donna Toki mo Zutto](https://www.dropbox.com/s/1kan8nhjc0ewyso/12.%20%E3%81%A9%E3%82%93%E3%81%AA%E3%81%A8%E3%81%8D%E3%82%82%E3%81%9A%E3%81%A3%E3%81%A8.mp3?dl=0)
+
+[SUNNY DAY SONG](https://www.dropbox.com/s/6dq0d140ycfa8tg/13.%20SUNNY%20DAY%20SONG.mp3?dl=0)
 
 ## Love Live OST
 
+### S1
+
 [Hajimari no Asa](https://www.dropbox.com/s/q8swth3j9gg5xgm/01%20-%20Hajimari%20no%20Asa%20%28Main%20Theme%29.mp3?dl=0)
 
-[Nico no Kako](https://www.dropbox.com/s/cc7lhsa1122j94l/05%20-%20Nico%20no%20Kako.mp3?dl=0)
+[Sugisarishi Hibi](https://www.dropbox.com/s/0e1n129kr7ep6ts/07%20-%20Sugisarishi%20Hibi.mp3?dl=0)
 
 [Asaren](https://www.dropbox.com/s/c8v84jn8j55b3g4/08%20-%20Asaren.mp3?dl=0)
 
-[Gyakkou kara no Start](https://www.dropbox.com/s/gtsnb1g1t518m8t/23%20-%20Gyakkyou%20kara%20no%20Start.mp3?dl=0)
+[Osanaki Hi no Yuuhi](https://www.dropbox.com/s/aeou6pi4oq8w6lw/12%20-%20Osanaki%20Hi%20no%20Yuuhi.mp3?dl=0)
+
+[Urei no Yuugure](https://www.dropbox.com/s/qkydim7uwchtnch/20%20-%20Urei%20no%20Yuugure.mp3?dl=0)
+
+[Sakuranamiki no Tsuugakuro](https://www.dropbox.com/s/48vdut4enp3dvoi/21%20-%20Sakuranamiki%20no%20Tsuugakuro.mp3?dl=0)
+
+[Shinken na Manazashi](https://www.dropbox.com/s/zqwmdrt4k6ko379/22%20-%20Shinken%20na%20Manazashi.mp3?dl=0)
 
 [Yuujou](https://www.dropbox.com/s/k4h5b0e79i1q4uz/26%20-%20Yuujou.mp3?dl=0)
 
+[Sakusen Kaishi](https://www.dropbox.com/s/kozjq68whlc4tkc/27%20-%20Sakusen%20Kaishi.mp3?dl=0)
+
+[Dare mo Inai](https://www.dropbox.com/s/66ao5abcpyb7uo4/28%20-%20Dare%20mo%20Inai.mp3?dl=0)
+
+[Kanashimi no Yoru](https://www.dropbox.com/s/5fw8j7ucvj6szp6/30%20-%20Kanashimi%20no%20Yoru.mp3?dl=0)  :RubyCry:
+
 [Hanayo no Ketsui](https://www.dropbox.com/s/iq0110kl4sn3zpn/32%20-%20Hanayo%20no%20Ketsui.mp3?dl=0)
+
+[Nico no Kako](https://www.dropbox.com/s/cc7lhsa1122j94l/05%20-%20Nico%20no%20Kako.mp3?dl=0)
+
+[Alisa](https://www.dropbox.com/s/zgg5to0mhf6gnom/10%20-%20Arisa.mp3?dl=0)
+
+[Eli no Yaritai Koto](https://www.dropbox.com/s/3szvt0giigbeh81/13%20-%20Eli%20no%20Yaritai%20Koto.mp3?dl=0)
+
+[μ's no Hajimari](https://www.dropbox.com/s/5go47b5ozrfnuxl/14%20-%20%CE%BC%27s%20no%20Hajimari.mp3?dl=0)
+
+[Taisetsu na Mono](https://www.dropbox.com/s/wgaf7bn7h8iu80c/18%20-%20Taisetsu%20na%20Mono.mp3?dl=0)
+
+[Abunai Mermaid Festa](https://www.dropbox.com/s/az73ugdzkozpio1/21%20-%20Abunai%20Mermaid%20festa.mp3?dl=0)
+
+[Gyakkou kara no Start](https://www.dropbox.com/s/gtsnb1g1t518m8t/23%20-%20Gyakkyou%20kara%20no%20Start.mp3?dl=0)
+
+[Miren](https://www.dropbox.com/s/0cpzff3t79ca6dc/26%20-%20Miren.mp3?dl=0)
+
+[Hanare Banare](https://www.dropbox.com/s/vx7jeyyeezgjozl/27%20-%20Hanarebanare.mp3?dl=0)
+
+[Atarashii Basho he](https://www.dropbox.com/s/hn3epg6c16239z0/29%20-%20Atarashii%20Basho%20he.mp3?dl=0)
+
+[Dance! Dance! Dance!](https://www.dropbox.com/s/5ppkbzyhwncbckg/32%20-%20Dance%21%20Dance%21%20Dance%21.mp3?dl=0)
+
+### S2
+
+[...Yorimichi Shitekanai?](https://www.dropbox.com/s/7q7egfyiwna3fs6/04.%20%E2%80%A6%E5%AF%84%E3%82%8A%E9%81%93%E3%81%97%E3%81%A6%E3%81%8B%E3%81%AA%E3%81%84%EF%BC%9F.mp3?dl=0)
+
+[Nokosareta Jikan](https://www.dropbox.com/s/7k4wf5xd84l85n4/05.%20%E6%AE%8B%E3%81%95%E3%82%8C%E3%81%9F%E6%99%82%E9%96%93.mp3?dl=0)
+
+[Itsumo Donna Toki mo, Zen'in no Tame ni](https://www.dropbox.com/s/xiv37gz9h6g570l/11.%20%E3%81%84%E3%81%A4%E3%82%82%E3%81%A9%E3%82%93%E3%81%AA%E3%81%A8%E3%81%8D%E3%82%82%E3%80%81%E5%85%A8%E5%93%A1%E3%81%AE%E3%81%9F%E3%82%81%E3%81%AB.mp3?dl=0)
+
+[A-RISE to no Taiji](https://www.dropbox.com/s/ddr6yqj76io60ca/14.%20A-RISE%E3%81%A8%E3%81%AE%E5%AF%BE%E5%B3%99.mp3?dl=0)
+
+[Karoyakana Hirusagari B](https://www.dropbox.com/s/ocqscvvl4a9nt4n/31.%20%E8%BB%BD%E3%82%84%E3%81%8B%E3%81%AA%E6%98%BC%E4%B8%8B%E3%81%8C%E3%82%8AB.mp3?dl=0)
+
+[Seitokai no Oshigoto](https://www.dropbox.com/s/3qju30i8xnoalvt/01.%20%E7%94%9F%E5%BE%92%E4%BC%9A%E3%81%AE%E3%81%8A%E4%BB%95%E4%BA%8B.mp3?dl=0)
 
 [Nozomi no Mune no Uchi](https://www.dropbox.com/s/k359ysls0xf0r3r/04.%20%E5%B8%8C%E3%81%AE%E8%83%B8%E3%81%AE%E5%86%85.mp3?dl=0)
 
+[Minna ga Sasaete Kureru](https://www.dropbox.com/s/a5rkcz12698es8r/06.%20%E3%81%BF%E3%82%93%E3%81%AA%E3%81%8C%E6%94%AF%E3%81%88%E3%81%A6%E3%81%8F%E3%82%8C%E3%82%8B.mp3?dl=0)
+
+[Yuki no Furumachi](https://www.dropbox.com/s/r81a7y83uyvpq3m/07.%20%E9%9B%AA%E3%81%AE%E9%99%8D%E3%82%8B%E8%A1%97.mp3?dl=0)
+
+[Hatsumoode](https://www.dropbox.com/s/xa9ka15v0r8yzkg/09.%20%E5%88%9D%E8%A9%A3.mp3?dl=0)
+
+[Tsubasa to Honoka](https://www.dropbox.com/s/s8g1urhkbafcdzn/10.%20%E3%83%84%E3%83%90%E3%82%B5%E3%81%A8%E7%A9%82%E4%B9%83%E6%9E%9C.mp3?dl=0)
+
+[Sugu Saki ni Aru Mirai](https://www.dropbox.com/s/7hhbpe51j9htg25/13.%20%E3%81%99%E3%81%90%E5%85%88%E3%81%AB%E3%81%82%E3%82%8B%E6%9C%AA%E6%9D%A5.mp3?dl=0)
+
+[Konosaki no Watashitachi](https://www.dropbox.com/s/lwq4l054yeo40dl/14.%20%E3%81%93%E3%81%AE%E5%85%88%E3%81%AE%E7%A7%81%E3%81%9F%E3%81%A1.mp3?dl=0)
+
+[Love Live! Kesshou](https://www.dropbox.com/s/o9w4mit3hfhi5dq/18.%20%E3%83%A9%E3%83%96%E3%83%A9%E3%82%A4%E3%83%96%EF%BC%81%E6%B1%BA%E5%8B%9D.mp3?dl=0)
+
+[Yume no Ato](https://www.dropbox.com/s/djjppxnejprn4ha/20.%20%E5%A4%A2%E3%81%AE%E3%81%82%E3%81%A8.mp3?dl=0)
+
+### Movie
+
+[Honoka na Kioku](https://www.dropbox.com/s/6mgsoqq541deqk8/01.%20%E3%81%BB%E3%81%AE%E3%81%8B%E3%81%AA%E8%A8%98%E6%86%B6.mp3?dl=0)
+
+[Main Theme -Movie ver.-](https://www.dropbox.com/s/fi9wnpb1z6cw0uv/02.%20%E3%83%A1%E3%82%A4%E3%83%B3%E3%83%86%E3%83%BC%E3%83%9E%20%28Movie%20Ver.%29.mp3?dl=0)
+
+[Saa! Shuppatsu Nya!](https://www.dropbox.com/s/dpspo8idc9o2fiv/06.%20%E3%81%95%E3%81%81%EF%BC%81%E5%87%BA%E7%99%BA%E3%81%AB%E3%82%83%EF%BC%81.mp3?dl=0)
+
+[Kotae wa Totemo Kantan](https://www.dropbox.com/s/qd574fuyhn0n27d/13.%20%E7%AD%94%E3%81%88%E3%81%AF%E3%81%A8%E3%81%A6%E3%82%82%E7%B0%A1%E5%8D%98.mp3?dl=0)
+
+[Minna de Raibu o Mou Ichido](https://www.dropbox.com/s/1rrwonea1s9d8kh/21.%20%E3%81%BF%E3%82%93%E3%81%AA%E3%81%A7%E3%83%A9%E3%82%A4%E3%83%96%E3%82%92%E3%82%82%E3%81%86%E4%B8%80%E5%BA%A6.mp3?dl=0)
+
+[Honoka no Kattou](https://www.dropbox.com/s/lun8b979jtfd7e3/22.%20%E7%A9%82%E4%B9%83%E6%9E%9C%E3%81%AE%E8%91%9B%E8%97%A4.mp3?dl=0)
+
+[Sorezore no Omoi](https://www.dropbox.com/s/jrv4k3l0n73bbmq/23.%20%E3%81%84%E3%81%A4%E3%81%BE%E3%81%A7%E3%82%82%E4%B8%80%E7%B7%92%E3%81%AB.mp3?dl=0)
+
+[Ketsudan](https://www.dropbox.com/s/w9u24fze1b9n0cm/25.%20%E6%B1%BA%E6%96%AD.mp3?dl=0)
+
+[Densetsu ga Umareta Shunkan](https://www.dropbox.com/s/icdmkgbstkr5pza/26.%20%E4%BC%9D%E8%AA%AC%E3%81%8C%E7%94%9F%E3%81%BE%E3%82%8C%E3%81%9F%E7%9E%AC%E9%96%93.mp3?dl=0)
+
+[Junbi Kaishi!](https://www.dropbox.com/s/njuqjo50kqonxbu/29.%20%E6%BA%96%E5%82%99%E9%96%8B%E5%A7%8B%EF%BC%81.mp3?dl=0)
+
+[Raibu Toujitsu no Asa](https://www.dropbox.com/s/euxuk0brdhgarxb/30.%20%E3%83%A9%E3%82%A4%E3%83%96%E5%BD%93%E6%97%A5%E3%81%AE%E6%9C%9D.mp3?dl=0)
+
+[Suteji e to Tsudzuku Michi](https://www.dropbox.com/s/ruii9em9fubww41/31.%20%E3%82%B9%E3%83%86%E3%83%BC%E3%82%B8%E3%81%B8%E3%81%A8%E7%B6%9A%E3%81%8F%E9%81%93.mp3?dl=0)
+
+[Days Have Passed By](https://www.dropbox.com/s/fpqxn4gsqvv2k0n/33.%20Days%20Have%20Passed%20By.mp3?dl=0)
+
 ## Games?
+
+### Etrian Odyssey
+
+[The Road Outside the Window](https://www.youtube.com/watch?v=tygjPz9T4Ok)
+
+[Emerald Woodlands](https://www.youtube.com/watch?v=DZBCPPTUrjc)
+
+[Destruction Begets Decay](https://www.youtube.com/watch?v=Eqap4bZnJsQ)
+
+[The Capital of Shinjuku](https://www.youtube.com/watch?v=imnmNtECuBk)
+
+[Ecstasy](https://www.youtube.com/watch?v=ItYqp5HtYn0)
+
+[The End of the World](https://www.youtube.com/watch?v=vEguwkGEXIg)
+
+[The First Campaign - EO2](https://www.youtube.com/watch?v=-_-QCNKRhzQ)
+
+[The Wind Doesn't Draw Heroes](https://www.youtube.com/watch?v=rl0NgSbKHMk)
+
+[Cherry Tree Bridge](https://www.youtube.com/watch?v=3pOMP0ja3nU)
+
+[Inspecting the Resounding Weapons](https://www.youtube.com/watch?v=eorl77Ti8rU)
+
+[Heavens' Rock Seat](https://www.youtube.com/watch?v=AiROuEtKHug)
+
+[Shiver](https://www.youtube.com/watch?v=y3zamfuEmwc)
+
+[Shadows of Death Over There](https://www.youtube.com/watch?v=tk-VmhxS3X8)
+
+[Sunlight on the Water Surface](https://www.youtube.com/watch?v=tMB1lkw7KYA)
+
+[The First Campaign - EO3](https://www.youtube.com/watch?v=WmzlFNTkyNI)
+
+[Hoist the Sword and Pride in the Heart](https://www.youtube.com/watch?v=SIDTxtyUDfY)
+
+[Those That Slay and Fall](https://www.youtube.com/watch?v=IFR3TM_iP_I)
+
+[Chalky Woods](https://www.youtube.com/watch?v=hCv3iRC4U5w)
+
+[Storm](https://www.youtube.com/watch?v=_6TJ8H3EKec)
 
 [Faith is My Pillar](https://www.youtube.com/watch?v=8N8MLdJYfJ8)
 
@@ -1752,9 +2094,19 @@ Re:Stage!
 
 [The End of Raging Winds](https://www.youtube.com/watch?v=_ErTKCcnqpo)
 
-[Hoist the Sword and Pride in the Heart](https://www.youtube.com/watch?v=SIDTxtyUDfY)
+[With Eyes Blazing](https://www.youtube.com/watch?v=H-OSTYBhhCE)
+
+[Scatter About](https://www.youtube.com/watch?v=MM0sFB48rhw)
+
+### Persona
 
 [Unbreakable tie](https://www.youtube.com/watch?v=eAarVmqJwNw)
+
+[Light the Fire Up in the Night ~Dark Hour~](https://www.youtube.com/watch?v=WL7nGDbLG_U)
+
+[Laser Beam](https://www.youtube.com/watch?v=6cqj_6I6fGo)
+
+[The Person is Then Called Away from War](https://www.youtube.com/watch?v=cTxJGE8PMEY)
 
 # 1 6 8
 
