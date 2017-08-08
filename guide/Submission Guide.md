@@ -5,18 +5,25 @@
 From most to least
 
 1) Anime OP's and ED's
-2) General Japanese Music (music should have Japanese lyrics)
-3) Anime OP and ED remixes (but not meme remixes, radio's hold final say if the remix is too meme-y)
-4) Anime OST
+1) General Japanese Music (music should have Japanese lyrics)
+1) Anime OP and ED remixes (but not meme remixes, radio's hold final say if the remix is too meme-y)
+1) Anime OST
+
+## What's not acceptable?
+
+* Overly long songs, under 6mins is preferred.
+* Album dumps, we are looking for the best songs not just more songs. Quality over quantity.
+* English covers of Japanese songs.
+* Songs that don't fall into any of the "What's acceptable" catagories. #LoopHoles
 
 ## How should my submission be formatted?
 
-Like so! Note the double line spacing.
+Like so! Note the double line spacing and English song titles.
 
 ```
 # KamiCrit
 
-## Music (or what ever you want to categorize your songs as)
+## Music (or whatever you want to categories your songs as)
 
 High School Fleet
 
