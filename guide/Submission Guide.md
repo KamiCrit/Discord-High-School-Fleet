@@ -5,7 +5,7 @@
 From most to least
 
 1) Anime OP's and ED's
-1) General Japanese Music (music should have Japanese lyrics)
+1) General Japanese Music (music must have Japanese lyrics)
 1) Anime OP and ED remixes (but not meme remixes, radio's hold final say if the remix is too meme-y)
 1) Anime OST
 
