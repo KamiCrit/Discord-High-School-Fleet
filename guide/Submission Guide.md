@@ -45,5 +45,5 @@ Or fork and submit a pull request.
 ![alt text](https://raw.githubusercontent.com/KamiCrit/Discord-High-School-Fleet/KamiCrit-Submission-Help/guide/Raw%20Button.png)
 
 ## Closing weeb thoughts in gif form
-
+![alt text](https://raw.githubusercontent.com/KamiCrit/Discord-High-School-Fleet/KamiCrit-Submission-Help/guide/Beat.gif)
 ![alt text](https://raw.githubusercontent.com/KamiCrit/Discord-High-School-Fleet/KamiCrit-Submission-Help/guide/English.gif)
