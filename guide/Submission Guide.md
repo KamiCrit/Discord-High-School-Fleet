@@ -23,7 +23,7 @@ Like so! Note the double line spacing and English song titles.
 ```
 # KamiCrit
 
-## Music (or whatever you want to categories your songs as)
+## Music (or whatever you want to categorize your songs as)
 
 High School Fleet
 
@@ -34,7 +34,7 @@ High School Fleet
 
 ## How to Submit Songs to the Auto Playlist
 
-PM KamiCrit#3786 a .txt file of your new/updated auto playlist section
+DM KamiCrit#3786 a .txt file of your new/updated auto playlist section.
 
 Or fork and submit a pull request.
 
