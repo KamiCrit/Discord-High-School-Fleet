@@ -2,7 +2,7 @@
 
 ## What's acceptable?
 
-From most to least
+From most to least preferred
 
 1) Anime OP's, ED's, Character Songs
 1) General Japanese Music (music must have Japanese lyrics)
