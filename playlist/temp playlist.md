@@ -1,4 +1,4 @@
-Brought to you from Kyogia!
+Brought to you by Kyogia!
 
 ----- AKINO -----
 
