@@ -4,7 +4,7 @@
 
 ![alt text](https://raw.githubusercontent.com/KamiCrit/Discord-High-School-Fleet/master/playlist/2017-02-14_21-41-05.png "Best Song")
 
-[Formatting guide for submitting auto playlist additions](../playlist/Formatting%20Example)
+[Submission guide for auto playlist additions](../guide/Submission%20Guide.md)
 
 # Additions By User
 
