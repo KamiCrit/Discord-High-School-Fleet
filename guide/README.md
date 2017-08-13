@@ -6,7 +6,7 @@ From most to least preferred
 
 1) Anime OP's, ED's, Character Songs
 1) General Japanese Music (music must have Japanese lyrics)
-1) Anime Remixes (but not meme remixes)
+1) Live versions and Remixes (but not meme remixes) of 1. and 2.
 1) Anime OST
 1) JRPG Music
 
