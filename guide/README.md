@@ -41,7 +41,7 @@ Or fork and submit a pull request.
 
 ## How to find your auto playlist section in raw text
 
-[Click the raw button](https://raw.githubusercontent.com/KamiCrit/Discord-High-School-Fleet/master/playlist/Searchable%20Playlist.md)
+[Click the raw button](https://raw.githubusercontent.com/KamiCrit/Discord-High-School-Fleet/master/playlist/README.md)
 
 ![alt text](https://raw.githubusercontent.com/KamiCrit/Discord-High-School-Fleet/KamiCrit-Submission-Help/guide/Raw%20Button.png)
 
