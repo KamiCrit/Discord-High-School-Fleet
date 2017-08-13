@@ -8,29 +8,29 @@
 
 # Additions By User
 
-[Akemi](https://github.com/KamiCrit/Discord-High-School-Fleet/blob/master/playlist/Searchable%20Playlist.md#akemi)
+[Akemi](https://github.com/KamiCrit/Discord-High-School-Fleet/blob/master/playlist/README.md#akemi)
 
-[Brocky](https://github.com/KamiCrit/Discord-High-School-Fleet/blob/master/playlist/Searchable%20Playlist.md#brocky)
+[Brocky](https://github.com/KamiCrit/Discord-High-School-Fleet/blob/master/playlist/README.md#brocky)
 
-[Falthie](https://github.com/KamiCrit/Discord-High-School-Fleet/blob/master/playlist/Searchable%20Playlist.md#falthie)
+[Falthie](https://github.com/KamiCrit/Discord-High-School-Fleet/blob/master/playlist/README.md#falthie)
 
-[KamiCrit](https://github.com/KamiCrit/Discord-High-School-Fleet/blob/master/playlist/Searchable%20Playlist.md#kamicrit)
+[KamiCrit](https://github.com/KamiCrit/Discord-High-School-Fleet/blob/master/playlist/README.md#kamicrit)
 
-[Lilac](https://github.com/KamiCrit/Discord-High-School-Fleet/blob/master/playlist/Searchable%20Playlist.md#lilac)
+[Lilac](https://github.com/KamiCrit/Discord-High-School-Fleet/blob/master/playlist/README.md#lilac)
 
-[lostmyhead](https://github.com/KamiCrit/Discord-High-School-Fleet/blob/master/playlist/Searchable%20Playlist.md#lostmyhead)
+[lostmyhead](https://github.com/KamiCrit/Discord-High-School-Fleet/blob/master/playlist/README.md#lostmyhead)
 
-[MandalorTeSiit](https://github.com/KamiCrit/Discord-High-School-Fleet/blob/master/playlist/Searchable%20Playlist.md#mandalortesiit)
+[MandalorTeSiit](https://github.com/KamiCrit/Discord-High-School-Fleet/blob/master/playlist/README.md#mandalortesiit)
 
-[N3DSdude](https://github.com/KamiCrit/Discord-High-School-Fleet/blob/master/playlist/Searchable%20Playlist.md#n3dsdude-lilacs-stolen-songs)
+[N3DSdude](https://github.com/KamiCrit/Discord-High-School-Fleet/blob/master/playlist/README.md#n3dsdude-lilacs-stolen-songs)
 
-[PinkyForever](https://github.com/KamiCrit/Discord-High-School-Fleet/blob/master/playlist/Searchable%20Playlist.md#pinkyforever)
+[PinkyForever](https://github.com/KamiCrit/Discord-High-School-Fleet/blob/master/playlist/README.md#pinkyforever)
 
-[Smarty](https://github.com/KamiCrit/Discord-High-School-Fleet/blob/master/playlist/Searchable%20Playlist.md#smarty)
+[Smarty](https://github.com/KamiCrit/Discord-High-School-Fleet/blob/master/playlist/README.md#smarty)
 
-[Yukinori](https://github.com/KamiCrit/Discord-High-School-Fleet/blob/master/playlist/Searchable%20Playlist.md#yukinori)
+[Yukinori](https://github.com/KamiCrit/Discord-High-School-Fleet/blob/master/playlist/README.md#yukinori)
 
-[1 6 8](https://github.com/KamiCrit/Discord-High-School-Fleet/blob/master/playlist/Searchable%20Playlist.md#1-6-8)
+[1 6 8](https://github.com/KamiCrit/Discord-High-School-Fleet/blob/master/playlist/README.md#1-6-8)
 
 # KamiCrit
 
