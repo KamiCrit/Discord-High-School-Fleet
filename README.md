@@ -1,5 +1,9 @@
-# Discord-High-School-Fleet
+## Welcome to the High School Fleet Discord server's github page.
 
-Place to keep track of changes to the searchable auto playlists.
+We use GitHub for keeping track of changes to our playlist collaberation.
 
-Join the server: [Haifuri](https://discord.gg/BmFuJYs)
+[Join the community](https://discord.gg/BmFuJYs)
+
+[Find the playlist](../playlist/README.md)
+
+[Read the song submission guide](../guide/README.md)
