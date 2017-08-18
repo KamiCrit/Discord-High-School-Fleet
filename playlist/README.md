@@ -1,4 +1,4 @@
-2017-08-07 1530
+2017-08-17 2245
 
 **Crtl+F and right click URL's for quick !play-ing of songs:**
 
@@ -362,6 +362,10 @@ Koe no Katachi
 
 [Koi wo Shita no wa](https://www.dropbox.com/s/36otpatm4tc59h6/Koe%20no%20Katachi%20-%20Koi%20wo%20Shita%20no%20wa.mp3?dl=0)
 
+Koi to Uso
+
+[Kanashii Ureshii](https://www.dropbox.com/s/4j88eg0sfb0px1l/Koi%20to%20Uso%20-%20Kanashii%20Ureshii.mp3?dl=0)
+
 Kono Bijutsubu ni wa Mondai ga Aru
 
 [STARTING NOW!](https://www.dropbox.com/s/75b06umub6q8bnl/Kono%20Bijutsubu%20ni%20wa%20Mondai%20ga%20Aru%20-%2001.%20STARTING%20NOW%21.mp3?dl=0)
@@ -392,7 +396,7 @@ Love Live
 
 Lucky Star
 
-[Motteke! Sailor Fuku](https://www.dropbox.com/s/8vi9v229yapiopz/Lucky%20Star%20-%2001%20-%20Motteke%21%20Sailor%20Fuku.mp3?dl=0)
+[Motteke! Sailor Fuku](https://www.dropbox.com/s/uxwnqegmfmjdb8i/Lucky%20Star%20-%20Motteke%21%20Sailor%20Fuku.mp3?dl=0)
 
 [Konata no Theme, India Version](https://www.dropbox.com/s/jdoo3gwb0jcgdn2/Lucky%20Star%20-%2004-konata-no-theme-india-version.mp3?dl=0)
 
@@ -423,6 +427,10 @@ Mirai Nikki (TV)
 [Yousei Teikoku - Kuusou Mesorogiwi](https://www.dropbox.com/s/dr4e6hjdsrvvyco/Mirai%20Nikki%20-%2001%20-%20Kuusou%20Mesorogiwi.mp3?dl=0)
 
 [Yousei Teikoku - filament](https://www.dropbox.com/s/d4q9oklhx8lc7gl/Mirai%20Nikki%20-%2001%20-%20filament.mp3?dl=0)
+
+Momokuri
+
+[ETERNAL Explorer](https://www.dropbox.com/s/2qolhfgal2ggd2g/Momokuri%20-%20ETERNAL%20Explorer.mp3?dl=0)
 
 Monster Musume
 
@@ -658,9 +666,13 @@ Tsugumomo
 
 [METAMORISER](https://www.dropbox.com/s/g1qz2dco4ggw67n/Tsugumomo%20-%20METAMORISER.mp3?dl=0)
 
+Tsurezure Children
+
+[Aimai Moko](https://www.dropbox.com/s/e37af0sx9x39zkd/Tsurezure%20Children%20-%20Aimai%20Moko.mp3?dl=0)
+
 Uchiage Hanabi, Shita kara Miru ka? Yoko kara Miru ka?
 
-[Forever Friends](https://www.dropbox.com/s/ri75ahdb9ikbwab/Uchiage%20Hanabi%2C%20Shita%20kara%20Miru%20ka%20Yoko%20kara%20Miru%20ka%20-%20Forever%20Friends.mp3?dl=0)
+[DAOKO x Yonezu Kenshi](https://www.dropbox.com/s/4kxfe4bo2j8wnic/Uchiage%20Hanabi%2C%20Shita%20kara%20Miru%20ka%20Yoko%20kara%20Miru%20ka%20-%20DAOKO%20x%20Yonezu%20Kenshi.mp3?dl=0)
 
 Uchuu Senkan Yamato 2199
 
@@ -671,6 +683,8 @@ Uchuu Senkan Yamato
 [Makka na Scarff](https://www.dropbox.com/s/bz2qf23g34fxcnh/Uchuu%20Senkan%20Yamato%20-%20Makka%20na%20Scarff.mp3?dl=0)
 
 [Uchuu Senkan Yamato](https://www.dropbox.com/s/qs6n0vjftwnjb95/Uchuu%20Senkan%20Yamato%20-%20Uchuu%20Senkan%20Yamato.mp3?dl=0)
+
+[japanese cool نسور الفضاء](https://www.dropbox.com/s/km5l2r308h7wv29/Uchuu%20Senkan%20Yamato%20-%20japanese%20cool%20%D9%86%D8%B3%D9%88%D8%B1%20%D8%A7%D9%84%D9%81%D8%B6%D8%A7%D8%A1.mp3?dl=0)
 
 Urara Meirochou
 
@@ -791,6 +805,8 @@ Opportunity
 [SUPERGiRLS - Toshishita no Otoko no Ko](https://www.dropbox.com/s/58me9uasbi2cnsd/SUPERGiRLS%20-%20Toshishita%20no%20Otoko%20no%20Ko.mp3?dl=0)
 
 [AKB48 - 01. Koi Suru Fortune Cookie](https://www.dropbox.com/s/5qwv1ayt4qb3jld/AKB48%20-%2001.%20Koi%20Suru%20Fortune%20Cookie.mp3?dl=0)
+
+[Beaver Dam](https://www.dropbox.com/s/j5fqc4nx0msdrwa/Beaver%20Dam.mp3?dl=0)
 
 # Lilac
 
