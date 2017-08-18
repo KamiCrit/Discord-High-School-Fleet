@@ -1,4 +1,4 @@
-Brought to you by Kyogia!
+Brought to you by Kyogia#3858!
 
 ----- AKINO -----
 
