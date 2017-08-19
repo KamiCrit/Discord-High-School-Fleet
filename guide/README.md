@@ -48,3 +48,5 @@ Or fork and submit a pull request.
 ## Closing weeb thoughts in gif form
 ![alt text](https://raw.githubusercontent.com/KamiCrit/Discord-High-School-Fleet/KamiCrit-Submission-Help/guide/Beat.gif)
 ![alt text](https://raw.githubusercontent.com/KamiCrit/Discord-High-School-Fleet/KamiCrit-Submission-Help/guide/English.gif)
+
+[Link back to the auto playlist.](https://github.com/KamiCrit/Discord-High-School-Fleet/blob/master/playlist/README.md)
