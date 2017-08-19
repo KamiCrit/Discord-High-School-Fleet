@@ -19,7 +19,7 @@ From most to least preferred
 
 ## How should my submission be formatted?
 
-Like so! Note the double line spacing and English song titles.
+Like so! Note the double line spacing and English song titles. The "Playing" subtext on the music bot profile is based off of the filename.
 
 ```
 # KamiCrit
