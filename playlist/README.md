@@ -1,4 +1,4 @@
-2017-08-18 2000
+2017-08-18 2240
 
 **Crtl+F and right click URL's for quick !play-ing of songs:**
 
@@ -812,7 +812,7 @@ Opportunity
 
 [FLOWER MARKET](https://www.dropbox.com/s/okoqufk9lo2gg9s/Kana%20Hanazawa%20-%2012.%20FLOWER%20MARKET.mp3?dl=0)
 
-### Other
+## Other
 
 [Kyu Sakamoto - Sukiyaki (Ue o Muite Arukou)](https://www.youtube.com/watch?v=C35DrtPlUbc)
 
@@ -841,6 +841,8 @@ Opportunity
 [Stereoman & Yunomi - シンデレラベイビー (feat. アンテナガール)【F-C commune310 compilation B2】](https://www.dropbox.com/s/qty5ua78ys6eekx/Stereoman%20%26%20Yunomi%20-%20%E3%82%B7%E3%83%B3%E3%83%87%E3%83%AC%E3%83%A9%E3%83%99%E3%82%A4%E3%83%93%E3%83%BC%20%28feat.%20%E3%82%A2%E3%83%B3%E3%83%86%E3%83%8A%E3%82%AC%E3%83%BC%E3%83%AB%29%E3%80%90F-C%20commune310%20compilation%20B2%E3%80%91.mp3?dl=0)
 
 [Stereoman & Yunomi - commune310 Christmas EP 2016 - 02 シンデレラベイビー feat. アンテナガール (KOTONOHOUSE remix)](https://www.dropbox.com/s/94fwazbefjzi98z/Stereoman%20%26%20Yunomi%20-%20commune310%20Christmas%20EP%202016%20-%2002%20%E3%82%B7%E3%83%B3%E3%83%87%E3%83%AC%E3%83%A9%E3%83%99%E3%82%A4%E3%83%93%E3%83%BC%20feat.%20%E3%82%A2%E3%83%B3%E3%83%86%E3%83%8A%E3%82%AC%E3%83%BC%E3%83%AB%20%28KOTONOHOUSE%20remix%29.mp3?dl=0)
+
+[Hyperdimension Neptunia - Koi Wo Game Ni Shinaide!](https://www.dropbox.com/s/xy8x51pk3tyk9g6/Hyperdimension%20Neptunia%20-%20Koi%20Wo%20Game%20Ni%20Shinaide%21.mp3?dl=0)
 
 # Lilac
 
