@@ -26,7 +26,7 @@
 
 [PinkyForever](https://github.com/KamiCrit/Discord-High-School-Fleet/blob/master/playlist/README.md#pinkyforever)
 
-[Silencerturtle]https://github.com/KamiCrit/Discord-High-School-Fleet/blob/master/playlist/README.md#silencerturtle
+[Silencerturtle](https://github.com/KamiCrit/Discord-High-School-Fleet/blob/master/playlist/README.md#silencerturtle)
 
 [Smarty](https://github.com/KamiCrit/Discord-High-School-Fleet/blob/master/playlist/README.md#smarty)
 
@@ -150,7 +150,7 @@ Danna ga Nani wo Itteiru ka Wakaranai Ken
 
 Danshi Koukousei no Nichijou
 
-[Shiny Tale](https://soundcloud.com/rizky-satrio/danshi-koukousei-no-nichijou)
+[Shiny Tale](https://www.dropbox.com/s/fsycqobspvgj8fq/Danshi%20Koukousei%20no%20Nichijou%20-%20Shiny%20tale.mp3?dl=0)
 
 [Nichijou Hisama](https://www.dropbox.com/s/6l997ap0iik4va2/Danshi%20Koukousei%20no%20Nichijou%20-%20Ohisama.mp3?dl=0)
 
@@ -166,11 +166,13 @@ DieBuster
 
 [Groovin Magic](https://www.dropbox.com/s/tr322ho2y46giks/DieBuster%20-%20Groovin%27s%20Magic%20DieBuster%20Ost.mp3?dl=0)
 
-Eromanga-sensei 
+Eromanga-sensei
 
 [Hitorigoto](https://www.dropbox.com/s/1jv7lhg84b2c8tj/Eromanga-sensei%20-%20Hitorigoto.mp3?dl=0)
 
 [adrenaline!!!](https://www.dropbox.com/s/gfyb6m7hgjwmdbn/Eromanga-sensei%20-%20adrenaline%21%21%21.mp3?dl=0)
+
+[ClariS - ヒトリゴト(Kakeru Bootleg Remix)［FreeDL⇒Buy］](https://www.dropbox.com/s/x1l8f5g1y7ou4dq/Eromanga-sensei%20-%20ClariS%20-%20%E3%83%92%E3%83%88%E3%83%AA%E3%82%B4%E3%83%88%28Kakeru%20Bootleg%20Remix%29%EF%BC%BBFreeDL%E2%87%92Buy%EF%BC%BD.mp3?dl=0)
 
 Frame Arms Girl
 
@@ -406,15 +408,29 @@ Lucky Star
 
 Mahou Shoujo Madoka Magica
 
-[Mahou shoujoi madoka magic ending full](https://soundcloud.com/jose-flores-473/mahou-shoujo-madoka-magica-ending-full1)
+[Magia](https://www.dropbox.com/s/q1tvdyazxcu92m1/Mahou%20Shoujo%20Madoka%20Magica%20-%20Magia.mp3?dl=0)
 
-[[Magia] MADO-MAGI-ED Cover + illust / TAMUSIC](https://www.youtube.com/watch?v=NIyv0cVlJkM)
+[Magia (Magic Mix)](https://www.dropbox.com/s/z8t41ld7clkz4fn/Mahou%20Shoujo%20Madoka%20Magica%20-%20Magia%20%5BMagic%20Mix%5D.mp3?dl=0)
+
+[(Magia) MADO-MAGI-ED Cover + illust / TAMUSIC](https://www.youtube.com/watch?v=NIyv0cVlJkM)
 
 Mawaru Penguindrum
 
 [Boys come](https://soundcloud.com/cloth/mawaru-penguindrum-boys-come)
 
-[DEAR FUTURE](https://www.dropbox.com/s/cinve29vzl7ob5b/Mawaru%20Penguindrum%20-%2001%20-%20DEAR%20FUTURE.mp3?dl=0)
+[DEAR FUTURE](https://www.dropbox.com/s/c4r9ur0sm7ea7mx/Mawaru%20Penguindrum%20-%20Dear%20Future.mp3?dl=0)
+
+[Dear Future By Shinobu Narita (Urban Dance)](https://www.dropbox.com/s/zsir4giqvpk9j1d/Mawaru%20Penguindrum%20-%20Dear%20Future%20By%20Shinobu%20Narita%20%28Urban%20Dance%29.mp3?dl=0)
+
+[Dear Future By Ringo Deathstarr](https://www.dropbox.com/s/eh7kf9swup8l588/Mawaru%20Penguindrum%20-%20Dear%20Future%20By%20Ringo%20Deathstarr.mp3?dl=0)
+
+[Dear Future Remix By Dj Jimihendrixxx(A.K.A.Keiichiro Shibuya) feat.Yui Horie](https://www.dropbox.com/s/7kr9gbkaqmssh2c/Mawaru%20Penguindrum%20-%20Dear%20Future%20Remix%20By%20Dj%20Jimihendrixxx%28A.K.A.Keiichiro%20Shibuya%29%20feat.Yui%20Horie.mp3?dl=0)
+
+[Dear Future By Secret Shine](https://www.dropbox.com/s/4lzgjut0g7iq2qo/Mawaru%20Penguindrum%20-%20Dear%20Future%20By%20Secret%20Shine.mp3?dl=0)
+
+[Dear Future Remix By Kensuke Ushio](https://www.dropbox.com/s/y5n935ylyhj6syb/Mawaru%20Penguindrum%20-%20Dear%20Future%20Remix%20By%20Kensuke%20Ushio.mp3?dl=0)
+
+[Dear Future By Watchman feat.Yui Horie](https://www.dropbox.com/s/ncang1e8q9fjujj/Mawaru%20Penguindrum%20-%20Dear%20Future%20By%20Watchman%20feat.Yui%20Horie.mp3?dl=0)
 
 [ROCK OVER JAPAN](https://www.dropbox.com/s/1w7isndiqpn0pnw/Mawaru%20Penguindrum%20-%2001%20-%20ROCK%20OVER%20JAPAN.mp3?dl=0)
 
@@ -474,7 +490,19 @@ Nichijou
 
 [Hyadain no Joujou Yuujou](https://www.dropbox.com/s/vksok0dgdfmkium/Nichijou%20-%2001%20-%20Hyadain%20no%20Joujou%20Yuujou.mp3?dl=0)
 
-[Hyadin no Kakakata Kataomoi](https://www.dropbox.com/s/rvok3ly87tvqlfu/Nichijou%20-%2001%20-%20Hyadain%20no%20Kakakata%20Kataomoi-C.mp3?dl=0)
+[Hyadain no Kakakata Kataomoi](https://www.dropbox.com/s/rvok3ly87tvqlfu/Nichijou%20-%2001%20-%20Hyadain%20no%20Kakakata%20Kataomoi-C.mp3?dl=0)
+
+[Hyadain no Kakakata Kataomoi-C (extraordinary A-bee REMIX)](https://www.dropbox.com/s/iwv4dpe612szns1/Nichijou%20-%20Hyadain%20no%20Kakakata%20Kataomoi-C%20%28extraordinary%20A-bee%20REMIX%29.mp3?dl=0)
+
+[Hyadain no Kakakata Kataomoi-C ('Forbidden Cats' sakamoto playing the Orchestronica REMIX)](https://www.dropbox.com/s/olqpqpagujk4kdi/Nichijou%20-%20Hyadain%20no%20Kakakata%20Kataomoi-C%20%28%27Forbidden%20Cats%27%20sakamoto%20playing%20the%20Orchestronica%20REMIX%29.mp3?dl=0)
+
+[Hyadain no Mamamash Mashup-Z](https://www.dropbox.com/s/kpwygw7zopt1ley/Nichijou%20-%20Hyadain%20no%20Mamamash%20Mashup-Z.mp3?dl=0)
+
+[Hyadain no Joujou Yuujou (Trance Kaboom REMIX)](https://www.dropbox.com/s/nwew3hcmv6sizva/Nichijou%20-%20Hyadain%20no%20Joujou%20Yuujou%20%28Trance%20Kaboom%20REMIX%29.mp3?dl=0)
+
+[Hyadain no Kakakata Kataomoi-C (Dragon Screw Automatic REMIX)](https://www.dropbox.com/s/ft8zmka0m7u1ajn/Nichijou%20-%20Hyadain%20no%20Kakakata%20Kataomoi-C%20%28Dragon%20Screw%20Automatic%20REMIX%29.mp3?dl=0)
+
+[Hyadain no Joujou Yuujou (More Boiled Hard Egg REMIX)](https://www.dropbox.com/s/qp12afdxr8uu8kv/Nichijou%20-%20Hyadain%20no%20Joujou%20Yuujou%20%28More%20Boiled%20Hard%20Egg%20REMIX%29.mp3?dl=0)
 
 [Zzz](https://www.dropbox.com/s/pg3oe9ybusdh27d/Nichijou%20-%2001%20-%20Zzz.mp3?dl=0)
 
@@ -508,9 +536,9 @@ Nisemonogatari
 
 No Game No Life
 
-[Konomi Suzuki - This game](https://soundcloud.com/mahdi-muhamad-arif/this-game-konomi-suzuki)
+[This game](https://www.dropbox.com/s/8lxd1zigqvb1ux2/Suzumiya%20Haruhi%20no%20Yuuutsu%20-%20Lost%20my%20music.mp3?dl=0)
 
-[Oracion](https://soundcloud.com/kevin-269/no-game-no-life-ed-full-oracion)
+[Oracion](https://www.dropbox.com/s/6trka0eliysjq69/No%20Game%20No%20Life%20-%20Oracion.mp3?dl=0)
 
 Ore no Imouto ga Konnani Kawaii Wake ga Nai
 
@@ -548,7 +576,7 @@ Sayonara Zetsubou Sensei
 
 [Marionette](https://www.dropbox.com/s/uudz6mfj4kf119w/Sayonara%20Zetsubou%20Sensei%20-%2001%20-%20Marionette.mp3?dl=0)
 
-[Zetsubou Restaurant](https://soundcloud.com/duy-nguyen-421/zetsubou-restaurant)
+[Zetsubou Restaurant](https://www.dropbox.com/s/wfpntijano3zh4f/Sayonara%20Zetsubou%20Sensei%20-%20Zetsubou%20Restaurant.mp3?dl=0)
 
 SD Gundam Force
 
@@ -628,9 +656,9 @@ Suzumiya Haruhi no Yuuutsu
 
 [Tomare](https://www.dropbox.com/s/ofe2rapjeg969qv/Suzumiya%20Haruhi%20-%2001%20-%20Tomare%21.mp3?dl=0)
 
-[Lost My Music](https://soundcloud.com/user3678106/02-lost-my-music)
+[Lost My Music](https://www.dropbox.com/s/8lxd1zigqvb1ux2/Suzumiya%20Haruhi%20no%20Yuuutsu%20-%20Lost%20my%20music.mp3?dl=0)
 
-[God knows](https://www.dropbox.com/s/u75rcuj8b5kn5sk/Suzumiya%20Haruhi%20-%2009%20God%20Knows....mp3?dl=0)
+[God knows](https://www.dropbox.com/s/4y04h133zqf8q1u/Suzumiya%20Haruhi%20no%20Yuuutsu%20-%20God%20knows%EF%BC%8E%EF%BC%8E%EF%BC%8E.mp3?dl=0)
 
 [Hare Hare Yukai (Emiri Kimidori)](https://www.dropbox.com/s/eulbop74sopp5ji/Suzumiya%20Haruhi%20-%20Hare%20Hare%20Yukai%20%28Emiri%20Kimidori%29.mp3?dl=0)
 
@@ -766,11 +794,11 @@ Claire
 
 25
 
-[Brand New Days](https://soundcloud.com/whiteneko-3/kana-hanazawa-brand-new-days)
+[Brand New Days](https://www.dropbox.com/s/68zh7ac0tr11n7a/Kana%20Hanazawa%20-%20Brand%20New%20Days.mp3?dl=0)
 
-[Tabidatsu Kanojo to Furui Sebyoushi](https://soundcloud.com/alghi-fary/tabidatsu-kanojo-to-furui-sebyoushi)
+[Mujakina Kimi to Manatsu no Melody](https://www.dropbox.com/s/1zxzcibekcnwaen/Kana%20Hanazawa%20-%20Mujaki%20na%20Kimi%20to%20Manatsu%20no%20Melody.mp3?dl=0)
 
-[Mujakina Kimi to Manatsu no Melody](https://www.youtube.com/watch?v=HvpBs_2gVqQ)
+[Tabidatsu Kanojo to Furui Sebyoushi](https://www.dropbox.com/s/p6b62mdxl54ju4g/Kana%20Hanazawa%20-%20Tabidatsu%20Kanojo%20to%20Furui%20Sebyoushi.mp3?dl=0)
 
 Blue Avenue
 
@@ -809,6 +837,10 @@ Opportunity
 [AKB48 - 01. Koi Suru Fortune Cookie](https://www.dropbox.com/s/5qwv1ayt4qb3jld/AKB48%20-%2001.%20Koi%20Suru%20Fortune%20Cookie.mp3?dl=0)
 
 [Beaver Dam](https://www.dropbox.com/s/j5fqc4nx0msdrwa/Beaver%20Dam.mp3?dl=0)
+
+[Stereoman & Yunomi - シンデレラベイビー (feat. アンテナガール)【F-C commune310 compilation B2】](https://www.dropbox.com/s/qty5ua78ys6eekx/Stereoman%20%26%20Yunomi%20-%20%E3%82%B7%E3%83%B3%E3%83%87%E3%83%AC%E3%83%A9%E3%83%99%E3%82%A4%E3%83%93%E3%83%BC%20%28feat.%20%E3%82%A2%E3%83%B3%E3%83%86%E3%83%8A%E3%82%AC%E3%83%BC%E3%83%AB%29%E3%80%90F-C%20commune310%20compilation%20B2%E3%80%91.mp3?dl=0)
+
+[Stereoman & Yunomi - commune310 Christmas EP 2016 - 02 シンデレラベイビー feat. アンテナガール (KOTONOHOUSE remix)](https://www.dropbox.com/s/94fwazbefjzi98z/Stereoman%20%26%20Yunomi%20-%20commune310%20Christmas%20EP%202016%20-%2002%20%E3%82%B7%E3%83%B3%E3%83%87%E3%83%AC%E3%83%A9%E3%83%99%E3%82%A4%E3%83%93%E3%83%BC%20feat.%20%E3%82%A2%E3%83%B3%E3%83%86%E3%83%8A%E3%82%AC%E3%83%BC%E3%83%AB%20%28KOTONOHOUSE%20remix%29.mp3?dl=0)
 
 # Lilac
 
@@ -2114,8 +2146,6 @@ Full Metal Panic
 
 [Lies in Reality FELT Subbed](https://www.youtube.com/watch?v=F7mwMxTZT8U)
 
-[Blue Blur- Sonic Generations OST Rooftop Run Act 2](https://www.youtube.com/watch?v=lcCAUCe7ku8)
-
 [(MV) REOL / YoiYoi Kokon](https://www.youtube.com/watch?v=8IK6eLTNV1k)
 
 [(MV) REOL - / Hibikase](https://www.youtube.com/watch?v=UC_qla6FQwM)
@@ -2129,8 +2159,6 @@ Full Metal Panic
 [P/masara - Love10 (ft. Juunana & Ran)](https://www.youtube.com/watch?v=jP1kz8aPywA)
 
 [ECHO Happy 2015!!!](https://www.youtube.com/watch?v=wIMmic7HhRg)
-
-[perthed again (yambabom remix)](https://www.dropbox.com/s/abg3sx5gvioizwp/06%20perthed%20again%20%28yambabom%20remix%29.mp3?dl=0)
 
 [ARM feat. Nanahira - BakunanaTestroyer](https://www.dropbox.com/s/n0t1b7j25gg7z0x/ARM%20feat.%20Nanahira%20-%20BakunanaTestroyer%20%28intoon%29.mp3?dl=0)
 
@@ -2147,8 +2175,6 @@ Full Metal Panic
 [KUMAMIKO DANCING](https://www.dropbox.com/s/jtybtu10lxkxd25/KUMAMIKO%20DANCINGTV%20size.mp3?dl=0)
 
 [Mewhan - Boku no Friend](https://www.dropbox.com/s/g3p4j3rktqdtb7c/Mewhan%20-%20Boku%20no%20Friend.mp3?dl=0)
-
-[SoundTeMP - Dreamer's Dream](https://www.dropbox.com/s/mgqnk7g8ss9ly2g/Ragnarok%20Online%20OST%20-%20Dreamer%26%2339%3Bs%20Dream.mp3?dl=0)
 
 [Rita - Dream Walker](https://www.dropbox.com/s/zhizroc1qll6kp6/Rita%20-%20Dream%20Walker.mp3?dl=0)
 
