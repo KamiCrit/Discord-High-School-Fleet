@@ -1,4 +1,4 @@
-2017-08-18 1650
+2017-08-18 1800
 
 **Crtl+F and right click URL's for quick !play-ing of songs:**
 
@@ -25,6 +25,8 @@
 [N3DSdude](https://github.com/KamiCrit/Discord-High-School-Fleet/blob/master/playlist/README.md#n3dsdude-lilacs-stolen-songs)
 
 [PinkyForever](https://github.com/KamiCrit/Discord-High-School-Fleet/blob/master/playlist/README.md#pinkyforever)
+
+[Silencerturtle]https://github.com/KamiCrit/Discord-High-School-Fleet/blob/master/playlist/README.md#silencerturtle
 
 [Smarty](https://github.com/KamiCrit/Discord-High-School-Fleet/blob/master/playlist/README.md#smarty)
 
@@ -3093,3 +3095,11 @@ Ro-Kyu-Bu!
 Tenshi no 3P!
 
 [Habataki no Birthday](https://www.dropbox.com/s/v73wzl3kjzn8f1q/01.%20Habataki%20no%20Birthday.mp3?dl=0)
+
+# Silencerturtle
+
+## Possibily Music
+
+Shinsekai Yori
+
+[Wareta Ringo](https://www.dropbox.com/s/wviaobzz5rlddu7/01.%20Wareta%20Ringo.mp3?dl=0)
