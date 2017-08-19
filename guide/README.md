@@ -14,7 +14,7 @@ From most to least preferred
 
 * Overly long songs, under 6mins is preferred.
 * Album dumps, we are looking for the best songs not more songs. Quality over quantity.
-* English covers of Japanese songs.
+* Non-Japanese covers of Japanese songs.
 * Songs that don't fall into any of the "What's acceptable" catagories. #LoopHoles
 
 ## How should my submission be formatted?
