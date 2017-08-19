@@ -78,6 +78,8 @@ Angel Beats
 
 [My Soul, Your Beats!](https://www.dropbox.com/s/pb3pjmayb8yxbth/Angel%20Beats%20-%20My%20Soul%2C%20Your%20Beats%21.mp3?dl=0)
 
+[My Soul, Your Beats! (ENSON3)](https://www.dropbox.com/s/umzq2jxhm2vl5pl/Angel%20Beats%20-%20My%20Soul%2C%20Your%20Beats%21%20%28ENSON3%29.mp3?dl=0)
+
 Ano Hi Mita Hana no Namae wo Bokutachi wa Mada Shiranai.
 
 [secret base -Kimi ga Kureta Mono- (10 years after ver.)](https://www.dropbox.com/s/cfzl0hjlmbmq7yv/AnoHana%20-%2001%20-%20Secret%20Base%20~Kimi%20ga%20Kureta%20mono~%20%2810%20years%20after%20Ver.%29.mp3?dl=0)
@@ -254,9 +256,11 @@ Haiyore! Nyaruko-san W
 
 Hibike
 
-[TRUE - Dream Solister](https://www.dropbox.com/s/chfw9fu5x58fcsp/Hibike%21%20Euphonium%20-%20TRUE%20-%20DREAM%20SOLISTER.mp3?dl=0)
+[Dream Solister](https://www.dropbox.com/s/chfw9fu5x58fcsp/Hibike%21%20Euphonium%20-%20TRUE%20-%20DREAM%20SOLISTER.mp3?dl=0)
 
-[TRUE - Soundscape](https://www.dropbox.com/s/n7eadg7frbzn9i3/Hibike%21%20Euphonium%20-%20TRUE%20-%20Soundscape.mp3?dl=0)
+[DREAM SOLISTER (ENSON3)](https://www.dropbox.com/s/j4u17qlxxbh4cbn/Hibike%20-%20%20DREAM%20SOLISTER%20%28ENSON3%29.mp3?dl=0)
+
+[Soundscape](https://www.dropbox.com/s/n7eadg7frbzn9i3/Hibike%21%20Euphonium%20-%20TRUE%20-%20Soundscape.mp3?dl=0)
 
 High School Fleet / Haifuri
 
@@ -397,6 +401,8 @@ Love Live
 [Hanaemi Melody COLORFUL VOICE HDB2014 R1](https://www.dropbox.com/s/8k3csxwv3mrcuqu/Love%20Live%20-%20%E3%80%90%E2%84%8Banaemi%E2%99%AA%E2%84%B3elody%E3%80%91%20COLORFUL%20VOICE%E3%80%90HDB2014%20R1%E3%80%91.mp3?dl=0)
 
 [Sunshine Pikkapika Ondo](https://www.dropbox.com/s/epem48hj0rr3t9g/Love%20Live%20-%20Sunshine%20Pikkapika%20Ondo.mp3?dl=0)
+
+[Snow halation (ENSON3](https://www.dropbox.com/s/7s9wyo2w4m3hyim/Love%20Live%20-%20Snow%20halation%20%28ENSON3%29.mp3?dl=0)
 
 Lucky Star
 
