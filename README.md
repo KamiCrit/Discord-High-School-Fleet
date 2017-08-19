@@ -4,6 +4,6 @@ We use GitHub for keeping track of changes to our playlist collaberation.
 
 [Join the community](https://discord.gg/BmFuJYs)
 
-[Find the playlist](../playlist/README.md)
+[Find the playlist](../master/playlist/README.md)
 
-[Read the song submission guide](../guide/README.md)
+[Read the song submission guide](../master/guide/README.md)
