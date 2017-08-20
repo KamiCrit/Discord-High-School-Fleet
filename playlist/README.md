@@ -402,7 +402,7 @@ Love Live
 
 [Sunshine Pikkapika Ondo](https://www.dropbox.com/s/epem48hj0rr3t9g/Love%20Live%20-%20Sunshine%20Pikkapika%20Ondo.mp3?dl=0)
 
-[Snow halation (ENSON3](https://www.dropbox.com/s/7s9wyo2w4m3hyim/Love%20Live%20-%20Snow%20halation%20%28ENSON3%29.mp3?dl=0)
+[Snow halation (ENSON3)](https://www.dropbox.com/s/7s9wyo2w4m3hyim/Love%20Live%20-%20Snow%20halation%20%28ENSON3%29.mp3?dl=0)
 
 Lucky Star
 
