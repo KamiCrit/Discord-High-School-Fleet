@@ -40,9 +40,9 @@
 
 3-gatsu no Lion
 
-[BUMP OF CHICKEN - Answer](https://www.dropbox.com/s/vf7tne4qjlohdw5/3-Gatsu%20No%20Lion%20-%20BUMP%20OF%20CHICKEN%20-%20Answer.mp3?dl=0)
+[Answer](https://www.dropbox.com/s/vf7tne4qjlohdw5/3-Gatsu%20No%20Lion%20-%20BUMP%20OF%20CHICKEN%20-%20Answer.mp3?dl=0)
 
-[BUMP OF CHICKEN - Fighter](https://www.dropbox.com/s/y5mpd8p2yk28fuu/3-Gatsu%20No%20Lion%20-%20BUMP%20OF%20CHICKEN%20-%20Fighter.mp3?dl=0)
+[Fighter](https://www.dropbox.com/s/y5mpd8p2yk28fuu/3-Gatsu%20No%20Lion%20-%20BUMP%20OF%20CHICKEN%20-%20Fighter.mp3?dl=0)
 
 [Sayonara Bystander](https://www.dropbox.com/s/8ksiuj4l1dagljs/3-Gatsu%20no%20Lion%20-%20Sayonara%20Bystander.mp3?dl=0)
 
@@ -68,7 +68,7 @@ Amaama to Inazuma
 
 Amagi Brilliant Park
 
-[AKINO with bless4 - Extra Magic Hour](https://www.dropbox.com/s/nf6gyagqv1gtem3/Amagi%20Brilliant%20Park%20-%20AKINO%20with%20bless4%20-%20Extra%20Magic%20Hour.mp3?dl=0)
+[Extra Magic Hour](https://www.dropbox.com/s/nf6gyagqv1gtem3/Amagi%20Brilliant%20Park%20-%20AKINO%20with%20bless4%20-%20Extra%20Magic%20Hour.mp3?dl=0)
 
 [Elementario de Aimashou](https://www.dropbox.com/s/lv338bmoj3lznhn/Amagi%20Brilliant%20Park%20-%20Elementario%20de%20Aimashou.mp3?dl=0)
 
@@ -106,7 +106,7 @@ Bakemonogatari
 
 Bakuon!!
 
-[Sayaka Sasaki - FEELxALIVE](https://www.dropbox.com/s/64sjvv32dtvhn4s/Bakuon%21%21%20-%20Sayaka%20Sasaki%20-%20FEEL%C3%97ALIVE.mp3?dl=0)
+[FEELxALIVE](https://www.dropbox.com/s/64sjvv32dtvhn4s/Bakuon%21%21%20-%20Sayaka%20Sasaki%20-%20FEEL%C3%97ALIVE.mp3?dl=0)
 
 Bernard-jou Iwaku.
 
@@ -114,11 +114,11 @@ Bernard-jou Iwaku.
 
 Boku dake ga Inai Machi / ERASED
 
-[Asian Kung-Fu Generation - Re:Re: (2016)](https://www.dropbox.com/s/zx2r5xqkp7v3cjm/Boku%20dake%20ga%20Inai%20Machi%20-%20Asian%20Kung-Fu%20Generation%20-%20ReRe%20%282016%29.mp3?dl=0)
+[Re:Re: (2016)](https://www.dropbox.com/s/zx2r5xqkp7v3cjm/Boku%20dake%20ga%20Inai%20Machi%20-%20Asian%20Kung-Fu%20Generation%20-%20ReRe%20%282016%29.mp3?dl=0)
 
-[Sayuri - Sore wa Chiisana Hikari no Youna](https://www.dropbox.com/s/hl070fo2rqox9q6/Boku%20dake%20ga%20Inai%20Machi%20-%20Sayuri%20-%20Sore%20wa%20Chiisana%20Hikari%20no%20Youna.mp3?dl=0)
+[Sore wa Chiisana Hikari no Youna](https://www.dropbox.com/s/hl070fo2rqox9q6/Boku%20dake%20ga%20Inai%20Machi%20-%20Sayuri%20-%20Sore%20wa%20Chiisana%20Hikari%20no%20Youna.mp3?dl=0)
 
-[Asian Kung-Fu Generation - Re:Re: (2004)](https://www.dropbox.com/s/h8d0fr52s0b1kyp/Boku%20dake%20ga%20Inai%20Machi%20-%20Asian%20Kung-Fu%20Generation%20-%20ReRe%20%282004%29.mp3?dl=0)
+[Re:Re: (2004)](https://www.dropbox.com/s/h8d0fr52s0b1kyp/Boku%20dake%20ga%20Inai%20Machi%20-%20Asian%20Kung-Fu%20Generation%20-%20ReRe%20%282004%29.mp3?dl=0)
 
 [AKG Tribute - Re:Re:](https://www.dropbox.com/s/onhz7rybgqlroqf/AKG%20Tribute%20-%20Re-Re-.mp3?dl=0)
 
@@ -204,7 +204,7 @@ Gatchaman Crowds
 
 Gekkan Shoujo Nozaki-kun
 
-[Masayoshi Ooishi - Kimi ja Nakya Dame Mitai](https://www.dropbox.com/s/epqlkcxo69sd4jv/Gekkan%20Shoujo%20Nozaki-kun%20-%20Masayoshi%20Ooishi%20-%20Kimi%20ja%20Nakya%20Dame%20Mitai.mp3?dl=0)
+[Kimi ja Nakya Dame Mitai](https://www.dropbox.com/s/epqlkcxo69sd4jv/Gekkan%20Shoujo%20Nozaki-kun%20-%20Masayoshi%20Ooishi%20-%20Kimi%20ja%20Nakya%20Dame%20Mitai.mp3?dl=0)
 
 [Ura Omote Fortune](https://www.dropbox.com/s/be56jr3h3y8uhpz/Gekkan%20Shoujo%20Nozaki-kun%20-%20Ura%20Omote%20Fortune.mp3?dl=0)
 
@@ -218,13 +218,13 @@ Girlish Number
 
 Girls Und Panzer
 
-[ChouCho - Dream Riser](https://www.dropbox.com/s/0zz9tdh6u9c2vyh/Girls%20und%20Panzer%20-%2001%20-%20DreamRiser.mp3?dl=0)
+[Dream Riser](https://www.dropbox.com/s/0zz9tdh6u9c2vyh/Girls%20und%20Panzer%20-%2001%20-%20DreamRiser.mp3?dl=0)
 
 [Enter Enter MISSION!](https://www.dropbox.com/s/z5qws9pdyjmnlli/Girls%20und%20Panzer%20-%2001%20-%20Enter%20Enter%20MISSION%21.mp3?dl=0)
 
 [Piece Of Youth](https://www.dropbox.com/s/frq18oljrlw2qm8/Girls%20und%20Panzer%20-%2001%20-%20piece%20of%20youth.mp3?dl=0)
 
-[ChouCho - Dream Riser (Anglerfish Team)](https://www.dropbox.com/s/cclqou55b7zmqo0/Girls%20Und%20Panzer%20-%20ChouCho%20-%20Dream%20Riser%20%28Anglerfish%20Team%29.mp3?dl=0)
+[Dream Riser (Anglerfish Team)](https://www.dropbox.com/s/cclqou55b7zmqo0/Girls%20Und%20Panzer%20-%20ChouCho%20-%20Dream%20Riser%20%28Anglerfish%20Team%29.mp3?dl=0)
 
 [Senshamichi Koushinkyoku](https://www.dropbox.com/s/lrm2iijakug14pl/Girls%20und%20Panzer%20-%20Extra_%20Senshamichi%20koushinkyoku.mp3?dl=0)
 
@@ -462,19 +462,19 @@ Monster Musume
 
 Musaigen no Phantom World
 
-[Azusa Tadokoro - Junshin Always](https://www.dropbox.com/s/yzg03ikaaroev41/Musaigen%20no%20Phantom%20World%20-%2001%20-%20Junshin%20Always.mp3?dl=0)
+[Junshin Always](https://www.dropbox.com/s/yzg03ikaaroev41/Musaigen%20no%20Phantom%20World%20-%2001%20-%20Junshin%20Always.mp3?dl=0)
 
 Nagato Yuki-chan no Shoushitsu
 
-[Minori Chihara - Arigatou Daisuki](https://www.dropbox.com/s/qnhny53ng02ov2z/Nagato%20Yuki-chan%20no%20Shoushitsu%20-%20Minori%20Chihara%20-%20Arigatou%2C%20Daisuki.mp3?dl=0)
+[Arigatou Daisuki](https://www.dropbox.com/s/qnhny53ng02ov2z/Nagato%20Yuki-chan%20no%20Shoushitsu%20-%20Minori%20Chihara%20-%20Arigatou%2C%20Daisuki.mp3?dl=0)
 
 [Fuwafuwa Nakama de Yoroshiku ne](https://www.dropbox.com/s/cnpqumsh9imu8vw/Nagato%20Yuki-chan%20no%20Shoushitsu%20-%20Fuwafuwa%20Nakama%20de%20Yoroshiku%20ne.mp3?dl=0)
 
-[Kitakou Bungei-bu Joshikai - Fure Fure Mirai](https://www.dropbox.com/s/7t1duvcxg39yltt/Nagato%20Yuki-chan%20no%20Shoushitsu%20-%20Kitakou%20Bungei-bu%20Joshikai%20-%20Fure%20Fure%20Mirai.mp3?dl=0)
+[Fure Fure Mirai](https://www.dropbox.com/s/7t1duvcxg39yltt/Nagato%20Yuki-chan%20no%20Shoushitsu%20-%20Kitakou%20Bungei-bu%20Joshikai%20-%20Fure%20Fure%20Mirai.mp3?dl=0)
 
 Netoge no Yome wa Onnanoko ja Nai to Omotta?
 
-[Luce Twinkle Wink - 1st Love Story](https://www.dropbox.com/s/4yyn1rqjng954iy/Netoge%20no%20Yome%20wa%20Onnanoko%20ja%20Nai%20to%20Omotta%20-%2001.%201st%20Love%20Story.mp3?dl=0)
+[1st Love Story](https://www.dropbox.com/s/4yyn1rqjng954iy/Netoge%20no%20Yome%20wa%20Onnanoko%20ja%20Nai%20to%20Omotta%20-%2001.%201st%20Love%20Story.mp3?dl=0)
 
 [Shiny Day, Shiny Life](https://www.dropbox.com/s/dva8cua1fmrcxys/Netoge%20no%20Yome%20wa%20Onnanoko%20ja%20Nai%20to%20Omotta%20-%20Shiny%20Day%2C%20Shiny%20Life.mp3?dl=0)
 
@@ -526,11 +526,11 @@ Nichijou
 
 Nisekoi
 
-[ClariS - CLICK](https://www.dropbox.com/s/q6zwbui2svlxj6b/Nisekoi%20-%2001.%20CLICK.mp3?dl=0)
+[CLICK](https://www.dropbox.com/s/q6zwbui2svlxj6b/Nisekoi%20-%2001.%20CLICK.mp3?dl=0)
 
-[ClariS - STEP](https://www.dropbox.com/s/pkt6rirmoyk03vt/Nisekoi%20-%2001.%20STEP.mp3?dl=0)
+[STEP](https://www.dropbox.com/s/pkt6rirmoyk03vt/Nisekoi%20-%2001.%20STEP.mp3?dl=0)
 
-[LiSA - Rally Go Round](https://www.dropbox.com/s/fs4u6e5c8xfty34/Nisekoi%20-%2001.%20Rally%20Go%20Round.mp3?dl=0)
+[Rally Go Round](https://www.dropbox.com/s/fs4u6e5c8xfty34/Nisekoi%20-%2001.%20Rally%20Go%20Round.mp3?dl=0)
 
 [Meirou](https://www.dropbox.com/s/xh2uimotf0ctw8v/Nisekoi%20-%2006%20-%20Meirou.mp3?dl=0)
 
@@ -568,9 +568,9 @@ Pokemon Anime
 
 ReLIFE
 
-[PENGUIN RESEARCH - Button](https://www.dropbox.com/s/mqrs9123ml2919h/ReLIFE%20-%2001.%20PENGUIN%20RESEARCH%20-%20Button.mp3?dl=0) <--This is best song
+[Button](https://www.dropbox.com/s/mqrs9123ml2919h/ReLIFE%20-%2001.%20PENGUIN%20RESEARCH%20-%20Button.mp3?dl=0) <--This is best song
 
-[Tamio Okuda - Iijuu Rider](https://www.dropbox.com/s/971k4h46999ft8k/ReLIFE%20-%2001.%20Tamio%20Okuda%20-%20Iijuu%20Rider.mp3?dl=0)
+[Iijuu Rider](https://www.dropbox.com/s/971k4h46999ft8k/ReLIFE%20-%2001.%20Tamio%20Okuda%20-%20Iijuu%20Rider.mp3?dl=0)
 
 Sakamoto desu ga?
 
@@ -638,7 +638,7 @@ Shirobako
 
 Shokugeki No Souma
 
-[Tokyo Karankoron - Spice](https://www.dropbox.com/s/kb4sejmyqoxalf2/Shokugeki%20no%20Souma%20-%20Tokyo%20Karankoron%20-%20Spice.mp3?dl=0)
+[Spice](https://www.dropbox.com/s/kb4sejmyqoxalf2/Shokugeki%20no%20Souma%20-%20Tokyo%20Karankoron%20-%20Spice.mp3?dl=0)
 
 Shouwa Genroku Rakugo Shinjuu Sukeroku Futatabi-hen - 
 
@@ -646,9 +646,9 @@ Shouwa Genroku Rakugo Shinjuu Sukeroku Futatabi-hen -
 
 Stella no Mahou
 
-[Shino Shimoji - God Save The Girls](https://www.dropbox.com/s/14y27okfa7amt37/Stella%20no%20Mahou%20-%20Shino%20Shimoji%20-%20God%20Save%20The%20Girls.mp3?dl=0)
+[God Save The Girls](https://www.dropbox.com/s/14y27okfa7amt37/Stella%20no%20Mahou%20-%20Shino%20Shimoji%20-%20God%20Save%20The%20Girls.mp3?dl=0)
 
-[Tamaki to Yumine - Yonaka Jikaru](https://www.dropbox.com/s/lno186fzxwc7t6v/Stella%20no%20Mahou%20-%20Yonaka%20Jikaru.mp3?dl=0)
+[Yonaka Jikaru](https://www.dropbox.com/s/lno186fzxwc7t6v/Stella%20no%20Mahou%20-%20Yonaka%20Jikaru.mp3?dl=0)
 
 Suzumiya Haruhi no Yuuutsu
 
@@ -684,9 +684,9 @@ Tamako Love Story
 
 Tanaka-kun wa Itsumo Kedaruge
 
-[Unlimited tone - Utatane Sunshine](https://www.dropbox.com/s/7moq63urjnw7u3f/Tanaka-kun%20wa%20Itsumo%20Kedaruge%20-%20Unlimited%20tone%20-%20Utatane%20Sunshine.mp3?dl=0)
+[Utatane Sunshine](https://www.dropbox.com/s/7moq63urjnw7u3f/Tanaka-kun%20wa%20Itsumo%20Kedaruge%20-%20Unlimited%20tone%20-%20Utatane%20Sunshine.mp3?dl=0)
 
-[CooRie - BON-BON](https://www.dropbox.com/s/127b831ctqj0h5r/Tanaka-kun%20wa%20Itsumo%20Kedaruge%20-%20CooRie%20-%20BON-BON.mp3?dl=0)
+[BON-BON](https://www.dropbox.com/s/127b831ctqj0h5r/Tanaka-kun%20wa%20Itsumo%20Kedaruge%20-%20CooRie%20-%20BON-BON.mp3?dl=0)
 
 Tonari no Seki-kun
 
