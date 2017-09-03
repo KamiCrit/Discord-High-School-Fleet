@@ -1,4 +1,4 @@
-2017-08-19 0830
+2017-09-03 1600
 
 **Crtl+F and right click URL's for quick !play-ing of songs:**
 
@@ -198,6 +198,10 @@ Gabriel DropOut
 
 [Hallelujah☆Essaim](https://www.dropbox.com/s/r16fmtlkznzgw04/Gabriel%20DropOut%20-%20Hallelujah%E2%98%86Essaim.mp3?dl=0)
 
+Gamers!
+
+[GAMERS!](https://www.dropbox.com/s/rsvm9muorc1b2zx/Gamers%21%20-%20GAMERS%21.mp3?dl=0)
+
 Gatchaman Crowds
 
 [In The Name Of Love](https://www.dropbox.com/s/z1qyg4ti42ao9pt/Gatchaman%20Crowds%20-%2001%20-%20Gotchaman%20-%20In%20the%20name%20of%20Love.mp3?dl=0)
@@ -256,11 +260,17 @@ Haiyore! Nyaruko-san W
 
 Hibike
 
-[Dream Solister](https://www.dropbox.com/s/chfw9fu5x58fcsp/Hibike%21%20Euphonium%20-%20TRUE%20-%20DREAM%20SOLISTER.mp3?dl=0)
+[DREAM SOLISTER](https://www.dropbox.com/s/chfw9fu5x58fcsp/Hibike%21%20Euphonium%20-%20TRUE%20-%20DREAM%20SOLISTER.mp3?dl=0)
+
+[DREAM SOLISTER (Wind Orchestra Ver.)](https://www.dropbox.com/s/a2kwmrvv1b9ce4t/Hibike%21%20Euphonium%20-%2017.%20DREAM%20SOLISTER%20%28Wind%20Orchestra%20Ver.%29.mp3?dl=0)
 
 [DREAM SOLISTER (ENSON3)](https://www.dropbox.com/s/j4u17qlxxbh4cbn/Hibike%20-%20%20DREAM%20SOLISTER%20%28ENSON3%29.mp3?dl=0)
 
 [Soundscape](https://www.dropbox.com/s/n7eadg7frbzn9i3/Hibike%21%20Euphonium%20-%20TRUE%20-%20Soundscape.mp3?dl=0)
+
+[Soundscape (TRUE & Wind Orchestra Ver.)](https://www.dropbox.com/s/v0j4e1nkaoiou9r/Hibike%21%20Euphonium%202%20-%2002.%20%E3%82%B5%E3%82%A6%E3%83%B3%E3%83%89%E3%82%B9%E3%82%B1%E3%83%BC%E3%83%97%28TRUE%20%26%20Wind%20Orchestra%20Ver.%29.mp3?dl=0)
+
+[FUNICULI FUNICULA](https://www.dropbox.com/s/rgkcmu5cdwullym/Hibike%21%20Euphonium%20-%2009.%20FUNICULI%20FUNICULA.mp3?dl=0)
 
 High School Fleet / Haifuri
 
@@ -364,11 +374,15 @@ Kobayashi-san Chi no Maid Dragon
 
 [Aozora no Rhapsody](https://www.dropbox.com/s/u3bqag60lrudell/Kobayashi-san%20Chi%20no%20Maid%20Dragon%20-%20Aozora%20no%20Rhapsody.mp3?dl=0)
 
+[Kobayashi's Dragon Maid OP_ 青空のラプソディ feat. IA ROCKS [ dj-Jo Remix ] Full Version](https://www.dropbox.com/s/jhkyy0nqyomye9j/Kobayashi-san%20Chi%20no%20Maid%20Dragon%20-%20Kobayashi%27s%20Dragon%20Maid%20OP_%20%E9%9D%92%E7%A9%BA%E3%81%AE%E3%83%A9%E3%83%97%E3%82%BD%E3%83%87%E3%82%A3%20feat.%20IA%20ROCKS%20%5B%20dj-Jo%20Remix%20%5D%20Full%20Version.mp3?dl=0)
+
 [Ishukan Communication](https://www.dropbox.com/s/3h2ha7kdz3kg1zu/Kobayashi-san%20Chi%20no%20Maid%20Dragon%20-%20Ishukan%20Communication.mp3?dl=0)
 
 Koe no Katachi
 
 [Koi wo Shita no wa](https://www.dropbox.com/s/36otpatm4tc59h6/Koe%20no%20Katachi%20-%20Koi%20wo%20Shita%20no%20wa.mp3?dl=0)
+
+[lit(var)](https://www.dropbox.com/s/853xpbgdrucnifb/Koe%20no%20Katachi%20-%2039.%20lit%28var%29.mp3?dl=0)
 
 Koi to Uso
 
@@ -407,6 +421,8 @@ Love Live
 Lucky Star
 
 [Motteke! Sailor Fuku](https://www.dropbox.com/s/uxwnqegmfmjdb8i/Lucky%20Star%20-%20Motteke%21%20Sailor%20Fuku.mp3?dl=0)
+
+[Fun Fun Fun Dayo [Remix]](https://www.dropbox.com/s/ldugap7k9216n0o/Lucky%20Star%20-%20Fun%20Fun%20Fun%20Dayo%20%5BRemix%5D.mp3?dl=0)
 
 [Konata no Theme, India Version](https://www.dropbox.com/s/jdoo3gwb0jcgdn2/Lucky%20Star%20-%2004-konata-no-theme-india-version.mp3?dl=0)
 
@@ -532,6 +548,8 @@ Nisekoi
 
 [Rally Go Round](https://www.dropbox.com/s/fs4u6e5c8xfty34/Nisekoi%20-%2001.%20Rally%20Go%20Round.mp3?dl=0)
 
+[Rally Go Round feat. Yuzuki Yukari [ dj-Jo Remix ] Full Version](https://www.dropbox.com/s/w82l1jmu8ph16cg/Nisekoi%20-%20Rally%20Go%20Round%20feat.%20Yuzuki%20Yukari%20%5B%20dj-Jo%20Remix%20%5D%20Full%20Version.mp3?dl=0)
+
 [Meirou](https://www.dropbox.com/s/xh2uimotf0ctw8v/Nisekoi%20-%2006%20-%20Meirou.mp3?dl=0)
 
 Nisemonogatari
@@ -640,6 +658,8 @@ Shokugeki No Souma
 
 [Spice](https://www.dropbox.com/s/kb4sejmyqoxalf2/Shokugeki%20no%20Souma%20-%20Tokyo%20Karankoron%20-%20Spice.mp3?dl=0)
 
+[Spice feat. Nyamai [ dj-Jo Remix ]](https://www.dropbox.com/s/pd8xqsnp459argc/Shokugeki%20no%20Souma%20-%20Spice%20feat.%20Nyamai%20%5B%20dj-Jo%20Remix%20%5D.mp3?dl=0)
+
 Shouwa Genroku Rakugo Shinjuu Sukeroku Futatabi-hen - 
 
 [Imawa no Shinigami](https://www.dropbox.com/s/qgkws8t4kkncoad/Shouwa%20Genroku%20Rakugo%20Shinjuu%20Sukeroku%20Futatabi-hen%20-%20Imawa%20no%20Shinigami.mp3?dl=0)
@@ -666,6 +686,8 @@ Suzumiya Haruhi no Yuuutsu
 
 [God knows (ENSON2)](https://www.dropbox.com/s/u75rcuj8b5kn5sk/Suzumiya%20Haruhi%20-%2009%20God%20Knows....mp3?dl=0)
 
+[God knows (Poppin'Party)](https://www.dropbox.com/s/iarf1br6ucqpy43/%E3%80%90%E6%9C%9F%E9%96%93%E9%99%90%E5%AE%9A%E5%85%AC%E9%96%8B%E3%80%91Poppin%27Party%E3%80%8EGod%20knows...%E3%80%8F%EF%BC%88%E3%83%95%E3%83%AB%E3%82%B5%E3%82%A4%E3%82%BAVer.%EF%BC%89.mp3?dl=0)
+
 [Hare Hare Yukai (Emiri Kimidori)](https://www.dropbox.com/s/eulbop74sopp5ji/Suzumiya%20Haruhi%20-%20Hare%20Hare%20Yukai%20%28Emiri%20Kimidori%29.mp3?dl=0)
 
 Tamako Market
@@ -687,6 +709,10 @@ Tanaka-kun wa Itsumo Kedaruge
 [Utatane Sunshine](https://www.dropbox.com/s/7moq63urjnw7u3f/Tanaka-kun%20wa%20Itsumo%20Kedaruge%20-%20Unlimited%20tone%20-%20Utatane%20Sunshine.mp3?dl=0)
 
 [BON-BON](https://www.dropbox.com/s/127b831ctqj0h5r/Tanaka-kun%20wa%20Itsumo%20Kedaruge%20-%20CooRie%20-%20BON-BON.mp3?dl=0)
+
+The Idolmaster
+
+[The idolm@ster SP wandering star (SP) Town](https://www.dropbox.com/s/8mx1o077ie5g6qc/The%20idolm%40ster%20SP%20wandering%20star%20%28SP%29%20Town.mp3?dl=0)
 
 Tonari no Seki-kun
 
@@ -727,6 +753,8 @@ Urara Meirochou
 [Yumeji Labyrinth](https://www.dropbox.com/s/ud0njejxnj0ex8s/Urara%20Meirochou%20-%20Yumeji%20Labyrinth.mp3?dl=0)
 
 [go to Romance](https://www.dropbox.com/s/gyumgcw21bgqcgl/Urara%20Meirochou%20-%20go%20to%20Romance.mp3?dl=0)
+
+[Go to Romance -Bring Me Back to the 70s Mix-](https://www.dropbox.com/s/ge43rya2ijo5l52/Urara%20Meirochou%20-%20Go%20to%20Romance%20-Bring%20Me%20Back%20to%20the%2070s%20Mix-.mp3?dl=0)
 
 Yojouhan Shinwa Taikei
 
@@ -849,6 +877,12 @@ Opportunity
 [Stereoman & Yunomi - commune310 Christmas EP 2016 - 02 シンデレラベイビー feat. アンテナガール (KOTONOHOUSE remix)](https://www.dropbox.com/s/94fwazbefjzi98z/Stereoman%20%26%20Yunomi%20-%20commune310%20Christmas%20EP%202016%20-%2002%20%E3%82%B7%E3%83%B3%E3%83%87%E3%83%AC%E3%83%A9%E3%83%99%E3%82%A4%E3%83%93%E3%83%BC%20feat.%20%E3%82%A2%E3%83%B3%E3%83%86%E3%83%8A%E3%82%AC%E3%83%BC%E3%83%AB%20%28KOTONOHOUSE%20remix%29.mp3?dl=0)
 
 [Hyperdimension Neptunia - Koi Wo Game Ni Shinaide!](https://www.dropbox.com/s/xy8x51pk3tyk9g6/Hyperdimension%20Neptunia%20-%20Koi%20Wo%20Game%20Ni%20Shinaide%21.mp3?dl=0)
+
+[P-Model - 2D or not 2D](https://www.dropbox.com/s/blga9zh88dsgc7z/P-Model%20-%202D%20or%20not%202D.mp3?dl=0)
+
+[AVTechNO! - minus feat.Hatsune Miku](https://www.dropbox.com/s/8n9da8obbafosn4/AVTechNO%21%20-%20minus%20feat.Hatsune%20Miku.mp3?dl=0)
+
+[Houkago Stride - Nico Nico Chorus](https://www.dropbox.com/s/65yu7aqzc9gpi09/%E3%80%90%E2%97%87%E5%90%88%E5%94%B1%E2%97%86%E3%80%91%E6%94%BE%E8%AA%B2%E5%BE%8C%E3%82%B9%E3%83%88%E3%83%A9%E3%82%A4%E3%83%89%E3%80%90%E7%94%B7%E5%A5%B3%EF%BC%98%E4%BA%BA%EF%BC%8B%CE%B1%E3%80%91_%20Houkago%20Stride%20-%20Nico%20Nico%20Chorus.mp3?dl=0)
 
 # Lilac
 
