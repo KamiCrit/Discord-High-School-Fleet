@@ -8,7 +8,7 @@ From most to least preferred
 1) General Japanese Music (music must have Japanese lyrics)
 1) Live versions and Remixes (but not meme remixes) of 1. and 2.
 1) Anime OST
-1) Nintendo and JRPG Music
+1) Japanese video game music
 
 ## What's not acceptable?
 
