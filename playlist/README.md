@@ -1,4 +1,4 @@
-2017-09-03 1600
+2017-09-03 1800
 
 **Crtl+F and right click URL's for quick !play-ing of songs:**
 
@@ -1124,6 +1124,16 @@ Pastel*Palettes
 
 [Shuwarin Dream~in](https://www.dropbox.com/s/cb5jj8frngi76p4/Shuwarin%E2%98%86Drea~min.mp3?dl=0)
 
+Hello, Happy World!
+
+[Happiness! Happy Magical](https://www.dropbox.com/s/pz423wobdt623o8/Happiness%21%20Happy%20Magical%E2%99%AA.mp3?dl=0)
+
+## Aikatsu
+
+[Signalize!](https://www.dropbox.com/s/983qsv9kgvn7bbk/Signalize%21.mp3?dl=0)
+
+[Calendar Girl](https://www.dropbox.com/s/pp84vazo89ouys2/Calendar%20Girl.mp3?dl=0)
+
 ## Anime Songs
 
 Saki Achiga-hen
@@ -1143,6 +1153,10 @@ Kancolle
 [Our Bond with the Admiral](https://www.dropbox.com/s/vvpgbgt8ow84ixs/Our%20Bond%20with%20the%20Admiral.mp3?dl=0)
 
 [Doko Made mo Hibiku Harasho](https://www.dropbox.com/s/6u0l1tm7piirm41/Doko%20Made%20mo%20Hibiku%20Harasho.mp3?dl=0)
+
+[The Splendid 2nd Torpedo Division](https://www.dropbox.com/s/7pa4i7vwcg9r4kg/The%20Splendid%202nd%20Torpedo%20Division.mp3?dl=0)
+
+[Fubuki (Fubuki Ver.)](https://www.dropbox.com/s/3lqvm3r35zv7i81/Fubuki%20%28Fubuki%20Ver.%29.mp3?dl=0)
 
 Hanayamata
 
@@ -1173,6 +1187,8 @@ Tantei Opera Milky Holmes
 [Honnou no DOUBT](https://www.dropbox.com/s/kscfojxz06lvmoh/Honnou%20no%20DOUBT.mp3?dl=0)
 
 [Nazo! Nazo? Happiness!!](https://www.dropbox.com/s/mfqoku3j4vz1kps/Nazo%21%20Nazo%EF%BC%9F%20Happiness%21%21.mp3?dl=0)
+
+[MILKY A GO GO](https://www.dropbox.com/s/9u338e9152zbe2s/MILKY%20A%20GO%20GO.mp3?dl=0)
 
 Flip Flappers
 
@@ -1315,6 +1331,8 @@ Hinako Note
 [A E I U E O Ao!!](https://www.dropbox.com/s/f7tuz45c71ybsos/A%E3%83%BBE%E3%83%BBI%E3%83%BBU%E3%83%BBE%E3%83%BBO%E3%83%BBAo%21%21.mp3?dl=0)
 
 [Curtain Call!!!!!](https://www.dropbox.com/s/ek1bjh51t11y280/Curtain%20Call%21%21%21%21%21.mp3?dl=0)
+
+[Precious Memories](https://www.dropbox.com/s/qjo6up7q78v0dh5/Precious%20Memories.mp3?dl=0)
 
 Urara Meirochou
 
