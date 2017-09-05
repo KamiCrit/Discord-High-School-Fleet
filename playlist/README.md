@@ -2978,7 +2978,7 @@ Ansatsu Kyoushitsu (assassination classroom)
 
 [Itteki no Eikyou](https://youtu.be/t9-z8EnRCpo)
 
-[Exorcist](https://youtu.be/OGoPmctd4XM)
+[Exorcist](https://www.youtube.com/watch?v=fSks0H1wcqc) <-- Kami edit
 
 [Limit Break x Survivor](https://youtu.be/2Hr5eYEg0hw) <-- Will be switched when the OST comes
 
