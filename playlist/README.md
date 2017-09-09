@@ -908,6 +908,8 @@ Opportunity
 
 [Houkago Stride - Nico Nico Chorus](https://www.dropbox.com/s/65yu7aqzc9gpi09/%E3%80%90%E2%97%87%E5%90%88%E5%94%B1%E2%97%86%E3%80%91%E6%94%BE%E8%AA%B2%E5%BE%8C%E3%82%B9%E3%83%88%E3%83%A9%E3%82%A4%E3%83%89%E3%80%90%E7%94%B7%E5%A5%B3%EF%BC%98%E4%BA%BA%EF%BC%8B%CE%B1%E3%80%91_%20Houkago%20Stride%20-%20Nico%20Nico%20Chorus.mp3?dl=0)
 
+[Katamari Damacy - 02 katamari on the rock ~ main theme](https://www.dropbox.com/s/csbggx458wr5qxf/Katamari%20Damacy%20-%2002%20katamari%20on%20the%20rock%20~%20main%20theme.mp3?dl=0)
+
 # Lilac
 
 ## Love Live
