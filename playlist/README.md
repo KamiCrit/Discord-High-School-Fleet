@@ -1,4 +1,4 @@
-2017-09-08 1800
+2017-09-09 1430
 
 **Crtl+F and right click URL's for quick !play-ing of songs:**
 
@@ -452,6 +452,10 @@ Mahou Shoujo Madoka Magica
 
 [(Magia) MADO-MAGI-ED Cover + illust / TAMUSIC](https://www.youtube.com/watch?v=NIyv0cVlJkM)
 
+Mangaka-san to Assistant-san to The Animation
+
+[Title Call](https://www.dropbox.com/s/c9qc87j7oz0u6v8/Mangaka-san%20to%20Assistant-san%20to%20The%20Animation%20-%2002%20-%20Title%20Call.mp3?dl=0)
+
 Mawaru Penguindrum
 
 [DEAR FUTURE](https://www.dropbox.com/s/c4r9ur0sm7ea7mx/Mawaru%20Penguindrum%20-%20Dear%20Future.mp3?dl=0)
@@ -568,7 +572,17 @@ Nisekoi
 
 [Rally Go Round feat. Yuzuki Yukari [ dj-Jo Remix ] Full Version](https://www.dropbox.com/s/w82l1jmu8ph16cg/Nisekoi%20-%20Rally%20Go%20Round%20feat.%20Yuzuki%20Yukari%20%5B%20dj-Jo%20Remix%20%5D%20Full%20Version.mp3?dl=0)
 
-[Meirou](https://www.dropbox.com/s/xh2uimotf0ctw8v/Nisekoi%20-%2006%20-%20Meirou.mp3?dl=0)
+[OST 1 - 09. 恋人](https://www.dropbox.com/s/tlmo1koq1xau10c/Nisekoi%20-%2009.%20%E6%81%8B%E4%BA%BA.mp3?dl=0)
+
+[OST 1 - 10. 幕間](https://www.dropbox.com/s/goxnk8evsze5g3x/Nisekoi%20-%2010.%20%E5%B9%95%E9%96%93.mp3?dl=0)
+
+[OST 1 - 20. 浮足](https://www.dropbox.com/s/hyt7jhihkz00wrh/Nisekoi%20-%2020.%20%E6%B5%AE%E8%B6%B3.mp3?dl=0)
+
+[OST 2 - 07. 関心](https://www.dropbox.com/s/gyuofmyyrex1g5k/Nisekoi%20-%2007.%20%E9%96%A2%E5%BF%83.mp3?dl=0)
+
+[OST 3 - 06. 明朗](https://www.dropbox.com/s/qoo0pwy36e0io1m/Nisekoi%20-%2006.%20%E6%98%8E%E6%9C%97.mp3?dl=0)
+
+[OST 3 - 08. 平穏](https://www.dropbox.com/s/ka8s1wbplhzpkc9/Nisekoi%20-%2008.%20%E5%B9%B3%E7%A9%8F.mp3?dl=0)
 
 Nisemonogatari
 
