@@ -104,6 +104,8 @@ Bakemonogatari
 
 [Renai Circulation](https://www.dropbox.com/s/tebzngcs8ogbohi/Bakemonogatari%20-%2001%20Ren%27ai%20Circulation.mp3?dl=0)
 
+[★ Renai Circulation (Vocals, Orchestra)](https://www.dropbox.com/s/hp12eloawqhc038/Bakemonogatari%20-%20%E2%98%85%20Renai%20Circulation%20%28Vocals%2C%20Orchestra%29.mp3?dl=0)
+
 Bakuon!!
 
 [FEELxALIVE](https://www.dropbox.com/s/64sjvv32dtvhn4s/Bakuon%21%21%20-%20Sayaka%20Sasaki%20-%20FEEL%C3%97ALIVE.mp3?dl=0)
@@ -297,6 +299,10 @@ High School Fleet / Haifuri
 [Yokosuka Kaiyou Koukou Kouka (Brass Band Ver.)](https://www.dropbox.com/s/c9h2ujv2pia8swy/High%20School%20Fleet%20-%20Yokosuka%20Kaiyou%20Koukou%20Kouka%20%28Brass%20Band%20Ver.%29.mp3?dl=0)
 
 [Mashiro Makes a Noise](https://www.dropbox.com/s/qks2s5avsuh6p6i/High%20School%20Fleet%20-%20ebw6.mp4?dl=0)
+
+Initial D
+
+[Running in the '90s](https://www.dropbox.com/s/mdc2busz94bdfuu/Initial%20D%20-%20Max%20Coveri%20-%20Running%20in%20the%20%2790s.mp3?dl=0)
 
 JoJo
 
@@ -567,6 +573,8 @@ Nisekoi
 Nisemonogatari
 
 [Hakkin Disco](https://www.dropbox.com/s/sk4ipoie16ujjou/Nisemonogatari%20-%2001%20-%20Hakkin%20Disco.mp3?dl=0)
+
+[★ Platinum Disco (Vocals, Orchestra)](https://www.dropbox.com/s/oarchjpdz1z0wtr/Nisemonogatari%20-%20%E2%98%85%20Platinum%20Disco%20%28Vocals%2C%20Orchestra%29.mp3?dl=0)
 
 No Game No Life
 
