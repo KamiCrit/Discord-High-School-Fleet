@@ -1,4 +1,4 @@
-2017-09-03 1800
+2017-09-08 1800
 
 **Crtl+F and right click URL's for quick !play-ing of songs:**
 
@@ -202,6 +202,8 @@ Gamers!
 
 [GAMERS!](https://www.dropbox.com/s/rsvm9muorc1b2zx/Gamers%21%20-%20GAMERS%21.mp3?dl=0)
 
+[Fight on!](https://www.dropbox.com/s/un02c5wrlrg89f3/Gamers%21%20-%20Fight%20on%21.mp3?dl=0)
+
 Gatchaman Crowds
 
 [In The Name Of Love](https://www.dropbox.com/s/z1qyg4ti42ao9pt/Gatchaman%20Crowds%20-%2001%20-%20Gotchaman%20-%20In%20the%20name%20of%20Love.mp3?dl=0)
@@ -257,6 +259,12 @@ Girls Und Panzer Der Film
 Haiyore! Nyaruko-san W
 
 [Yotte S.O.S.](https://www.dropbox.com/s/2caw9c8b6xiz1nf/Haiyore%21%20Nyaruko-san%20W%20-%20Yotte%20S.O.S.mp3?dl=0)
+
+Hajimete no Gal
+
+[Hajimete no SEASON](https://www.dropbox.com/s/jkr2uz592ln0u7i/Hajimete%20no%20Gal%20%20-%20Hajimete%20no%20SEASON.mp3?dl=0)
+
+[GAL-tic Love](https://www.dropbox.com/s/h04krp0clxxx30z/Hajimete%20no%20Gal%20-%20GAL-tic%20Love.mp3?dl=0)
 
 Hibike
 
@@ -363,6 +371,8 @@ Kemono Friends
 [Youkoso Japari Park e (Live VA)](https://www.dropbox.com/s/503fj8w2nvmrlhy/Kemono%20Friends%20-%20Youkoso%20Japari%20Park%20e%20%28Live%20VA%29.mp3?dl=0)
 
 [Youkoso Japari Park e (Live Masayoshi Ooishi)](https://www.dropbox.com/s/7qchxh3ysorcc46/Kemono%20Friends%20-%20Youkoso%20Japari%20Park%20e%20%28Live%20Masayoshi%20Ooishi%29.mp3?dl=0)
+
+[Kawaii Nihiki (Remix)](https://www.dropbox.com/s/obob9jvc3l8ldw1/Kemono%20Friends%20-%2016.%20Kawaii%20Nihiki%20%28Remix%29.mp3?dl=0)
 
 [Kemono Parade -Japari Park Memorial-](https://www.dropbox.com/s/flktbo1lm4n6tza/Kemono%20Friends%20-%20Kemono%20Parade%20~Japari%20Park%20Memorial~.mp3?dl=0)
 
@@ -506,6 +516,8 @@ New Game!!
 
 [JUMPin' JUMP UP!!!!](https://www.dropbox.com/s/y5m3trgk9yn1s5b/New%20Game%21%21%20-%20JUMPin%27%20JUMP%20UP%21%21%21%21.mp3?dl=0)
 
+[Yumeiro Compass](https://www.dropbox.com/s/i22r3ihy4et3wy7/New%20Game%21%21%20-%20Yumeiro%20Compass.mp3?dl=0)
+
 Nichijou
 
 [Hyadain no Joujou Yuujou](https://www.dropbox.com/s/vksok0dgdfmkium/Nichijou%20-%2001%20-%20Hyadain%20no%20Joujou%20Yuujou.mp3?dl=0)
@@ -593,6 +605,16 @@ ReLIFE
 Sakamoto desu ga?
 
 [COOLEST](https://www.dropbox.com/s/pm1kdeajc29i7l7/Sakamoto%20desu%20ga%20-%2001.%20COOLEST.mp3?dl=0)
+
+Sakura Quest
+
+[Morning Glory](https://www.dropbox.com/s/g2yzlbz9um2ankz/Sakura%20Quest%20-%20Morning%20Glory.mp3?dl=0)
+
+[Freesia](https://www.dropbox.com/s/y8gtcldso2g3hqa/Sakura%20Quest%20-%20Freesia.mp3?dl=0)
+
+[Lupinus](https://www.dropbox.com/s/doi932kq0b5luqa/Sakura%20Quest%20-%20Lupinus.mp3?dl=0)
+
+[Baby's breath](https://www.dropbox.com/s/na417bj00x42rem/Sakura%20Quest%20-%20Baby%27s%20breath.mp3?dl=0)
 
 Sayonara Zetsubou Sensei
 
@@ -751,6 +773,8 @@ Uchuu Senkan Yamato
 Urara Meirochou
 
 [Yumeji Labyrinth](https://www.dropbox.com/s/ud0njejxnj0ex8s/Urara%20Meirochou%20-%20Yumeji%20Labyrinth.mp3?dl=0)
+
+[Yumeji Labyrinth(HUGKISS 162 EDIT)](https://www.dropbox.com/s/19mto3jxcx29ghs/Urara%20Meirochou%20-%20Yumeji%20Labyrinth%28HUGKISS%20162%20EDIT%29.mp3?dl=0)
 
 [go to Romance](https://www.dropbox.com/s/gyumgcw21bgqcgl/Urara%20Meirochou%20-%20go%20to%20Romance.mp3?dl=0)
 
