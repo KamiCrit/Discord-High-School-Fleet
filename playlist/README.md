@@ -1,4 +1,4 @@
-2017-09-09 1430
+2017-09-13 0130
 
 **Crtl+F and right click URL's for quick !play-ing of songs:**
 
@@ -3123,8 +3123,6 @@ Ansatsu Kyoushitsu (assassination classroom)
 [Twinkle Wink](https://youtu.be/1VI3oP6ragQ?list=PLTAgj6IfBoAJzPzAtj4UlXV8LXO_Xp03S)
 
 [Villie Villie](https://youtu.be/J4_OdTcTkI8?list=PLTAgj6IfBoAJzPzAtj4UlXV8LXO_Xp03S)
-
-[Verse Quence](https://youtu.be/eyFRxAXeQuQ?list=PLTAgj6IfBoAJzPzAtj4UlXV8LXO_Xp03S)
 
 [Dual Dragoon](https://youtu.be/y1A0pTAlmz4?list=PLTAgj6IfBoAJzPzAtj4UlXV8LXO_Xp03S)
 
