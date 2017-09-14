@@ -1054,6 +1054,14 @@ Aqours
 
 [HAPPY PARTY TRAIN](https://www.dropbox.com/s/ymp6o7rlpf9escq/HAPPY%20PARTY%20TRAIN.mp3?dl=0)
 
+[Yume Kataru yori Yume Utaou](https://www.dropbox.com/s/l1k6jbk3hrvypnm/Yume%20Kataru%20yori%20Yume%20Utaou.mp3?dl=0)
+
+[Sora mo Kokoro mo Hareru kara](https://www.dropbox.com/s/73e032dxka4h5d1/Sora%20mo%20Kokoro%20mo%20Hareru%20kara.mp3?dl=0)
+
+[Waku Waku Week](https://www.dropbox.com/s/tkhavpp3kt5e7ii/Waku-Waku-Week%21.mp3?dl=0)
+
+[Guilty Night Guilty Kiss](https://www.dropbox.com/s/qop9q6ihyr53h55/Guilty%20Night%2C%20Guilty%20Kiss%21.mp3?dl=0)
+
 ## Idolmaster
 
 765PRO ALLSTARS
@@ -1071,6 +1079,10 @@ Aqours
 [The World is All One](https://www.dropbox.com/s/issua1hkgthcghn/The%20world%20is%20all%20one%21%21%20%28M%40STER%20VERSION%29.mp3?dl=0)
 
 [Catch You Catch Me](https://www.dropbox.com/s/7ys68dp52iwv3b3/Catch%20You%20Catch%20Me.mp3?dl=0)
+
+[GO MY WAY!!](https://www.dropbox.com/s/o7nuviy2264feg8/GO%20MY%20WAY%21%21.mp3?dl=0)
+
+[Kouhaku Ouen V](https://www.dropbox.com/s/hdpgd8hzhe2rzpo/Kouhaku%20Ouen%20V.mp3?dl=0)
 
 Million Live
 
@@ -1170,6 +1182,8 @@ Roselia
 
 [Hidamari Rhodonite](https://www.dropbox.com/s/gqrya27yvv42h8e/Hidamari%20Rhodonite.mp3?dl=0)
 
+[Nesshoku Starmine](https://www.dropbox.com/s/hkhgnvwlgoe6o2o/Nesshoku%20Starmine.mp3?dl=0)
+
 Pastel*Palettes
 
 [Shuwarin Dream~in](https://www.dropbox.com/s/cb5jj8frngi76p4/Shuwarin%E2%98%86Drea~min.mp3?dl=0)
@@ -1177,6 +1191,10 @@ Pastel*Palettes
 Hello, Happy World!
 
 [Happiness! Happy Magical](https://www.dropbox.com/s/pz423wobdt623o8/Happiness%21%20Happy%20Magical%E2%99%AA.mp3?dl=0)
+
+Afterglow
+
+[True color](https://www.dropbox.com/s/qjh64ohgqk8k52f/True%20color.mp3?dl=0)
 
 ## Aikatsu
 
