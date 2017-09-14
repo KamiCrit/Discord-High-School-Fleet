@@ -140,7 +140,7 @@ Clannad After Story
 
 Classroom Crisis
 
-[TrySail - Honto da yo](https://www.dropbox.com/s/qld92dnvmnj0c1k/Classroom%20Crisis%20-%20TrySail%20-%20Honto%20da%20yo.mp3?dl=0)
+[Honto da yo](https://www.dropbox.com/s/qld92dnvmnj0c1k/Classroom%20Crisis%20-%20TrySail%20-%20Honto%20da%20yo.mp3?dl=0)
 
 Danna ga Nani wo Itteiru ka Wakaranai Ken
 
