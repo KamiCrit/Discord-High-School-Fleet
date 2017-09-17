@@ -710,6 +710,10 @@ Shouwa Genroku Rakugo Shinjuu Sukeroku Futatabi-hen -
 
 [Imawa no Shinigami](https://www.dropbox.com/s/qgkws8t4kkncoad/Shouwa%20Genroku%20Rakugo%20Shinjuu%20Sukeroku%20Futatabi-hen%20-%20Imawa%20no%20Shinigami.mp3?dl=0)
 
+Sore ga Seiyuu!
+
+[Anata no Omimi ni Plugin!](https://www.dropbox.com/s/snepzl9lr3042hu/Sore%20ga%20Seiyuu%21%20-%20Anata%20no%20Omimi%20ni%20Plugin%21.mp3?dl=0)
+
 Stella no Mahou
 
 [God Save The Girls](https://www.dropbox.com/s/14y27okfa7amt37/Stella%20no%20Mahou%20-%20Shino%20Shimoji%20-%20God%20Save%20The%20Girls.mp3?dl=0)
