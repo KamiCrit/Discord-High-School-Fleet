@@ -1,4 +1,4 @@
-2017-09-17 0130
+2017-09-21 2130
 
 **Crtl+F and right click URL's for quick !play-ing of songs:**
 
@@ -1128,7 +1128,7 @@ Cinderella Girls
 
 [Lilac Time](https://www.dropbox.com/s/8pp4pxq1h3yvxuk/Lilac%20Time.mp3?dl=0)
 
-[Treasure?](https://www.dropbox.com/s/lo511ckqnohenom/Treasure%E2%98%86%20%28M%40STER%20VERSION%29.mp3?dl=0)
+[Treasure☆](https://www.dropbox.com/s/lo511ckqnohenom/Treasure%E2%98%86%20%28M%40STER%20VERSION%29.mp3?dl=0)
 
 [Love Letter](https://www.dropbox.com/s/lc8rs63qnvafiff/Love%20Letter%20%28M%40STER%20VERSION%29.mp3?dl=0)
 
@@ -1181,6 +1181,12 @@ Poppin' Party
 [STAR BEAT! ~Hoshi no Kodou~](https://www.dropbox.com/s/az76wxcny1y5cdl/STAR%20BEAT%21%20%EF%BD%9EHoshi%20no%20Kodou%EF%BD%9E.mp3?dl=0)
 
 [Mae e Susume!](https://www.dropbox.com/s/qw2w7ukktoj5nx2/Mae%20e%20Susume%21.mp3?dl=0)
+
+[Time Lapse](https://www.dropbox.com/s/r2zjyw22dxi6ek5/Time%20Lapse.mp3?dl=0)
+
+[Hachigatsu no if](https://www.dropbox.com/s/jjdwm0174fq3fpu/Hachigatsu%20no%20if.mp3?dl=0)
+
+[Natsu no doon](https://www.dropbox.com/s/1pt7wz0mwuflvqv/Natsu%20no%20Doon%21.mp3?dl=0)
 
 Roselia
 
@@ -1414,6 +1420,8 @@ Urara Meirochou
 
 [Uraraka Biyori no Shijuusou](https://www.dropbox.com/s/bmly7lvpev5ii63/Uraraka%20Biyori%20no%20Shijuusou.mp3?dl=0)
 
+[Go to Romance＞＞＞＞＞ (Labryinth Ver.)](https://www.dropbox.com/s/fu7dg850xtjxl53/Go%20to%20Romance%EF%BC%9E%EF%BC%9E%EF%BC%9E%EF%BC%9E%EF%BC%9E%20%28Labryinth%20Ver.%29.mp3?dl=0)
+
 Tsuki ga Kirei
 
 [Imakoko](https://www.dropbox.com/s/3feljs8ujrnkzpd/Imakoko.mp3?dl=0)
@@ -1440,9 +1448,25 @@ Re:Creators
 
 [Sh0ut](https://www.dropbox.com/s/o0pmq55aqtqyw8f/sh0ut.mp3?dl=0)
 
+[NEWLOOK](https://www.dropbox.com/s/5yqo2p2pus10h36/NEWLOOK.mp3?dl=0)
+
+[Rubicon](https://www.dropbox.com/s/rvfgejodbe4d94w/Rubicon.mp3?dl=0)
+
 Fate/Apocrypha
 
 [Eiyuu Unmei no Uta](https://www.dropbox.com/s/6haaf584j3kotnf/Eiyuu%20Unmei%20no%20Uta.mp3?dl=0)
+
+[Desir](https://www.dropbox.com/s/wgjpcepg04qm2jb/Desir.mp3?dl=0)
+
+Action Heroine Cheer Fruits
+
+[Jounetsu☆Fruit](https://www.dropbox.com/s/c0728uwqms63uky/Jounetsu%E2%98%86Fruit.mp3?dl=0)
+
+[Hi no Ataru Basho](https://www.dropbox.com/s/0mkmryf8b0svopj/Hi%20no%20Ataru%20Basho%20%28Roko%20Main%20Version%29.mp3?dl=0)
+
+Nora to Oujo to Noraneko Heart
+
+[Ne! Ko!](https://www.dropbox.com/s/k3g03ffqldktg6m/Ne%21%20Ko%21.mp3?dl=0)
 
 ## Other Songs
 
@@ -2946,7 +2970,7 @@ Akame Ga KIll
 
 Akatsuki no Yona
 
-[Akatsuki no Hana] (https://www.dropbox.com/s/udrqvo7orwu0jl0/1%20%E6%9A%81%E3%81%AE%E8%8F%AF%20_TV%20edit_.mp3?dl=0)
+[Akatsuki no Hana](https://www.dropbox.com/s/udrqvo7orwu0jl0/1%20%E6%9A%81%E3%81%AE%E8%8F%AF%20_TV%20edit_.mp3?dl=0)
 
 Aldnoah Zero
 
@@ -2978,7 +3002,7 @@ Ange Vierge
 
 Angel Beats
 
-[Brave Song] (https://www.dropbox.com/s/xgahdk4jkbgph6g/02%20-%20Brave%20Song.mp3?dl=0)
+[Brave Song](https://www.dropbox.com/s/xgahdk4jkbgph6g/02%20-%20Brave%20Song.mp3?dl=0)
 
 Ansatsu Kyoushitsu
 
@@ -2992,17 +3016,17 @@ Ansatsu Kyoushitsu
 
 Ao no Exorcist
 
-[Itteki no Eikyou] (https://www.dropbox.com/s/gokt62y36phh1na/01.%20%E4%B8%80%E6%BB%B4%E3%81%AE%E5%BD%B1%E9%9F%BF.mp3?dl=0)
+[Itteki no Eikyou](https://www.dropbox.com/s/gokt62y36phh1na/01.%20%E4%B8%80%E6%BB%B4%E3%81%AE%E5%BD%B1%E9%9F%BF.mp3?dl=0)
 
-[Core Pride] (https://www.dropbox.com/s/95zynlpwjrrteh3/03.%20CORE%20PRIDE.mp3?dl=0)
+[Core Pride](https://www.dropbox.com/s/95zynlpwjrrteh3/03.%20CORE%20PRIDE.mp3?dl=0)
 
-[Take Off] (https://www.dropbox.com/s/38qusd05tmrngv9/01%20-%20Take%20off.mp3?dl=0)
+[Take Off](https://www.dropbox.com/s/38qusd05tmrngv9/01%20-%20Take%20off.mp3?dl=0)
 
 Ao no Kanata no Four Rhythm
 
 [Contrail](https://www.dropbox.com/s/7v45up9dmtwfd9a/01.%20Contrail%EF%BD%9E%E8%BB%8C%E8%B7%A1%EF%BD%9E.mp3?dl=0)
 
-[Wings of Courage] (https://www.dropbox.com/s/7qp2m5m58nbyg0k/01%20Wings%20of%20Courage%20-%E7%A9%BA%E3%82%92%E8%B6%85%E3%81%88%E3%81%A6-.mp3?dl=0)
+[Wings of Courage](https://www.dropbox.com/s/7qp2m5m58nbyg0k/01%20Wings%20of%20Courage%20-%E7%A9%BA%E3%82%92%E8%B6%85%E3%81%88%E3%81%A6-.mp3?dl=0)
 
 Aoharu x Kikanjuu
 
@@ -3044,9 +3068,9 @@ Bungou Stray Dogs
 
 [Namae wo Yobu yo](https://www.dropbox.com/s/sxka1x57ao6xtfg/01.%20Namae%20wo%20Yobu%20yo.mp3?dl=0)
 
-[Reason Living] (https://www.dropbox.com/s/eb6pubaqjkvnfkc/01%20-%20Reason%20Living%20%5BBungo%20Stray%20Dogs%202nd%20Opening%5D.mp3?dl=0)
+[Reason Living](https://www.dropbox.com/s/eb6pubaqjkvnfkc/01%20-%20Reason%20Living%20%5BBungo%20Stray%20Dogs%202nd%20Opening%5D.mp3?dl=0)
 
-[TRASH CANDY] (https://www.dropbox.com/s/i8f0k0546q0sddh/01.%20TRASH%20CANDY.mp3?dl=0)
+[TRASH CANDY](https://www.dropbox.com/s/i8f0k0546q0sddh/01.%20TRASH%20CANDY.mp3?dl=0)
 
 [Name Fixed with Next Yuki Update#1](https://www.dropbox.com/s/rxjn5e5gkd1653q/02.%20%E3%83%96%E3%83%AC%E3%82%A4%E3%83%90%E3%83%BC.mp3?dl=0)
 
@@ -3062,7 +3086,7 @@ Chaos Dragon Sekiryuu Seneki
 
 Charlotte
 
-[Bravely You] (https://www.dropbox.com/s/4ibrtsg0a19ev5x/01%20-%20Bravely%20You.mp3?dl=0)
+[Bravely You](https://www.dropbox.com/s/4ibrtsg0a19ev5x/01%20-%20Bravely%20You.mp3?dl=0)
 
 Chuunibyou Demo Koi ga Shita + Ren
 
@@ -3076,75 +3100,75 @@ Chuunibyou Demo Koi ga Shita + Ren
 
 Clockwork Planet
 
-[Anti-clockwork] (https://www.dropbox.com/s/lsd70nxh3ivhzxi/01%20%E3%82%A2%E3%83%B3%E3%83%81%E3%82%AF%E3%83%AD%E3%83%83%E3%82%AF%E3%83%AF%E3%82%A4%E3%82%BA.mp3?dl=0)
+[Anti-clockwork](https://www.dropbox.com/s/lsd70nxh3ivhzxi/01%20%E3%82%A2%E3%83%B3%E3%83%81%E3%82%AF%E3%83%AD%E3%83%83%E3%82%AF%E3%83%AF%E3%82%A4%E3%82%BA.mp3?dl=0)
 
-[Clockwork Planet] (https://www.dropbox.com/s/8ugwt6hfix5jeky/01.clockwork%20planet.mp3?dl=0)
+[Clockwork Planet](https://www.dropbox.com/s/8ugwt6hfix5jeky/01.clockwork%20planet.mp3?dl=0)
 
 [Name Fixed with Next Yuki Update#3](https://www.dropbox.com/s/hu4azqhr5qw8gss/04%20%E5%BD%97%E6%98%9F%E5%88%97%E8%BB%8A%E3%81%AE%E3%83%99%E3%83%AB%E3%81%8C%E9%B3%B4%E3%82%8B.mp3?dl=0)
 
 Code Geass
 
-[Colors] (https://www.dropbox.com/s/urul7nxr0q15ugi/01%20-%20COLORS.mp3?dl=0)
+[Colors](https://www.dropbox.com/s/urul7nxr0q15ugi/01%20-%20COLORS.mp3?dl=0)
 
 [Mosaic Kakera](https://www.dropbox.com/s/urul7nxr0q15ugi/01%20-%20COLORS.mp3?dl=0)
 
 Comet Lucifer
 
-[The Seed and the Sower] (https://www.dropbox.com/s/j07f6xugimvg42e/01.%20~The%20Seed%20and%20the%20Sower~.mp3?dl=0)
+[The Seed and the Sower](https://www.dropbox.com/s/j07f6xugimvg42e/01.%20~The%20Seed%20and%20the%20Sower~.mp3?dl=0)
 
 Dagashi Kashi
 
-[Checkmate!?] (https://www.dropbox.com/s/wsytt6qwy42eov0/01.%20Checkmate%21%EF%BC%9F.mp3?dl=0)
+[Checkmate!?](https://www.dropbox.com/s/wsytt6qwy42eov0/01.%20Checkmate%21%EF%BC%9F.mp3?dl=0)
 
 Danmachi 
 
-[RE-ILLUSION] (https://www.dropbox.com/s/6wk1jctzs4atok0/1%20RE-ILLUSION.mp3?dl=0)
+[RE-ILLUSION](https://www.dropbox.com/s/6wk1jctzs4atok0/1%20RE-ILLUSION.mp3?dl=0)
 
-[JOURNEY] (https://www.dropbox.com/s/4k2rp7zd1td7v24/2%20JOURNEY.mp3?dl=0)
+[JOURNEY](https://www.dropbox.com/s/4k2rp7zd1td7v24/2%20JOURNEY.mp3?dl=0)
 
 Date a Live
 
-[Trust in You] (https://www.dropbox.com/s/bezfexv0omriga3/1.%20Trust%20in%20you.mp3?dl=0)
+[Trust in You](https://www.dropbox.com/s/bezfexv0omriga3/1.%20Trust%20in%20you.mp3?dl=0)
 
-[Date a Live] (https://www.dropbox.com/s/bswnhsa0adefsu1/01.%20%E3%83%87%E3%83%BC%E3%83%88%E3%83%BB%E3%82%A2%E3%83%BB%E3%83%A9%E3%82%A4%E3%83%96.mp3?dl=0)
+[Date a Live](https://www.dropbox.com/s/bswnhsa0adefsu1/01.%20%E3%83%87%E3%83%BC%E3%83%88%E3%83%BB%E3%82%A2%E3%83%BB%E3%83%A9%E3%82%A4%E3%83%96.mp3?dl=0)
 
 [Trust in You Another Version](https://www.dropbox.com/s/q9pky1dm9f426bd/2.%20%E3%82%A4%E3%83%B3%E3%82%B9%E3%83%88%E3%83%AC%E3%83%BC%E3%82%B7%E3%83%A7%E3%83%B3.mp3?dl=0)
 
-[Ps3 Game Opening] (https://www.dropbox.com/s/xush0ftfy9mj98g/02.%20%E3%83%87%E3%83%BC%E3%83%88%E3%83%BB%E3%82%A4%E3%83%B3%E3%83%BB%E3%83%A6%E3%83%BC%E3%83%88%E3%83%94%E3%82%A2.mp3?dl=0)
+[Ps3 Game Opening](https://www.dropbox.com/s/xush0ftfy9mj98g/02.%20%E3%83%87%E3%83%BC%E3%83%88%E3%83%BB%E3%82%A4%E3%83%B3%E3%83%BB%E3%83%A6%E3%83%BC%E3%83%88%E3%83%94%E3%82%A2.mp3?dl=0)
 
 Demi-chan wa Kataritai 
 
-[Original by TrySail] (https://www.dropbox.com/s/l1dbbgvey43eekg/1%20%E3%82%AA%E3%83%AA%E3%82%B8%E3%83%8A%E3%83%AB%E3%80%82.mp3?dl=0)
+[Original by TrySail](https://www.dropbox.com/s/l1dbbgvey43eekg/1%20%E3%82%AA%E3%83%AA%E3%82%B8%E3%83%8A%E3%83%AB%E3%80%82.mp3?dl=0)
 
-[Fairy Tail] (https://www.dropbox.com/s/0j9ynu0xrf9l5qv/01.%20%E3%83%95%E3%82%A7%E3%82%A2%E3%83%AA%E3%83%BC%E3%83%86%E3%82%A4%E3%83%AB.mp3?dl=0)
+[Fairy Tail](https://www.dropbox.com/s/0j9ynu0xrf9l5qv/01.%20%E3%83%95%E3%82%A7%E3%82%A2%E3%83%AA%E3%83%BC%E3%83%86%E3%82%A4%E3%83%AB.mp3?dl=0)
 
-[Name Fixed with Next Yuki Update#4] (https://www.dropbox.com/s/x5ghmmg12kt6zvh/02.%20%E3%81%AA%E3%81%84%E3%81%9F%E8%B5%A4%E9%AC%BC%E3%80%81%E3%82%8F%E3%82%89%E3%81%86%E9%9D%92%E7%A9%BA.mp3?dl=0)
+[Name Fixed with Next Yuki Update#4](https://www.dropbox.com/s/x5ghmmg12kt6zvh/02.%20%E3%81%AA%E3%81%84%E3%81%9F%E8%B5%A4%E9%AC%BC%E3%80%81%E3%82%8F%E3%82%89%E3%81%86%E9%9D%92%E7%A9%BA.mp3?dl=0)
 
 Diamond no Ace 
 
-[Go EXCEED!!] (https://www.dropbox.com/s/42c59ot0z9kqk0k/01%20-%20Go%20EXCEED%21%21.mp3?dl=0)
+[Go EXCEED!!](https://www.dropbox.com/s/42c59ot0z9kqk0k/01%20-%20Go%20EXCEED%21%21.mp3?dl=0)
 
-[HEROES] (https://www.dropbox.com/s/ckz10nvmbvh4mjt/01%20HEROES.mp3?dl=0)
+[HEROES](https://www.dropbox.com/s/ckz10nvmbvh4mjt/01%20HEROES.mp3?dl=0)
 
-[BRAND NEW BLUE] (https://www.dropbox.com/s/94kd2g42d677d1q/01%20BRAND%20NEW%20BLUE.mp3?dl=0)
+[BRAND NEW BLUE](https://www.dropbox.com/s/94kd2g42d677d1q/01%20BRAND%20NEW%20BLUE.mp3?dl=0)
 
 Dog Days
 
-[FEARLESS HERO] (https://www.dropbox.com/s/p10hh6l34687ffn/02%20-%20FEARLESS%20HERO.mp3?dl=0)
+[FEARLESS HERO](https://www.dropbox.com/s/p10hh6l34687ffn/02%20-%20FEARLESS%20HERO.mp3?dl=0)
 
-[SCARLET KNIGHT] (https://www.dropbox.com/s/kjypu1ocjh35d1w/01%20-%20SCARLET%20KNIGHT.mp3?dl=0)
+[SCARLET KNIGHT](https://www.dropbox.com/s/kjypu1ocjh35d1w/01%20-%20SCARLET%20KNIGHT.mp3?dl=0)
 
-[No Limit] (https://www.dropbox.com/s/okaumc15jegwlp5/%2802%29No%20Limit.mp3?dl=0)
+[No Limit](https://www.dropbox.com/s/okaumc15jegwlp5/%2802%29No%20Limit.mp3?dl=0)
 
-[BRIGHT STREAM] (https://www.dropbox.com/s/ok5pxn62kdtsm4w/01%20-%20BRIGHT%20STREAM.mp3?dl=0)
+[BRIGHT STREAM](https://www.dropbox.com/s/ok5pxn62kdtsm4w/01%20-%20BRIGHT%20STREAM.mp3?dl=0)
 
-[Natsu no Yakusoku] (https://www.dropbox.com/s/ulir3d4g8bc8zvm/01%20-%20Natsu%20no%20Yakusoku.mp3?dl=0)
+[Natsu no Yakusoku](https://www.dropbox.com/s/ulir3d4g8bc8zvm/01%20-%20Natsu%20no%20Yakusoku.mp3?dl=0)
 
-[Stay With Me] (https://www.dropbox.com/s/iur8gjxus4xoqq5/01%20-%20Stay%20With%20Me.mp3?dl=0)
+[Stay With Me](https://www.dropbox.com/s/iur8gjxus4xoqq5/01%20-%20Stay%20With%20Me.mp3?dl=0)
 
-[Houkiboshi] (https://www.dropbox.com/s/5h37ajk70repcoi/02%20-%20Houkiboshi.mp3?dl=0)
+[Houkiboshi](https://www.dropbox.com/s/5h37ajk70repcoi/02%20-%20Houkiboshi.mp3?dl=0)
 
-[PRESENTER] (https://www.dropbox.com/s/iclquvejvonx5ow/01%20-%20PRESENTER.mp3?dl=0)
+[PRESENTER](https://www.dropbox.com/s/iclquvejvonx5ow/01%20-%20PRESENTER.mp3?dl=0)
 
 Fate/Kaleid
 
@@ -3188,7 +3212,6 @@ Toaru kagaku/Majutsu Series
 
 [Eternal Reality](https://www.dropbox.com/s/6b2pu9xzmkssyvo/01%20-%20eternal%20reality.mp3?dl=0)
 
-
 ## Individual Artist Works
 
 Fhana
@@ -3213,33 +3236,33 @@ LiSA
 
 [Sweet Friendship](https://www.dropbox.com/s/6nw15jq6m7bslqb/02.%20sweet%20friendship.mp3?dl=0)
 
-[Sailor Spark Operation!] (https://www.dropbox.com/s/i10oqb7wed6a5k4/03.%20Sailor%20Spark%20Operation%21.mp3?dl=0)
+[Sailor Spark Operation!](https://www.dropbox.com/s/i10oqb7wed6a5k4/03.%20Sailor%20Spark%20Operation%21.mp3?dl=0)
 
 Mami Kawada 
 
-[Halfway!] (https://www.dropbox.com/s/nztgqdxx5xjyyg5/02.%20Halfway.mp3?dl=0)
+[Halfway!](https://www.dropbox.com/s/nztgqdxx5xjyyg5/02.%20Halfway.mp3?dl=0)
 
 Michi
 
-[∞ Infinity!] (https://www.dropbox.com/s/9j4sj9adlm9jnjh/02.%20%E2%88%9E%20Infinity.mp3?dl=0)
+[∞ Infinity!](https://www.dropbox.com/s/9j4sj9adlm9jnjh/02.%20%E2%88%9E%20Infinity.mp3?dl=0)
 
 Nano
 
-[Exist] (https://www.dropbox.com/s/o8nj0d035pcnl08/02%20-%20Exist.mp3?dl=0)
+[Exist](https://www.dropbox.com/s/o8nj0d035pcnl08/02%20-%20Exist.mp3?dl=0)
 
 ORESAMA 
 
-[Sweet Room] (https://www.dropbox.com/s/xfekrkrbelt7qlm/03.%20SWEET%20ROOM.mp3?dl=0)
+[Sweet Room](https://www.dropbox.com/s/xfekrkrbelt7qlm/03.%20SWEET%20ROOM.mp3?dl=0)
 
-[Name to be updated in the next Yuki Patch #6] (https://www.dropbox.com/s/f191mbykye99d37/02.%20%E3%80%8C%E3%81%AD%E3%81%87%E3%80%81%E7%A5%9E%E6%A7%98%EF%BC%9F%E3%80%8D.mp3?dl=0)
+[Name to be updated in the next Yuki Patch #6](https://www.dropbox.com/s/f191mbykye99d37/02.%20%E3%80%8C%E3%81%AD%E3%81%87%E3%80%81%E7%A5%9E%E6%A7%98%EF%BC%9F%E3%80%8D.mp3?dl=0)
 
 TrySail
 
-[Chip Log] (https://www.dropbox.com/s/6v3md29k7pq49sp/2%20Chip%20log.mp3?dl=0)
+[Chip Log](https://www.dropbox.com/s/6v3md29k7pq49sp/2%20Chip%20log.mp3?dl=0)
 
 ZAQ
 
-[Punishment Th!s World] (https://www.dropbox.com/s/013v602aju0hsxy/02%20-%20PunIshment%20this%20worLd-VOICE-Episode.0.mp3?dl=0)
+[Punishment Th!s World](https://www.dropbox.com/s/013v602aju0hsxy/02%20-%20PunIshment%20this%20worLd-VOICE-Episode.0.mp3?dl=0)
 
 [LATE STARTER](https://www.dropbox.com/s/xwt4a46275kt0w4/03%20-%20LATE%20STARTER.mp3?dl=0)
 
