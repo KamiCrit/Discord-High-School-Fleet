@@ -1,4 +1,4 @@
-2017-09-30 1800
+2017-10-06 0100
 
 **Crtl+F and right click URL's for quick !play-ing of songs:**
 
@@ -127,6 +127,10 @@ Boku dake ga Inai Machi / ERASED
 [Re:Re: (2004)](https://www.dropbox.com/s/h8d0fr52s0b1kyp/Boku%20dake%20ga%20Inai%20Machi%20-%20Asian%20Kung-Fu%20Generation%20-%20ReRe%20%282004%29.mp3?dl=0)
 
 [AKG Tribute - Re:Re:](https://www.dropbox.com/s/onhz7rybgqlroqf/AKG%20Tribute%20-%20Re-Re-.mp3?dl=0)
+
+Carnival Phantasm
+
+[Super☆Affection](https://www.dropbox.com/s/i7m8d2b04dro8vo/Carnival%20Phantasm%20-%20Super%E2%98%86Affection.mp3?dl=0)
 
 Choujigen Game Neptune The Animation
 
@@ -366,6 +370,10 @@ Kantai Collection
 
 [Hatsukoi! Suirai Sentai](https://www.dropbox.com/s/3tugubfkpyczm5u/Kantai%20Collection%20-%2003%20-%20Hatsukoi%21%20Suirai%20Sentai.mp3?dl=0)
 
+Kekkai Sensen
+
+[Sugar Song to Bitter Step](https://www.dropbox.com/s/n77b0rybd2a7dcc/Kekkai%20Sensen%20-%20Sugar%20Song%20to%20Bitter%20Step.mp3?dl=0)
+
 Kemono Friends
 
 [Youkoso Japari Park e](https://www.dropbox.com/s/h4e5rjx39tuemti/Kemono%20Friends%20-%20Youkoso%20Japari%20Park%20e.mp3?dl=0)
@@ -416,9 +424,11 @@ Kono Bijutsubu ni wa Mondai ga Aru
 
 Kono Subarashii Sekai ni Shukufuku wo!
 
-[fantastic dreamer](https://www.dropbox.com/s/mshlu1wd77w8bbb/Kono%20Subarashii%20Sekai%20ni%20Shukufuku%20wo%21%20-%2001.%20fantastic%20dreamer.mp3?dl=0)
+[fantastic dreamer](https://www.dropbox.com/s/mxpaf8a638moeeb/Kono%20Subarashii%20Sekai%20ni%20Shukufuku%20wo%21%20-%20fantastic%20dreamer.mp3?dl=0)
 
-[Chiisana Boukensha](https://www.dropbox.com/s/kpqimovx5fgshqw/Kono%20Subarashii%20Sekai%20ni%20Shukufuku%20wo%21%20-%2001%20Chiisana%20Boukensha.mp3?dl=0)
+[fantastic dreamer -Monday Afternoon Ver.-](https://www.dropbox.com/s/p3sytnvtufetqjg/Kono%20Subarashii%20Sekai%20ni%20Shukufuku%20wo%21%20-%20fantastic%20dreamer%20-Monday%20Afternoon%20Ver.-.mp3?dl=0)
+
+[Chiisana Boukensha](https://www.dropbox.com/s/11no1yeumamsggy/Kono%20Subarashii%20Sekai%20ni%20Shukufuku%20wo%21%20-%20Chiisana%20Boukensha.mp3?dl=0)
 
 Kono Subarashii Sekai ni Shukufuku wo! 2
 
@@ -428,7 +438,7 @@ Kono Subarashii Sekai ni Shukufuku wo! 2
 
 Koutetsujou no Kabaneri
 
-[KABANERI OF THE IRON FORTRESS](https://www.dropbox.com/s/0vjv0j9s43zkea9/Koutetsujou%20no%20Kabaneri%20-%20KABANERI%20OF%20THE%20IRON%20FORTRESS.mp3?dl=0)
+[KABANERI OF THE IRON FORTRESS](https://www.dropbox.com/s/gxo0uqt67pom3qr/Koutetsujou%20no%20Kabaneri%20-%20KABANERI%20OF%20THE%20IRON%20FORTRESS.mp3?dl=0)
 
 Love Live
 
@@ -670,6 +680,8 @@ Servant x Service
 
 [May I Help You?](https://www.dropbox.com/s/05b52bpognuvc4q/Servant%20x%20Service%20-%20May%20I%20Help%20You.mp3?dl=0)
 
+[Hachimitsu Doki (Yagami Lucy(...) ver)](https://www.dropbox.com/s/tuk59ndod90lrb6/Servant%20x%20Service%20-%20Hachimitsu%20Doki%20%28Yagami%20Lucy%28...%29%20ver%29.mp3?dl=0)
+
 Shakunetsu no Takkyuu Musume
 
 [Shakunetsu Switch](https://www.dropbox.com/s/75twqehfdf7ocm9/Shakunetsu%20no%20Takkyuu%20Musume%20-%20Shakunetsu%20Switch.mp3?dl=0)
@@ -716,7 +728,7 @@ Shouwa Genroku Rakugo Shinjuu Sukeroku Futatabi-hen -
 
 Sore ga Seiyuu!
 
-[Anata no Omimi ni Plugin!](https://www.dropbox.com/s/snepzl9lr3042hu/Sore%20ga%20Seiyuu%21%20-%20Anata%20no%20Omimi%20ni%20Plugin%21.mp3?dl=0)
+[Anata no Omimi ni Plugin!](https://www.dropbox.com/s/79xenhfqpala3ti/Sore%20ga%20Seiyuu%21%20-%20Anata%20no%20Omimi%20ni%20Plugin%21.mp3?dl=0)
 
 Stella no Mahou
 
@@ -808,7 +820,7 @@ Urara Meirochou
 
 [Yumeji Labyrinth(HUGKISS 162 EDIT)](https://www.dropbox.com/s/19mto3jxcx29ghs/Urara%20Meirochou%20-%20Yumeji%20Labyrinth%28HUGKISS%20162%20EDIT%29.mp3?dl=0)
 
-[go to Romance](https://www.dropbox.com/s/gyumgcw21bgqcgl/Urara%20Meirochou%20-%20go%20to%20Romance.mp3?dl=0)
+[go to Romance＞＞＞＞＞](https://www.dropbox.com/s/lwsc7k2l7n9xpov/Urara%20Meirochou%20-%20go%20to%20Romance%EF%BC%9E%EF%BC%9E%EF%BC%9E%EF%BC%9E%EF%BC%9E.mp3?dl=0)
 
 [Go to Romance -Bring Me Back to the 70s Mix-](https://www.dropbox.com/s/ge43rya2ijo5l52/Urara%20Meirochou%20-%20Go%20to%20Romance%20-Bring%20Me%20Back%20to%20the%2070s%20Mix-.mp3?dl=0)
 
@@ -942,6 +954,8 @@ Opportunity
 
 [Katamari Damacy - 02 katamari on the rock ~ main theme](https://www.dropbox.com/s/csbggx458wr5qxf/Katamari%20Damacy%20-%2002%20katamari%20on%20the%20rock%20~%20main%20theme.mp3?dl=0)
 
+[Gen Hoshino - Love](https://www.dropbox.com/s/57wog8p0c5vd6oh/Gen%20Hoshino%20-%20Love.mp3?dl=0)
+
 # Lilac
 
 ## Love Live
@@ -1062,7 +1076,7 @@ Aqours
 
 [HAPPY PARTY TRAIN](https://www.dropbox.com/s/ymp6o7rlpf9escq/HAPPY%20PARTY%20TRAIN.mp3?dl=0)
 
-[Yume Kataru yori Yume Utaou](https://www.dropbox.com/s/l1k6jbk3hrvypnm/Yume%20Kataru%20yori%20Yume%20Utaou.mp3?dl=0)
+[Yume de Yozora o Terashitai](https://www.dropbox.com/s/gmlh799cocou8sl/Yume%20de%20Yozora%20o%20Terashitai.mp3?dl=0)
 
 [Sora mo Kokoro mo Hareru kara](https://www.dropbox.com/s/73e032dxka4h5d1/Sora%20mo%20Kokoro%20mo%20Hareru%20kara.mp3?dl=0)
 
@@ -1215,6 +1229,10 @@ Afterglow
 [Signalize!](https://www.dropbox.com/s/983qsv9kgvn7bbk/Signalize%21.mp3?dl=0)
 
 [Calendar Girl](https://www.dropbox.com/s/pp84vazo89ouys2/Calendar%20Girl.mp3?dl=0)
+
+[Glass Doll](https://www.dropbox.com/s/zhep3xho9ked3fn/Glass%20Doll.mp3?dl=0)
+
+[Houkago Ponytail](https://www.dropbox.com/s/39ial4hapv1ke1s/Houkago%20Ponytail.mp3?dl=0)
 
 ## Anime Songs
 
@@ -1467,6 +1485,12 @@ Action Heroine Cheer Fruits
 Nora to Oujo to Noraneko Heart
 
 [Ne! Ko!](https://www.dropbox.com/s/k3g03ffqldktg6m/Ne%21%20Ko%21.mp3?dl=0)
+
+Princess Principal
+
+[The Other Side of the Wall](https://www.dropbox.com/s/eutrbdg3td268ru/The%20Other%20Side%20of%20the%20Wall.mp3?dl=0)
+
+[A Page of My Story](https://www.dropbox.com/s/1r23gvng3gkzqq0/A%20Page%20of%20My%20Story.mp3?dl=0)
 
 ## Other Songs
 
