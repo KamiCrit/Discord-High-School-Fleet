@@ -1,4 +1,4 @@
-2017-10-06 0100
+2017-10-28 1930
 
 **Crtl+F and right click URL's for quick !play-ing of songs:**
 
@@ -41,6 +41,8 @@
 3-gatsu no Lion
 
 [Answer](https://www.dropbox.com/s/vf7tne4qjlohdw5/3-Gatsu%20No%20Lion%20-%20BUMP%20OF%20CHICKEN%20-%20Answer.mp3?dl=0)
+
+[Answer (Hatsune Miku)](https://www.dropbox.com/s/68srqn6igtn7usd/%E3%80%90%E6%BC%94%E5%A5%8F%E3%81%97%E3%81%A6%E3%81%BF%E3%81%9F%E3%80%91BUMP%20OF%20CHICKEN%20%E3%82%A2%E3%83%B3%E3%82%B5%E3%83%BC%EF%BC%88%E6%AD%8C_%E5%88%9D%E9%9F%B3%E3%83%9F%E3%82%AF%EF%BC%89.mp3?dl=0)
 
 [Fighter](https://www.dropbox.com/s/y5mpd8p2yk28fuu/3-Gatsu%20No%20Lion%20-%20BUMP%20OF%20CHICKEN%20-%20Fighter.mp3?dl=0)
 
@@ -221,6 +223,8 @@ Gatchaman Crowds
 Gekkan Shoujo Nozaki-kun
 
 [Kimi ja Nakya Dame Mitai](https://www.dropbox.com/s/epqlkcxo69sd4jv/Gekkan%20Shoujo%20Nozaki-kun%20-%20Masayoshi%20Ooishi%20-%20Kimi%20ja%20Nakya%20Dame%20Mitai.mp3?dl=0)
+
+[Kimi ja Nakya Dame Mitai (Metal)](https://www.dropbox.com/s/5z2naa6wt47wgb1/Monthly%20Girl%20Nozaki%20-%20Kun%20Can%20not%20be%20considered%20other%20than%20you%20KIMI%20JA%20NAKYA%20DAME%20MITAI.mp3?dl=0)
 
 [Ura Omote Fortune](https://www.dropbox.com/s/be56jr3h3y8uhpz/Gekkan%20Shoujo%20Nozaki-kun%20-%20Ura%20Omote%20Fortune.mp3?dl=0)
 
@@ -612,6 +616,10 @@ No Game No Life
 
 [Oracion](https://www.dropbox.com/s/6trka0eliysjq69/No%20Game%20No%20Life%20-%20Oracion.mp3?dl=0)
 
+Noragami Aragoto
+
+[Kyouran Hey Kids!! (狂乱Hey Kids!!)](https://www.dropbox.com/s/1qtcpb6wadf685h/Noragami%20Aragoto%20-%20Kyouran%20Hey%20Kids%21%21%20%28%E7%8B%82%E4%B9%B1Hey%20Kids%21%21%29.mp3?dl=0)
+
 Ore no Imouto ga Konnani Kawaii Wake ga Nai
 
 [Irony](https://www.dropbox.com/s/q5glfpw0q14sesj/Ore%20no%20Imouto%20ga%20Konnani%20Kawaii%20Wake%20ga%20Nai%20-%2001%20-%20irony.mp3?dl=0)
@@ -955,6 +963,10 @@ Opportunity
 [Katamari Damacy - 02 katamari on the rock ~ main theme](https://www.dropbox.com/s/csbggx458wr5qxf/Katamari%20Damacy%20-%2002%20katamari%20on%20the%20rock%20~%20main%20theme.mp3?dl=0)
 
 [Gen Hoshino - Love](https://www.dropbox.com/s/57wog8p0c5vd6oh/Gen%20Hoshino%20-%20Love.mp3?dl=0)
+
+[Toumei Answer (Shoichi Taguchi and Annabel)](https://www.dropbox.com/s/4tiwhtaaxpd746x/Toumei%20Answer%20-%20Jin%20feat.%20Shoichi%20Taguchi%20and%20Annabel%20%28Full%20PV%29.mp3?dl=0)
+
+[Toumei Answer (Guitar)](https://www.dropbox.com/s/foz0nnsovh9j488/%E3%80%8C%E9%80%8F%E6%98%8E%E3%82%A2%E3%83%B3%E3%82%B5%E3%83%BC%E3%80%8D%EF%BC%8F%E3%80%8CToumei%20Ans%C4%81%E3%80%8D%5BTransparent%20Answer%5D%20Guitar%20Cover%20%E3%82%AA%E3%83%AA%E3%82%B8%E3%83%8A%E3%83%AB%E3%83%BB%E3%82%A2%E3%83%AC%E3%83%B3%E3%82%B8%E3%80%90IA%E3%80%91feat.%20%23stoppaz.mp3?dl=0)
 
 # Lilac
 
