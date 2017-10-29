@@ -1,4 +1,4 @@
-2017-10-28 1930
+2017-10-28 2115
 
 **Crtl+F and right click URL's for quick !play-ing of songs:**
 
@@ -1054,6 +1054,26 @@ Opportunity
 
 [Sayonara e Sayonara](https://www.dropbox.com/s/3y3vztm86gngd5h/Sayonara%20e%20Sayonara.mp3?dl=0)
 
+[Pure girls project](https://www.dropbox.com/s/y3ytih1eq5h75ul/Pure%20girls%20project.mp3?dl=0)
+
+[CheerDay CheerGirl](https://www.dropbox.com/s/ppc02ldcap3lxkn/CheerDay%20CheerGirl%21.mp3?dl=0)
+
+[Aki no Anata no Sora Tooku](https://www.dropbox.com/s/5s5zgw3tzufcv11/Aki%20no%20Anata%20no%20Sora%20Tooku.mp3?dl=0)
+
+[A-NO-NE-GA-N-BA-RE!](https://www.dropbox.com/s/k4qmfacjhxjl8ph/A-NO-NE-GA-N-BA-RE%21.mp3?dl=0)
+
+[Shunjou Romantic](https://www.dropbox.com/s/utik195wjkfk18x/Shunjou%20Romantic.mp3?dl=0)
+
+[Soldier Game](https://www.dropbox.com/s/nar6hz94hlxggnr/Soldier%20Game.mp3?dl=0)
+
+[Aishiteru Banzai](https://www.dropbox.com/s/2wmknn4qen5fkbb/Aishiteru%20Banzai%21.mp3?dl=0)
+
+[Beat in Angel](https://www.dropbox.com/s/lkff9zln0yzi2vq/Beat%20in%20Angel.mp3?dl=0)
+
+[Kokuhaku Biyori, desu!](https://www.dropbox.com/s/obdc211ej24ioiz/Kokuhaku%20Biyori%2C%20desu%21.mp3?dl=0)
+
+[Private Wars](https://www.dropbox.com/s/epmw9n5ov0i4qu0/Private%20Wars.mp3?dl=0)
+
 Aqours
 
 [Kimi no Kokoro wa Kagayaiteru kai](https://www.dropbox.com/s/j14t7qmfdf27csn/Kimi%20no%20Kokoro%20wa%20Kagayaiteru%20kai.mp3?dl=0)
@@ -1095,6 +1115,20 @@ Aqours
 [Waku Waku Week](https://www.dropbox.com/s/tkhavpp3kt5e7ii/Waku-Waku-Week%21.mp3?dl=0)
 
 [Guilty Night Guilty Kiss](https://www.dropbox.com/s/qop9q6ihyr53h55/Guilty%20Night%2C%20Guilty%20Kiss%21.mp3?dl=0)
+
+[Kowareyasuki](https://www.dropbox.com/s/f1g54mi7tf8kwzb/Kowareyasuki.mp3?dl=0)
+
+[Strawberry Trapper](https://www.dropbox.com/s/mpf08t25mrspmrx/Strawberry%20Trapper.mp3?dl=0)
+
+[Kinmirai Happy End](https://www.dropbox.com/s/ftvlm6p9km241rl/Kinmirai%20Happy%20End.mp3?dl=0)
+
+[GALAXY HidE and SeeK](https://www.dropbox.com/s/ed7b1lz2rvbbfhu/GALAXY%20HidE%20and%20SeeK.mp3?dl=0)
+
+[INNOCENT BIRD](https://www.dropbox.com/s/k73b1d6fb34fttw/INNOCENT%20BIRD.mp3?dl=0)
+
+[Jimo Ai ♡ Mantan ☆ Summer Life](https://www.dropbox.com/s/gf98jqiv556oglx/Jimo%20Ai%20%E2%99%A1%20Mantan%20%E2%98%86%20Summer%20Life.mp3?dl=0)
+
+[Mirai no Bokura wa Shitteru yo](https://www.dropbox.com/s/o1auxc4p0njwmr7/Mirai%20no%20Bokura%20wa%20Shitteru%20yo.mp3?dl=0)
 
 ## Idolmaster
 
@@ -1165,6 +1199,8 @@ Cinderella Girls
 [Etude wa Ikkyoku Dake](https://www.dropbox.com/s/xwfirhsku2vdu57/%C3%89tude%20wa%20Ikkyoku%20Dake.mp3?dl=0)
 
 [Sun Flower](https://www.dropbox.com/s/x2nn1fsmdk20vn5/SUN%E2%99%A1FLOWER.mp3?dl=0)
+
+[Inochi Moyashite Koiseyo Otome](https://www.dropbox.com/s/o57idthzmlzxwcf/Inochi%20Moyashite%20Koiseyo%20Otome.mp3?dl=0)
 
 SideM
 
@@ -1493,6 +1529,14 @@ Action Heroine Cheer Fruits
 [Jounetsu☆Fruit](https://www.dropbox.com/s/c0728uwqms63uky/Jounetsu%E2%98%86Fruit.mp3?dl=0)
 
 [Hi no Ataru Basho](https://www.dropbox.com/s/0mkmryf8b0svopj/Hi%20no%20Ataru%20Basho%20%28Roko%20Main%20Version%29.mp3?dl=0)
+
+Battle Girl High School
+
+[Hoshi no Kizuna](https://www.dropbox.com/s/lbdno7osriolouc/Hoshi%20no%20Kizuna.mp3?dl=0)
+
+[Melody Ring](https://www.dropbox.com/s/5umbgbnr4uvn63c/Melody%20Ring.mp3?dl=0)
+
+[Gravity](https://www.dropbox.com/s/39jdr27lytb9egs/Gravity.mp3?dl=0)
 
 Nora to Oujo to Noraneko Heart
 
