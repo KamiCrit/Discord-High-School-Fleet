@@ -1,4 +1,4 @@
-2017-10-28 2115
+2017-11-02 1745
 
 **Crtl+F and right click URL's for quick !play-ing of songs:**
 
@@ -3028,6 +3028,7 @@ Absolute Duo
 
 [Apple Tea no Aji](https://www.dropbox.com/s/lxils6vr30vr790/02%20-%20Apple%20Tea%20no%20Aji.mp3?dl=0)
 
+
 Accel World
 
 [Burst The Gravity](https://www.dropbox.com/s/7uhn7yw4aa83g1j/01%20-%20Burst%20the%20Gravity.mp3?dl=0)
@@ -3038,6 +3039,7 @@ Accel World
 
 [Unite](https://www.dropbox.com/s/kmj46budi6zbndr/01%20-%20Unite.mp3?dl=0)
 
+
 Akame Ga KIll 
 
 [Liar Mask](https://www.dropbox.com/s/a33iyz35380pzs5/01%20-%20Liar%20Mask.mp3?dl=0)
@@ -3047,6 +3049,7 @@ Akame Ga KIll
 [Skyreach](https://www.dropbox.com/s/cckmffphybcrnjy/01%20Skyreach.mp3?dl=0)
 
 [Tsukiakari](https://www.dropbox.com/s/a1i1uppfx0gnfl0/01%20Tsukiakari.mp3?dl=0)
+
 
 Akatsuki no Yona
 
@@ -3250,9 +3253,99 @@ Dog Days
 
 [PRESENTER](https://www.dropbox.com/s/iclquvejvonx5ow/01%20-%20PRESENTER.mp3?dl=0)
 
-Fate/Kaleid
+Fate Grand/Order
 
-[Wonder Stella](https://www.dropbox.com/s/hut5q9a4bfea71m/01.%20Wonder%20Stella.mp3?dl=0)
+[Colors](https://www.dropbox.com/s/e50jtcwfk1gt0vj/01.%20Here.mp3?dl=0)
+
+Fate Kaleid
+
+[Asterism](https://www.dropbox.com/s/9czt6n5fmetyh4t/01.%20Asterism.mp3?dl=0)
+
+[Moving Soul](https://www.dropbox.com/s/mnxq2ymsblll7li/01%20-%20moving%20soul.mp3?dl=0)
+
+[Starlog](https://www.dropbox.com/s/941hsh0iwx08mks/01%20-%20TWO%20BY%20TWO.mp3?dl=0)
+
+[Two by Two](https://www.dropbox.com/s/941hsh0iwx08mks/01%20-%20TWO%20BY%20TWO.mp3?dl=0)
+
+[Wonderstella](https://www.dropbox.com/s/ddsf6pwnlcx4d7b/01.%20Wonder%20Stella.mp3?dl=0)
+
+Fate/Stay Night Unlimited Blade Works
+
+[Brave Shine](https://www.dropbox.com/s/136um7pvrurad22/10.Brave%20Shine%20.mp3?dl=0)
+
+[Emiya UBW Extended](https://www.dropbox.com/s/wkok3niy7rpvgeb/19.%20EMIYA_UBW%20Extended.mp3?dl=0)
+
+[Ideal White](https://www.dropbox.com/s/hto3e2l6i3s00za/%2801%29%20%20ideal%20white.mp3?dl=0)
+
+[Last Stardust](https://www.dropbox.com/s/owl7mkygluw3fqp/09.LAST%20STARDUST.mp3?dl=0)
+
+[Ring your Bell](https://www.dropbox.com/s/cstvvhsu4q7xy5f/%2801%29%20%20ring%20your%20bell.mp3?dl=0)
+
+Fate/Zero
+
+[Memoria](https://www.dropbox.com/s/psehfgxtuz4odbi/01.%20MEMORIA.mp3?dl=0)
+
+[Oath Sign](https://www.dropbox.com/s/kpajwy972lqej39/01%20oath%20sign.mp3?dl=0)
+
+[Sore wa Takaku Kaze wa Utau](https://www.dropbox.com/s/xbo0kcnfyf3y5km/01.%20Sora%20wa%20Takaku%20Kaze%20wa%20Utau.mp3?dl=0)
+
+[To the Beginning](https://www.dropbox.com/s/jmorzeph3e9pk8k/01%20to%20the%20beginning.mp3?dl=0)
+
+Flying Witch
+
+[Shanranran](https://www.dropbox.com/s/tet9opz1in83qza/02.%20Shanranran.mp3?dl=0)
+
+Fukumenkei Noise
+
+[Allegro](https://www.dropbox.com/s/kvs8iup0yoxfn9v/01.%20%E3%82%A2%E3%83%AC%E3%82%B0%E3%83%AD.mp3?dl=0)
+
+[High School](https://www.dropbox.com/s/j3t1pb6rilposel/01.%20%E3%83%8F%E3%82%A4%E3%82%B9%E3%82%AF%E3%83%BC%E3%83%AB%20%5BANIME%20SIDE%5D%20-Alternative-.mp3?dl=0)
+
+Gakusen Toshi Asterisk
+
+[Brand New World](https://www.dropbox.com/s/4qzvoxwxi051zrm/01.%20Brand-new%20World.mp3?dl=0)
+
+[The Asterisk War](https://www.dropbox.com/s/sxypwp9pc0lrk4a/01.%20The%20Asterisk%20War.mp3?dl=0)
+
+[Waiting for the Rain](https://www.dropbox.com/s/qt65qb5e1h6kyd7/10.%20Waiting%20for%20the%20rain.mp3?dl=0)
+
+Gate
+
+[Sekai wo Koete](https://www.dropbox.com/s/biq182dv6ot6swz/01%20GATE%20II%20Beyond%20the%20World.mp3?dl=0)
+
+[Sore wa Akatsuki no you ni](https://www.dropbox.com/s/uy4bs8gfgpdufj7/01.%20GATE%EF%BD%9E%E3%81%9D%E3%82%8C%E3%81%AF%E6%9A%81%E3%81%AE%E3%82%88%E3%81%86%E3%81%AB%EF%BD%9E.mp3?dl=0)
+
+God Eater
+
+[Feed A](https://www.dropbox.com/s/lx8si1yz6joq7co/01.%20Feed%20A.mp3?dl=0)
+
+Granblue Fantasy
+
+[Go](https://www.dropbox.com/s/qbz72g919x6q3vm/01.%20GO.mp3?dl=0)
+
+Grisaia no Kajitsu
+
+[Anata no Aishita Sekai](https://www.dropbox.com/s/k5kgbkhzklcso16/01.%20Anata%20no%20Aishita%20Sekai.mp3?dl=0)
+
+[Shuumatsu no Fractal](https://www.dropbox.com/s/vt5fisay41lcbnl/%2801%29%20%5B%E9%A3%9B%E8%98%AD%5D%20OP%E3%83%86%E3%83%BC%E3%83%9E%E3%80%8C%E7%B5%82%E6%9C%AB%E3%81%AE%E3%83%95%E3%83%A9%E3%82%AF%E3%82%BF%E3%83%AB%E3%80%8D%E3%82%B2%E3%83%BC%E3%83%A0Size.mp3?dl=0)
+
+[Rakuen ni Tsubasa](https://www.dropbox.com/s/2m63rkdklf9dxra/%2801%29%E6%A5%BD%E5%9C%92%E3%81%AE%E7%BF%BC.mp3?dl=0)
+
+[Setsuna no Kajitsu](https://www.dropbox.com/s/l6d0xzjjwxr062n/01.%20%E5%88%B9%E9%82%A3%E3%81%AE%E6%9E%9C%E5%AE%9F.mp3?dl=0)
+
+Guilty Crown
+
+[Bios](https://www.dropbox.com/s/57p225wn9xvgba7/01.%20%CE%B2ios.mp3?dl=0)
+
+[Departures](https://www.dropbox.com/s/b2h14xlri5ypodl/12.%20Departures%20~Anata%20ni%20Okuru%20Ai%20no%20Uta~.mp3?dl=0)
+
+[My Dearest](https://www.dropbox.com/s/iv12bqfol8i1kns/01%20My%20Dearest.mp3?dl=0)
+
+[The Everlasting](https://www.dropbox.com/s/zn13h7pu7cdo9d5/01%20The%20Everlasting%20Guilty%20Crown.mp3?dl=0)
+
+Mahoutsukai no Yome
+
+[Here](https://www.dropbox.com/s/e50jtcwfk1gt0vj/01.%20Here.mp3?dl=0)
 
 Nejimaki
 
@@ -3291,6 +3384,7 @@ Toaru kagaku/Majutsu Series
 [Level 5 Judgelight](https://www.dropbox.com/s/6nky4j903erydxr/01%20-%20LEVEL%205%20-judgelight-.mp3?dl=0)
 
 [Eternal Reality](https://www.dropbox.com/s/6b2pu9xzmkssyvo/01%20-%20eternal%20reality.mp3?dl=0)
+
 
 ## Individual Artist Works
 
