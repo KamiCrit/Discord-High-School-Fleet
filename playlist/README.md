@@ -3385,7 +3385,6 @@ Toaru kagaku/Majutsu Series
 
 [Eternal Reality](https://www.dropbox.com/s/6b2pu9xzmkssyvo/01%20-%20eternal%20reality.mp3?dl=0)
 
-
 ## Individual Artist Works
 
 Fhana
