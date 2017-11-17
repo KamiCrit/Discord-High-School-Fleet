@@ -1,4 +1,4 @@
-2017-11-17 0130
+2017-11-17 0200
 
 **Crtl+F and right click URL's for quick !play-ing of songs:**
 
@@ -1575,6 +1575,34 @@ Hyperdimension Neptunia
 [Be My☆Zombie](https://www.dropbox.com/s/zjbcs4w4ovo94f9/Be%20My%E2%98%86Zombie.mp3?dl=0)
 
 [Log Out Shinaide!](https://www.dropbox.com/s/fdimnmecb1qtfwh/Log%20Out%20Shinaide%21.mp3?dl=0)
+
+AKB48
+
+[Heavy Rotation](https://www.dropbox.com/s/ghew4o655a8cev3/Heavy%20Rotation.mp3?dl=0)
+
+[Beginner](https://www.dropbox.com/s/b6u23yvfhn3czs1/Beginner.mp3?dl=0)
+
+Uma Musume Pretty Derby
+
+[Umapyoi Densetsu](https://www.dropbox.com/s/aaz5qt2rq02srod/Umapyoi%20Densetsu%2001.mp3?dl=0)
+
+[Silent Star](https://www.dropbox.com/s/atxs5uhzsutynyq/Silent%20Star.mp3?dl=0)
+
+[Kindan Burning Heart](https://www.dropbox.com/s/l33s7tfsvimlkol/Kindan%20Burning%20Heart.mp3?dl=0)
+
+[Rising Girl](https://www.dropbox.com/s/ny4oqa39mdw17rc/Rising%20Girl.mp3?dl=0)
+
+[Secret GRADUATION](https://www.dropbox.com/s/qlx9cpqvq71pozp/Secret%20GRADUATION.mp3?dl=0)
+
+Re:Stage!
+
+[Startin' My Re:STAGE!!](https://www.dropbox.com/s/cks0uyxumfoophc/Startin%27%20My%20Re%EF%BC%9ASTAGE%21%21.mp3?dl=0)
+
+[Akogare Future Sign](https://www.dropbox.com/s/ygsev5grtg4ljm1/Akogare%20Future%20Sign.mp3?dl=0)
+
+[Do it!! PARTY!!](https://www.dropbox.com/s/16r2vuasxnfxrxn/Do%20it%21%21%20PARTY%21%21.mp3?dl=0)
+
+[Dream a gate](https://www.dropbox.com/s/5qdh8y2ftxo8y9b/Dream%20a%20gate.mp3?dl=0)
 
 Onsen Musume
 
