@@ -1,4 +1,4 @@
-2017-11-02 1745
+2017-11-17 0130
 
 **Crtl+F and right click URL's for quick !play-ing of songs:**
 
@@ -311,6 +311,10 @@ High School Fleet / Haifuri
 [Yokosuka Kaiyou Koukou Kouka (Brass Band Ver.)](https://www.dropbox.com/s/c9h2ujv2pia8swy/High%20School%20Fleet%20-%20Yokosuka%20Kaiyou%20Koukou%20Kouka%20%28Brass%20Band%20Ver.%29.mp3?dl=0)
 
 [Mashiro Makes a Noise](https://www.dropbox.com/s/qks2s5avsuh6p6i/High%20School%20Fleet%20-%20ebw6.mp4?dl=0)
+
+Himouto! Umaru-chan R
+
+[Umarun Taisou](https://www.dropbox.com/s/56whflf35zb8adv/Himouto%21%20Umaru-chan%20R%20-%20Umarun%20Taisou.mp3?dl=0)
 
 Initial D
 
@@ -968,6 +972,8 @@ Opportunity
 
 [Toumei Answer (Guitar)](https://www.dropbox.com/s/foz0nnsovh9j488/%E3%80%8C%E9%80%8F%E6%98%8E%E3%82%A2%E3%83%B3%E3%82%B5%E3%83%BC%E3%80%8D%EF%BC%8F%E3%80%8CToumei%20Ans%C4%81%E3%80%8D%5BTransparent%20Answer%5D%20Guitar%20Cover%20%E3%82%AA%E3%83%AA%E3%82%B8%E3%83%8A%E3%83%AB%E3%83%BB%E3%82%A2%E3%83%AC%E3%83%B3%E3%82%B8%E3%80%90IA%E3%80%91feat.%20%23stoppaz.mp3?dl=0)
 
+[Perfume - Everyday](https://www.dropbox.com/s/2c0pu6syuwyoon4/Perfume%20-%20Everyday.mp3?dl=0)
+
 # Lilac
 
 ## Love Live
@@ -1130,6 +1136,8 @@ Aqours
 
 [Mirai no Bokura wa Shitteru yo](https://www.dropbox.com/s/o1auxc4p0njwmr7/Mirai%20no%20Bokura%20wa%20Shitteru%20yo.mp3?dl=0)
 
+[Yuuki wa Doko ni? Kimi no Mune ni!](https://www.dropbox.com/s/3nabqogcw1ugg9q/Yuuki%20wa%20Doko%20ni%EF%BC%9F%20Kimi%20no%20Mune%20ni%21.mp3?dl=0)
+
 ## Idolmaster
 
 765PRO ALLSTARS
@@ -1202,6 +1210,8 @@ Cinderella Girls
 
 [Inochi Moyashite Koiseyo Otome](https://www.dropbox.com/s/o57idthzmlzxwcf/Inochi%20Moyashite%20Koiseyo%20Otome.mp3?dl=0)
 
+[Blooming Days](https://www.dropbox.com/s/1jhufuclchhjtu2/Blooming%20Days.mp3?dl=0)
+
 SideM
 
 [GOLD -No.79-](https://www.dropbox.com/s/pkxp2dv8hr2vhwg/GOLD%20%EF%BD%9ENo%EF%BC%8E79%EF%BD%9E.mp3?dl=0)
@@ -1209,6 +1219,10 @@ SideM
 [Waga Konton no Sabbath Marriage](https://www.dropbox.com/s/cx4bjircsh368mv/Waga%20Konton%20no%20Sabbath%20Marriage.mp3?dl=0)
 
 [Cafe Parade!](https://www.dropbox.com/s/pj31rch50q9qfvt/Cafe%20Parade%21.mp3?dl=0)
+
+[Study Equal Magic!](https://www.dropbox.com/s/dbrsrfjzl07709x/Study%20Equal%20Magic%21.mp3?dl=0)
+
+[Reason!!](https://www.dropbox.com/s/1xu8q9klexxcnzr/Reason%21%21.mp3?dl=0)
 
 ## High School Fleet / Haifuri
 
@@ -1562,33 +1576,15 @@ Hyperdimension Neptunia
 
 [Log Out Shinaide!](https://www.dropbox.com/s/fdimnmecb1qtfwh/Log%20Out%20Shinaide%21.mp3?dl=0)
 
-AKB48
+Onsen Musume
 
-[Heavy Rotation](https://www.dropbox.com/s/ghew4o655a8cev3/Heavy%20Rotation.mp3?dl=0)
+[LUSH STAR☆](https://www.dropbox.com/s/eogt8m07h6lhtwx/LUSH%20STAR%E2%98%86.mp3?dl=0)
 
-[Beginner](https://www.dropbox.com/s/b6u23yvfhn3czs1/Beginner.mp3?dl=0)
+[Koi to naduke ta mono](https://www.dropbox.com/s/c15zpkjevwucz73/Koi%20to%20naduke%20ta%20mono.mp3?dl=0)
 
-Uma Musume Pretty Derby
+[Hang out!!!](https://www.dropbox.com/s/o9wqqoo58bp34oe/Hang%20out%21%21%21.mp3?dl=0)
 
-[Umapyoi Densetsu](https://www.dropbox.com/s/aaz5qt2rq02srod/Umapyoi%20Densetsu%2001.mp3?dl=0)
-
-[Silent Star](https://www.dropbox.com/s/atxs5uhzsutynyq/Silent%20Star.mp3?dl=0)
-
-[Kindan Burning Heart](https://www.dropbox.com/s/l33s7tfsvimlkol/Kindan%20Burning%20Heart.mp3?dl=0)
-
-[Rising Girl](https://www.dropbox.com/s/ny4oqa39mdw17rc/Rising%20Girl.mp3?dl=0)
-
-[Secret GRADUATION](https://www.dropbox.com/s/qlx9cpqvq71pozp/Secret%20GRADUATION.mp3?dl=0)
-
-Re:Stage!
-
-[Startin' My Re:STAGE!!](https://www.dropbox.com/s/cks0uyxumfoophc/Startin%27%20My%20Re%EF%BC%9ASTAGE%21%21.mp3?dl=0)
-
-[Akogare Future Sign](https://www.dropbox.com/s/ygsev5grtg4ljm1/Akogare%20Future%20Sign.mp3?dl=0)
-
-[Do it!! PARTY!!](https://www.dropbox.com/s/16r2vuasxnfxrxn/Do%20it%21%21%20PARTY%21%21.mp3?dl=0)
-
-[Dream a gate](https://www.dropbox.com/s/5qdh8y2ftxo8y9b/Dream%20a%20gate.mp3?dl=0)
+[Epsilon Shinka Ron](https://www.dropbox.com/s/1fpr2kwnwe60v49/Epsilon%20Shinka%20Ron.mp3?dl=0)
 
 # MandalorTeSiit
 
