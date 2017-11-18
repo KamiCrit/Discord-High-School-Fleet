@@ -1,4 +1,4 @@
-2017-11-17 0200
+2017-11-18 0245
 
 **Crtl+F and right click URL's for quick !play-ing of songs:**
 
@@ -531,6 +531,12 @@ Nagato Yuki-chan no Shoushitsu
 [Fuwafuwa Nakama de Yoroshiku ne](https://www.dropbox.com/s/cnpqumsh9imu8vw/Nagato%20Yuki-chan%20no%20Shoushitsu%20-%20Fuwafuwa%20Nakama%20de%20Yoroshiku%20ne.mp3?dl=0)
 
 [Fure Fure Mirai](https://www.dropbox.com/s/7t1duvcxg39yltt/Nagato%20Yuki-chan%20no%20Shoushitsu%20-%20Kitakou%20Bungei-bu%20Joshikai%20-%20Fure%20Fure%20Mirai.mp3?dl=0)
+
+Net-juu no Susume
+
+[Saturday Night Question](https://www.dropbox.com/s/gqka5k6b3ztlh67/Net-juu%20no%20Susume%20-%20Saturday%20Night%20Question.mp3?dl=0)
+
+[Hikari, Hikari](https://www.dropbox.com/s/kf3kpn4cw0375en/Net-juu%20no%20Susume%20-%20Hikari%2C%20Hikari.mp3?dl=0)
 
 Netoge no Yome wa Onnanoko ja Nai to Omotta?
 
