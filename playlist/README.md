@@ -1,4 +1,4 @@
-2017-11-18 0245
+2017-11-25 1500
 
 **Crtl+F and right click URL's for quick !play-ing of songs:**
 
@@ -54,6 +54,14 @@
 
 [JIKAIYOKOKU](https://www.dropbox.com/s/6ksstsrledafr92/3-Gatsu%20no%20Lion%20-%20JIKAIYOKOKU.mp3?dl=0)
 
+3-gatsu no Lion 2nd Season
+
+[Flag wo Tatero](https://www.dropbox.com/s/59nw0x019m29bt8/3-gatsu%20no%20Lion%202nd%20Season%20-%20Flag%20wo%20Tatero.mp3?dl=0)
+
+[Kafune](https://www.dropbox.com/s/ss2pdoss8hdb9gy/3-gatsu%20no%20Lion%202nd%20Season%20-%20Kafune.mp3?dl=0)
+
+[yes](https://www.dropbox.com/s/59d7j50a4pebif7/YUKI%20-%20yes.mp3?dl=0)
+
 Aho Girl
 
 [Summer!](https://www.dropbox.com/s/gx8ai1axh90u170/Aho%20Girl%20-%20%E5%85%A8%E5%8A%9B%E2%98%86Summer%21.mp3?dl=0)
@@ -81,6 +89,14 @@ Angel Beats
 [My Soul, Your Beats!](https://www.dropbox.com/s/pb3pjmayb8yxbth/Angel%20Beats%20-%20My%20Soul%2C%20Your%20Beats%21.mp3?dl=0)
 
 [My Soul, Your Beats! (ENSON3)](https://www.dropbox.com/s/umzq2jxhm2vl5pl/Angel%20Beats%20-%20My%20Soul%2C%20Your%20Beats%21%20%28ENSON3%29.mp3?dl=0)
+
+Animegataris
+
+[Aikotoba](https://www.dropbox.com/s/7i1ji4v7xt0wm8f/Animegataris%20-%20Aikotoba.mp3?dl=0)
+
+[Good Luck Lilac](https://www.dropbox.com/s/uyjpjgy775ysio2/Animegataris%20-%20Good%20Luck%20Lilac.mp3?dl=0)
+
+[恋するG・A・T・A・L・I・S!](https://www.dropbox.com/s/cz8od84ia47zif8/GATALIS%20-%20%E6%81%8B%E3%81%99%E3%82%8BG%E3%83%BBA%E3%83%BBT%E3%83%BBA%E3%83%BBL%E3%83%BBI%E3%83%BBS%21.mp3?dl=0)
 
 Ano Hi Mita Hana no Namae wo Bokutachi wa Mada Shiranai.
 
@@ -119,6 +135,12 @@ Bakuon!!
 Bernard-jou Iwaku.
 
 [Love! Library](https://www.dropbox.com/s/czdj4608r4yh1l8/Bernard-jou%20Iwaku.%20-%20Love%21%20Library.mp3?dl=0)
+
+Blend S
+
+[Bon Appétit♡S](https://www.dropbox.com/s/0021b5durvog3jh/Blend%20S%20-%20Bon%20App%C3%A9tit%E2%99%A1S.mp3?dl=0)
+
+[Detarame na Minus to Plus ni Okeru Blend Ko](https://www.dropbox.com/s/mxplt3eq6ajwujg/Blend%20S%20-%20Detarame%20na%20Minus%20to%20Plus%20ni%20Okeru%20Blend%20Ko.mp3?dl=0)
 
 Boku dake ga Inai Machi / ERASED
 
@@ -183,6 +205,8 @@ DieBuster
 Eromanga-sensei
 
 [Hitorigoto](https://www.dropbox.com/s/1jv7lhg84b2c8tj/Eromanga-sensei%20-%20Hitorigoto.mp3?dl=0)
+
+[Hitorigoto (Animelo Summer Live 2017)](https://www.dropbox.com/s/tnnlszv0cg4zyrf/Eromanga-sensei%20-%20Hitorigoto%20%28Animelo%20Summer%20Live%202017%29.mp3?dl=0)
 
 [adrenaline!!!](https://www.dropbox.com/s/gfyb6m7hgjwmdbn/Eromanga-sensei%20-%20adrenaline%21%21%21.mp3?dl=0)
 
@@ -274,6 +298,8 @@ Haiyore! Nyaruko-san W
 
 [Yotte S.O.S.](https://www.dropbox.com/s/2caw9c8b6xiz1nf/Haiyore%21%20Nyaruko-san%20W%20-%20Yotte%20S.O.S.mp3?dl=0)
 
+[Yotte S.O.S. (Guitar cover)](https://www.dropbox.com/s/8nzk81m59omc5wi/%E9%80%99%E3%81%84%E3%82%88%E3%82%8C%21%20%E3%83%8B%E3%83%A3%E3%83%AB%E5%AD%90%E3%81%95%E3%82%93W%20ed%20-%20%E3%82%88%E3%81%A3%E3%81%A6S.O.S%20Full%20ver%20%28Guitar%20cover%29.mp3?dl=0)
+
 Hajimete no Gal
 
 [Hajimete no SEASON](https://www.dropbox.com/s/jkr2uz592ln0u7i/Hajimete%20no%20Gal%20%20-%20Hajimete%20no%20SEASON.mp3?dl=0)
@@ -315,6 +341,12 @@ High School Fleet / Haifuri
 Himouto! Umaru-chan R
 
 [Umarun Taisou](https://www.dropbox.com/s/56whflf35zb8adv/Himouto%21%20Umaru-chan%20R%20-%20Umarun%20Taisou.mp3?dl=0)
+
+Imouto sae Ireba Ii.
+
+[Ashita no Kimi sae Ireba Ii.](https://www.dropbox.com/s/2918p1n0fzltf8r/Imouto%20sae%20Ireba%20Ii.%20-%20Ashita%20no%20Kimi%20sae%20Ireba%20Ii..mp3?dl=0)
+
+[Donna Hoshizora yori mo, Donna Omoide yori mo](https://www.dropbox.com/s/31e8rovik18usck/Imouto%20sae%20Ireba%20Ii.%20-%20Donna%20Hoshizora%20yori%20mo%2C%20Donna%20Omoide%20yori%20mo.mp3?dl=0)
 
 Initial D
 
@@ -394,7 +426,7 @@ Kemono Friends
 
 [Youkoso Japari Park e (with Kaban)](https://www.dropbox.com/s/tk3f90wfqeg88b1/Kemono%20Friends%20-%20Youkoso%20Japari%20Park%20e%20%28with%20Kaban%29.mp3?dl=0)
 
-[Youkoso Japari Park e (Live VA)](https://www.dropbox.com/s/503fj8w2nvmrlhy/Kemono%20Friends%20-%20Youkoso%20Japari%20Park%20e%20%28Live%20VA%29.mp3?dl=0)
+[Youkoso Japari Park e (Animelo Summer Live 2017)](https://www.dropbox.com/s/kstj82mklfhsc5h/Kemono%20Friends%20-%20Youkoso%20Japari%20Park%20e%20%28Animelo%20Summer%20Live%202017%29.mp3?dl=0)
 
 [Youkoso Japari Park e (Live Masayoshi Ooishi)](https://www.dropbox.com/s/7qchxh3ysorcc46/Kemono%20Friends%20-%20Youkoso%20Japari%20Park%20e%20%28Live%20Masayoshi%20Ooishi%29.mp3?dl=0)
 
@@ -622,7 +654,7 @@ Nisemonogatari
 
 No Game No Life
 
-[This game](https://www.dropbox.com/s/8lxd1zigqvb1ux2/Suzumiya%20Haruhi%20no%20Yuuutsu%20-%20Lost%20my%20music.mp3?dl=0)
+[This game](https://www.dropbox.com/s/tkuz8398koyizh3/No%20Game%20No%20Life%20-%20This%20game.mp3?dl=0)
 
 [Oracion](https://www.dropbox.com/s/6trka0eliysjq69/No%20Game%20No%20Life%20-%20Oracion.mp3?dl=0)
 
@@ -760,6 +792,10 @@ Suzumiya Haruhi no Yuuutsu
 
 [Hare Hare Yukai](https://www.dropbox.com/s/7zeks6b70con703/Suzumiya%20Haruhi%20-%2001%20-%20Hare%20Hare%20Yukai.mp3?dl=0)
 
+[Hare Hare Yukai (Animelo Summer Live 2017)](https://www.dropbox.com/s/1jslgu30d7dfccd/Suzumiya%20Haruhi%20no%20Yuuutsu%20-%20Hare%20Hare%20Yukai%20%28Animelo%20Summer%20Live%202017%29.mp3?dl=0)
+
+[Hare Hare Yukai (Emiri Kimidori)](https://www.dropbox.com/s/eulbop74sopp5ji/Suzumiya%20Haruhi%20-%20Hare%20Hare%20Yukai%20%28Emiri%20Kimidori%29.mp3?dl=0)
+
 [Super Driver](https://www.dropbox.com/s/3b5zuodep8ggeia/Suzumiya%20Haruhi%20-%20Super%20Driver.mp3?dl=0)
 
 [Tomare](https://www.dropbox.com/s/ofe2rapjeg969qv/Suzumiya%20Haruhi%20-%2001%20-%20Tomare%21.mp3?dl=0)
@@ -771,8 +807,6 @@ Suzumiya Haruhi no Yuuutsu
 [God knows... (ENSON2)](https://www.dropbox.com/s/u75rcuj8b5kn5sk/Suzumiya%20Haruhi%20-%20God%20knows%20%28ENSON2%29mp3?dl=0)
 
 [God knows... (Poppin'Party)](https://www.dropbox.com/s/iarf1br6ucqpy43/%E3%80%90%E6%9C%9F%E9%96%93%E9%99%90%E5%AE%9A%E5%85%AC%E9%96%8B%E3%80%91Poppin%27Party%E3%80%8EGod%20knows...%E3%80%8F%EF%BC%88%E3%83%95%E3%83%AB%E3%82%B5%E3%82%A4%E3%82%BAVer.%EF%BC%89.mp3?dl=0)
-
-[Hare Hare Yukai (Emiri Kimidori)](https://www.dropbox.com/s/eulbop74sopp5ji/Suzumiya%20Haruhi%20-%20Hare%20Hare%20Yukai%20%28Emiri%20Kimidori%29.mp3?dl=0)
 
 Tamako Market
 
