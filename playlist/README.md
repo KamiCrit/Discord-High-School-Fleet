@@ -168,6 +168,8 @@ Clannad After Story
 
 [Toki wo Kizamu Uta](https://www.dropbox.com/s/zokzkubu5ixt7m7/Clannad%20After%20Story%20-%2001%20-%20Toki%20wo%20Kizamu%20Uta.mp3?dl=0)
 
+[Toki wo Kizamu Uta (Animelo Summer Live 2016)](https://www.dropbox.com/s/ej5vtc74r13z14q/Clannad%20After%20Story%20-%20Toki%20wo%20Kizamu%20Uta%20%28Animelo%20Summer%20Live%202016%29.mp3?dl=0)
+
 [TORCH](https://www.dropbox.com/s/x8jqhpobntjatew/Clannad%20After%20Story%20-%2002%20-%20TORCH.mp3?dl=0)
 
 Classroom Crisis
@@ -264,11 +266,13 @@ Girls Und Panzer
 
 [Dream Riser](https://www.dropbox.com/s/0zz9tdh6u9c2vyh/Girls%20und%20Panzer%20-%2001%20-%20DreamRiser.mp3?dl=0)
 
+[Dream Riser (Anglerfish Team)](https://www.dropbox.com/s/cclqou55b7zmqo0/Girls%20Und%20Panzer%20-%20ChouCho%20-%20Dream%20Riser%20%28Anglerfish%20Team%29.mp3?dl=0)
+
+[DreamRiser (Animelo Summer Live 2017)](https://www.dropbox.com/s/jytlhpa6tes8dpl/Girls%20und%20Panzer%20-%20DreamRiser%20%28Animelo%20Summer%20Live%202017%29.mp3?dl=0)
+
 [Enter Enter MISSION!](https://www.dropbox.com/s/z5qws9pdyjmnlli/Girls%20und%20Panzer%20-%2001%20-%20Enter%20Enter%20MISSION%21.mp3?dl=0)
 
 [Piece Of Youth](https://www.dropbox.com/s/frq18oljrlw2qm8/Girls%20und%20Panzer%20-%2001%20-%20piece%20of%20youth.mp3?dl=0)
-
-[Dream Riser (Anglerfish Team)](https://www.dropbox.com/s/cclqou55b7zmqo0/Girls%20Und%20Panzer%20-%20ChouCho%20-%20Dream%20Riser%20%28Anglerfish%20Team%29.mp3?dl=0)
 
 [Senshamichi Koushinkyoku](https://www.dropbox.com/s/lrm2iijakug14pl/Girls%20und%20Panzer%20-%20Extra_%20Senshamichi%20koushinkyoku.mp3?dl=0)
 
@@ -306,7 +310,7 @@ Hajimete no Gal
 
 [GAL-tic Love](https://www.dropbox.com/s/h04krp0clxxx30z/Hajimete%20no%20Gal%20-%20GAL-tic%20Love.mp3?dl=0)
 
-Hibike
+Hibike! Euphonium
 
 [DREAM SOLISTER](https://www.dropbox.com/s/chfw9fu5x58fcsp/Hibike%21%20Euphonium%20-%20TRUE%20-%20DREAM%20SOLISTER.mp3?dl=0)
 
@@ -314,9 +318,15 @@ Hibike
 
 [DREAM SOLISTER (ENSON3)](https://www.dropbox.com/s/j4u17qlxxbh4cbn/Hibike%20-%20%20DREAM%20SOLISTER%20%28ENSON3%29.mp3?dl=0)
 
+[DREAM SOLISTER (Animelo Summer Live 2016)](https://www.dropbox.com/s/wxge22bar8dn0ui/Hibike%21%20Euphonium%20-%20DREAM%20SOLISTER%20%28Animelo%20Summer%20Live%202016%29.mp3?dl=0)
+
+Hibike! Euphonium 2
+
 [Soundscape](https://www.dropbox.com/s/n7eadg7frbzn9i3/Hibike%21%20Euphonium%20-%20TRUE%20-%20Soundscape.mp3?dl=0)
 
 [Soundscape (TRUE & Wind Orchestra Ver.)](https://www.dropbox.com/s/v0j4e1nkaoiou9r/Hibike%21%20Euphonium%202%20-%2002.%20%E3%82%B5%E3%82%A6%E3%83%B3%E3%83%89%E3%82%B9%E3%82%B1%E3%83%BC%E3%83%97%28TRUE%20%26%20Wind%20Orchestra%20Ver.%29.mp3?dl=0)
+
+[Soundscape (Animelo Summer Live 2017)](https://www.dropbox.com/s/23o402rrll8n02z/Hibike%21%20Euphonium%202%20-%20Soundscape%20%28Animelo%20Summer%20Live%202017%29.mp3?dl=0)
 
 [FUNICULI FUNICULA](https://www.dropbox.com/s/rgkcmu5cdwullym/Hibike%21%20Euphonium%20-%2009.%20FUNICULI%20FUNICULA.mp3?dl=0)
 
@@ -325,6 +335,8 @@ High School Fleet / Haifuri
 [High Free Spirits](https://www.dropbox.com/s/a2kg3l67xf88ddi/High%20School%20Fleet%20-%2001%20-%20High%20Free%20Spirits.mp3?dl=0)
 
 [Ripple Effect](https://www.dropbox.com/s/uhnyh9tj34yv0ij/High%20School%20Fleet%20-%2001%20-%20Ripple%20Effect.mp3?dl=0)
+
+[Ripple Effect (Animelo Summer Live 2016)](https://www.dropbox.com/s/3rwpe8qtwl8fzma/High%20School%20Fleet%20-%20Ripple%20Effect%20%28Animelo%20Summer%20Live%202016%29.mp3?dl=0)
 
 [Bokura no Symphony](https://www.dropbox.com/s/blxe374qbq3horo/High%20School%20Fleet%20-%2002%20-%20Bokura%20no%20Symphony.mp3?dl=0)
 
@@ -474,6 +486,8 @@ Kono Subarashii Sekai ni Shukufuku wo! 2
 
 [TOMORROW](https://www.dropbox.com/s/azl5itymsrci0rb/Kono%20Subarashii%20Sekai%20ni%20Shukufuku%20wo%21%202%20-%2001.%20TOMORROW.mp3?dl=0)
 
+[TOMORROW (Animelo Summer Live 2017)](https://www.dropbox.com/s/lvo2j4vkm2aotge/Kono%20Subarashii%20Sekai%20ni%20Shukufuku%20wo%21%202%20-%20TOMORROW%20%28Animelo%20Summer%20Live%202017%29.mp3?dl=0)
+
 [Oie ni Kaeritai](https://www.dropbox.com/s/20w20c68i495gck/Kono%20Subarashii%20Sekai%20ni%20Shukufuku%20wo%21%202%20-%20Oie%20ni%20Kaeritai.mp3?dl=0)
 
 Koutetsujou no Kabaneri
@@ -491,6 +505,8 @@ Love Live
 Lucky Star
 
 [Motteke! Sailor Fuku](https://www.dropbox.com/s/uxwnqegmfmjdb8i/Lucky%20Star%20-%20Motteke%21%20Sailor%20Fuku.mp3?dl=0)
+
+[Motteke! Sailor Fuku (Animelo Summer Live 2016)](https://www.dropbox.com/s/yvt2rxgkjwqmxzr/Lucky%E2%98%86Star%20-%20Motteke%21%20Sailor%20Fuku%20%28Animelo%20Summer%20Live%202016%29.mp3?dl=0)
 
 [Fun Fun Fun Dayo [Remix]](https://www.dropbox.com/s/ldugap7k9216n0o/Lucky%20Star%20-%20Fun%20Fun%20Fun%20Dayo%20%5BRemix%5D.mp3?dl=0)
 
@@ -780,6 +796,8 @@ Sore ga Seiyuu!
 
 [Anata no Omimi ni Plugin!](https://www.dropbox.com/s/79xenhfqpala3ti/Sore%20ga%20Seiyuu%21%20-%20Anata%20no%20Omimi%20ni%20Plugin%21.mp3?dl=0)
 
+[Anata no Omimi ni Plugin! (Animelo Summer Live 2016)](https://www.dropbox.com/s/i5e08dzum1tdutv/Sore%20ga%20Seiyuu%21%20-%20Anata%20no%20Omimi%20ni%20Plugin%21%20%28Animelo%20Summer%20Live%202016%29.mp3?dl=0)
+
 Stella no Mahou
 
 [God Save The Girls](https://www.dropbox.com/s/14y27okfa7amt37/Stella%20no%20Mahou%20-%20Shino%20Shimoji%20-%20God%20Save%20The%20Girls.mp3?dl=0)
@@ -827,6 +845,10 @@ Tanaka-kun wa Itsumo Kedaruge
 [Utatane Sunshine](https://www.dropbox.com/s/7moq63urjnw7u3f/Tanaka-kun%20wa%20Itsumo%20Kedaruge%20-%20Unlimited%20tone%20-%20Utatane%20Sunshine.mp3?dl=0)
 
 [BON-BON](https://www.dropbox.com/s/127b831ctqj0h5r/Tanaka-kun%20wa%20Itsumo%20Kedaruge%20-%20CooRie%20-%20BON-BON.mp3?dl=0)
+
+Tengen Toppa Gurren Lagann
+
+[Sorairo Days (Animelo Summer Live 2017)](https://www.dropbox.com/s/up20zid9qszm9xx/Tengen%20Toppa%20Gurren%20Lagann%20-%20Sorairo%20Days%20%28Animelo%20Summer%20Live%202017%29.mp3?dl=0)
 
 The Idolmaster
 
@@ -1013,6 +1035,8 @@ Opportunity
 [Toumei Answer (Guitar)](https://www.dropbox.com/s/foz0nnsovh9j488/%E3%80%8C%E9%80%8F%E6%98%8E%E3%82%A2%E3%83%B3%E3%82%B5%E3%83%BC%E3%80%8D%EF%BC%8F%E3%80%8CToumei%20Ans%C4%81%E3%80%8D%5BTransparent%20Answer%5D%20Guitar%20Cover%20%E3%82%AA%E3%83%AA%E3%82%B8%E3%83%8A%E3%83%AB%E3%83%BB%E3%82%A2%E3%83%AC%E3%83%B3%E3%82%B8%E3%80%90IA%E3%80%91feat.%20%23stoppaz.mp3?dl=0)
 
 [Perfume - Everyday](https://www.dropbox.com/s/2c0pu6syuwyoon4/Perfume%20-%20Everyday.mp3?dl=0)
+
+[BanG Dream! - Roselia - BLACK SHOUT (Animelo Summer Live 2017)](https://www.dropbox.com/s/xrwiogcmfhflpbu/BanG%20Dream%21%20-%20Roselia%20-%20BLACK%20SHOUT%20%28Animelo%20Summer%20Live%202017%29.mp3?dl=0)
 
 # Lilac
 
