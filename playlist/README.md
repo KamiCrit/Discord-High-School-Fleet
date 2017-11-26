@@ -334,6 +334,8 @@ High School Fleet / Haifuri
 
 [High Free Spirits](https://www.dropbox.com/s/a2kg3l67xf88ddi/High%20School%20Fleet%20-%2001%20-%20High%20Free%20Spirits.mp3?dl=0)
 
+[High Free Spirits (Animelo Summer Live 2016)](https://www.dropbox.com/s/54e9ybp7t98dtsa/High%20School%20Fleet%20-%20High%20Free%20Spirits%20%28Animelo%20Summer%20Live%202016%29.mp3?dl=0)
+
 [Ripple Effect](https://www.dropbox.com/s/uhnyh9tj34yv0ij/High%20School%20Fleet%20-%2001%20-%20Ripple%20Effect.mp3?dl=0)
 
 [Ripple Effect (Animelo Summer Live 2016)](https://www.dropbox.com/s/3rwpe8qtwl8fzma/High%20School%20Fleet%20-%20Ripple%20Effect%20%28Animelo%20Summer%20Live%202016%29.mp3?dl=0)
