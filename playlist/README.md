@@ -1,4 +1,4 @@
-2017-11-25 1500
+2017-12-02 1100
 
 **Crtl+F and right click URL's for quick !play-ing of songs:**
 
@@ -1204,6 +1204,10 @@ Aqours
 
 [Yuuki wa Doko ni? Kimi no Mune ni!](https://www.dropbox.com/s/3nabqogcw1ugg9q/Yuuki%20wa%20Doko%20ni%EF%BC%9F%20Kimi%20no%20Mune%20ni%21.mp3?dl=0)
 
+[MY MAI☆TONIGHT](https://www.dropbox.com/s/2g83ndgkfcnopkq/MY%20MAI%E2%98%86TONIGHT.mp3?dl=0)
+
+[MIRACLE WAVE](https://www.dropbox.com/s/lbwshkzdepveqh8/MIRACLE%20WAVE.mp3?dl=0)
+
 ## Idolmaster
 
 765PRO ALLSTARS
@@ -1340,6 +1344,10 @@ Roselia
 
 [Nesshoku Starmine](https://www.dropbox.com/s/hkhgnvwlgoe6o2o/Nesshoku%20Starmine.mp3?dl=0)
 
+[ONENESS](https://www.dropbox.com/s/5fv64wiu3pfjus3/ONENESS.mp3?dl=0)
+
+[Determination Symphony](https://www.dropbox.com/s/yd0k367jxx73vak/Determination%20Symphony.mp3?dl=0)
+
 Pastel*Palettes
 
 [Shuwarin Dream~in](https://www.dropbox.com/s/cb5jj8frngi76p4/Shuwarin%E2%98%86Drea~min.mp3?dl=0)
@@ -1463,6 +1471,10 @@ Wake Up, Girls!
 [Wug Zoo Zoo](https://www.dropbox.com/s/rdb3b1c3ad1n2x3/Wug%20Zoo%20Zoo.mp3?dl=0)
 
 [Sugao de KISS ME](https://www.dropbox.com/s/53u28jwbxmructh/Sugao%20de%20KISS%20ME.mp3?dl=0)
+
+[7 Senses](https://www.dropbox.com/s/hqtr2t0al0le29h/7%20Senses.MP3?dl=0)
+
+[Shizuku no Kanmuri](https://www.dropbox.com/s/6xlredhkm3rwx73/Shizuku%20no%20Kanmuri.MP3?dl=0)
 
 Masamune-kun no Revenge
 
@@ -1627,6 +1639,14 @@ Princess Principal
 [The Other Side of the Wall](https://www.dropbox.com/s/eutrbdg3td268ru/The%20Other%20Side%20of%20the%20Wall.mp3?dl=0)
 
 [A Page of My Story](https://www.dropbox.com/s/1r23gvng3gkzqq0/A%20Page%20of%20My%20Story.mp3?dl=0)
+
+Sabagebu!
+
+[YES!!](https://www.dropbox.com/s/rf6awjqldkslrfc/YES%21%21.mp3?dl=0)
+
+[Pitty Patty Survibird](https://www.dropbox.com/s/l2cp840it4eygyo/Pitty%20Patty%20Survibird.mp3?dl=0)
+
+[Zen Joshi Chikara de Extarminating!!](https://www.dropbox.com/s/a7rd1ulkxmthlyt/Zen%20Joshi%20Chikara%20de%20Extarminating%21%21.mp3?dl=0)
 
 ## Other Songs
 
