@@ -1,4 +1,4 @@
-2017-12-02 1100
+2017-12-02 1130
 
 **Crtl+F and right click URL's for quick !play-ing of songs:**
 
@@ -171,6 +171,12 @@ Clannad After Story
 [Toki wo Kizamu Uta (Animelo Summer Live 2016)](https://www.dropbox.com/s/ej5vtc74r13z14q/Clannad%20After%20Story%20-%20Toki%20wo%20Kizamu%20Uta%20%28Animelo%20Summer%20Live%202016%29.mp3?dl=0)
 
 [TORCH](https://www.dropbox.com/s/x8jqhpobntjatew/Clannad%20After%20Story%20-%2002%20-%20TORCH.mp3?dl=0)
+
+D-Frag!
+
+[Stalemate!](https://www.dropbox.com/s/0fvannp6u0euw37/D-Frag%21%20-%20Stalemate%21.mp3?dl=0)
+
+[Minna no Namae wo Irete Kudasai](https://www.dropbox.com/s/ydsrnvvghx4mbg2/D-Frag%21%20-%20Minna%20no%20Namae%20wo%20Irete%20Kudasai.mp3?dl=0)
 
 Classroom Crisis
 
@@ -456,6 +462,8 @@ Kobayashi-san Chi no Maid Dragon
 
 [Aozora no Rhapsody](https://www.dropbox.com/s/u3bqag60lrudell/Kobayashi-san%20Chi%20no%20Maid%20Dragon%20-%20Aozora%20no%20Rhapsody.mp3?dl=0)
 
+[Aozora no Rhapsody (Animelo Summer Live 2017)](https://www.dropbox.com/s/wkabgrbkj67nxi7/Kobayashi-san%20Chi%20no%20Maid%20Dragon%20-%20Aozora%20no%20Rhapsody%20%28Animelo%20Summer%20Live%202017%29.mp3?dl=0)
+
 [Kobayashi's Dragon Maid OP_ 青空のラプソディ feat. IA ROCKS [ dj-Jo Remix ] Full Version](https://www.dropbox.com/s/jhkyy0nqyomye9j/Kobayashi-san%20Chi%20no%20Maid%20Dragon%20-%20Kobayashi%27s%20Dragon%20Maid%20OP_%20%E9%9D%92%E7%A9%BA%E3%81%AE%E3%83%A9%E3%83%97%E3%82%BD%E3%83%87%E3%82%A3%20feat.%20IA%20ROCKS%20%5B%20dj-Jo%20Remix%20%5D%20Full%20Version.mp3?dl=0)
 
 [Ishukan Communication](https://www.dropbox.com/s/3h2ha7kdz3kg1zu/Kobayashi-san%20Chi%20no%20Maid%20Dragon%20-%20Ishukan%20Communication.mp3?dl=0)
@@ -469,6 +477,10 @@ Koe no Katachi
 Koi to Uso
 
 [Kanashii Ureshii](https://www.dropbox.com/s/4j88eg0sfb0px1l/Koi%20to%20Uso%20-%20Kanashii%20Ureshii.mp3?dl=0)
+
+Kokoro Connect
+
+[Paradigm](https://www.dropbox.com/s/wzope6olsy1qavi/Kokoro%20Connect%20-%20Paradigm.mp3?dl=0)
 
 Kono Bijutsubu ni wa Mondai ga Aru
 
@@ -790,6 +802,12 @@ Shokugeki No Souma
 
 [Spice feat. Nyamai [ dj-Jo Remix ]](https://www.dropbox.com/s/pd8xqsnp459argc/Shokugeki%20no%20Souma%20-%20Spice%20feat.%20Nyamai%20%5B%20dj-Jo%20Remix%20%5D.mp3?dl=0)
 
+Shoujo Shuumatsu Ryokou
+
+[Ugoku, Ugoku](https://www.dropbox.com/s/zj1dfum6vzhvhhz/Shoujo%20Shuumatsu%20Ryokou%20-%20Ugoku%2C%20Ugoku.mp3?dl=0)
+
+[More One Night](https://www.dropbox.com/s/dit6mjwsbxy5uo1/Shoujo%20Shuumatsu%20Ryokou%20-%20More%20One%20Night.mp3?dl=0)
+
 Shouwa Genroku Rakugo Shinjuu Sukeroku Futatabi-hen - 
 
 [Imawa no Shinigami](https://www.dropbox.com/s/qgkws8t4kkncoad/Shouwa%20Genroku%20Rakugo%20Shinjuu%20Sukeroku%20Futatabi-hen%20-%20Imawa%20no%20Shinigami.mp3?dl=0)
@@ -897,6 +915,8 @@ Urara Meirochou
 [Yumeji Labyrinth(HUGKISS 162 EDIT)](https://www.dropbox.com/s/19mto3jxcx29ghs/Urara%20Meirochou%20-%20Yumeji%20Labyrinth%28HUGKISS%20162%20EDIT%29.mp3?dl=0)
 
 [go to Romance＞＞＞＞＞](https://www.dropbox.com/s/lwsc7k2l7n9xpov/Urara%20Meirochou%20-%20go%20to%20Romance%EF%BC%9E%EF%BC%9E%EF%BC%9E%EF%BC%9E%EF%BC%9E.mp3?dl=0)
+
+[go to Romance＞＞＞＞＞ (Animelo Summer Live 2017)](https://www.dropbox.com/s/ha49np0o8rja1by/Urara%20Meirochou%20-%20go%20to%20Romance%20%28Animelo%20Summer%20Live%202017%29.mp3?dl=0)
 
 [Go to Romance -Bring Me Back to the 70s Mix-](https://www.dropbox.com/s/ge43rya2ijo5l52/Urara%20Meirochou%20-%20Go%20to%20Romance%20-Bring%20Me%20Back%20to%20the%2070s%20Mix-.mp3?dl=0)
 
