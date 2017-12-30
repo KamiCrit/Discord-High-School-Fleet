@@ -1224,8 +1224,6 @@ Aqours
 
 [MIRAI TICKET](https://www.dropbox.com/s/ccf71ca86w7eg5q/MIRAI%20TICKET.mp3?dl=0)
 
-[SELF CONTROL!!](https://www.dropbox.com/s/djgh7f2o2bkp10d/SELF%20CONTROL%21%21.mp3?dl=0)
-
 [G Senjou no Cinderella](https://www.dropbox.com/s/tyt0mctz1pk72px/G%20Senjou%20no%20Cinderella.mp3?dl=0)
 
 [Thrilling One Way](https://www.dropbox.com/s/rpe9ds4c4xoh3v7/Thrilling%20One%20Way.mp3?dl=0)
@@ -1291,6 +1289,8 @@ Guilty Kiss
 Saint Aqours Snow
 
 [Awaken the power](https://www.dropbox.com/s/ubsoz6tz8ksjr6m/Awaken%20the%20power.mp3?dl=0)
+
+[SELF CONTROL!!](https://www.dropbox.com/s/djgh7f2o2bkp10d/SELF%20CONTROL%21%21.mp3?dl=0)
 
 Saint Snow
 
