@@ -1,4 +1,4 @@
-2017-12-30 1745
+2017-12-31 0145
 
 **Crtl+F and right click URL's for quick !play-ing of songs:**
 
@@ -1326,13 +1326,13 @@ Saint Aqours Snow
 
 [Awaken the power](https://www.dropbox.com/s/ubsoz6tz8ksjr6m/Awaken%20the%20power.mp3?dl=0)
 
-[SELF CONTROL!!](https://www.dropbox.com/s/djgh7f2o2bkp10d/SELF%20CONTROL%21%21.mp3?dl=0)
-
 Saint Snow
 
 [CRASH MIND](https://www.dropbox.com/s/1czmrrlpi045axl/CRASH%20MIND.mp3?dl=0)
 
 [DROPOUT!?](https://www.dropbox.com/s/u2h7qqov31o7wek/DROPOUT%21%EF%BC%9F.mp3?dl=0)
+
+[SELF CONTROL!!](https://www.dropbox.com/s/djgh7f2o2bkp10d/SELF%20CONTROL%21%21.mp3?dl=0)
 
 ## Idolmaster
 
