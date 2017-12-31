@@ -486,6 +486,8 @@ Koe no Katachi
 
 [lit(var)](https://www.dropbox.com/s/853xpbgdrucnifb/Koe%20no%20Katachi%20-%2039.%20lit%28var%29.mp3?dl=0)
 
+[slt](https://www.dropbox.com/s/e9mibr06b7u9yvs/Koe%20no%20Katachi%20-%2037.%20slt.mp3?dl=0)
+
 Koi to Uso
 
 [Kanashii Ureshii](https://www.dropbox.com/s/4j88eg0sfb0px1l/Koi%20to%20Uso%20-%20Kanashii%20Ureshii.mp3?dl=0)
@@ -728,6 +730,10 @@ Pokemon Anime
 
 [Pokemon Battle Music](https://www.dropbox.com/s/uxfzvyf9v8f6rm4/Pokemon%20Battle%20Music.mp3?dl=0)
 
+Princess Principal
+
+[A Page of My Story](https://www.dropbox.com/s/w3hshi43vg3ruiz/Princess%20Principal%20-%20A%20Page%20of%20My%20Story.mp3?dl=0)
+
 ReLIFE
 
 [Button](https://www.dropbox.com/s/mqrs9123ml2919h/ReLIFE%20-%2001.%20PENGUIN%20RESEARCH%20-%20Button.mp3?dl=0) <--This is best song
@@ -811,6 +817,8 @@ Shakunetsu no Takkyuu Musume
 Shingeki no Kyojin
 
 [Utsukushiki Zankoku na Sekai (Animelo Summer Live 2013)](https://www.dropbox.com/s/lfolrfvaspeuxx0/Shingeki%20no%20Kyojin%20-%20Utsukushiki%20Zankoku%20na%20Sekai%20%28Animelo%20Summer%20Live%202013%29.mp3?dl=0)
+
+[Yuugure no Tori](https://www.dropbox.com/s/xli1fytu2u4iwhq/Shingeki%20no%20Kyojin%20-%20Yuugure%20no%20Tori.mp3?dl=0)
 
 Shirobako
 
