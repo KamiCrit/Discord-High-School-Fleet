@@ -1,4 +1,4 @@
-2017-12-27 2000
+2017-12-30 1745
 
 **Crtl+F and right click URL's for quick !play-ing of songs:**
 
@@ -71,6 +71,8 @@ Aho Girl
 Aiura
 
 [Kani Do-Luck!](https://www.dropbox.com/s/cwugoobbi95qvqk/Aiura%20-%20Aiu%20rabu%20-%20Kani%20Do-Luck%21.mp3?dl=0)
+
+[Kani Do-Luck! (Animelo Summer Live 2013)](https://www.dropbox.com/s/5a20fd9tbvqnql0/Aiura%20-%20Kani%20Do-Luck%21%20%28Animelo%20Summer%20Live%202013%29.mp3?dl=0)
 
 Amaama to Inazuma
 
@@ -160,6 +162,8 @@ Choujigen Game Neptune The Animation
 
 [Neptune☆Sagashite](https://www.dropbox.com/s/61zwh40ffbv0ap2/Choujigen%20Game%20Neptune%20The%20Animation%20-%20Neptune%E2%98%86Sagashite.mp3?dl=0)
 
+[Neptune☆Sagashite (Animelo Summer Live 2013)](https://www.dropbox.com/s/9ex4t4ck0ww3jky/Choujigen%20Game%20Neptune%20The%20Animation%20-%20Neptune%E2%98%86Sagashite%20%28Animelo%20Summer%20Live%202013%29.mp3?dl=0)
+
 Clannad
 
 [Dango Daikazoku](https://www.dropbox.com/s/xuq9tiixhq1clbx/Clannad%20-%20Dango%20Daikazoku.mp3?dl=0)
@@ -218,6 +222,8 @@ Eromanga-sensei
 
 [adrenaline!!!](https://www.dropbox.com/s/gfyb6m7hgjwmdbn/Eromanga-sensei%20-%20adrenaline%21%21%21.mp3?dl=0)
 
+[adrenaline!!! (Animelo Summer Live 2017)](https://www.dropbox.com/s/lgsm5jevk4ptie1/Eromanga-sensei%20-%20adrenaline%21%21%21%20%28Animelo%20Summer%20Live%202017%29.mp3?dl=0)
+
 [ClariS - ヒトリゴト(Kakeru Bootleg Remix)［FreeDL⇒Buy］](https://www.dropbox.com/s/x1l8f5g1y7ou4dq/Eromanga-sensei%20-%20ClariS%20-%20%E3%83%92%E3%83%88%E3%83%AA%E3%82%B4%E3%83%88%28Kakeru%20Bootleg%20Remix%29%EF%BC%BBFreeDL%E2%87%92Buy%EF%BC%BD.mp3?dl=0)
 
 Frame Arms Girl
@@ -255,6 +261,8 @@ Gatchaman Crowds
 Gekkan Shoujo Nozaki-kun
 
 [Kimi ja Nakya Dame Mitai](https://www.dropbox.com/s/epqlkcxo69sd4jv/Gekkan%20Shoujo%20Nozaki-kun%20-%20Masayoshi%20Ooishi%20-%20Kimi%20ja%20Nakya%20Dame%20Mitai.mp3?dl=0)
+
+[Kimi ja Nakya Dame Mitai (Animelo Summer Live 2015)](https://www.dropbox.com/s/dsxtcv30awwpb1r/Gekkan%20Shoujo%20Nozaki-kun%20-%20Kimi%20ja%20Nakya%20Dame%20Mitai%20%28Animelo%20Summer%20Live%202015%29.mp3?dl=0)
 
 [Kimi ja Nakya Dame Mitai (Metal)](https://www.dropbox.com/s/5z2naa6wt47wgb1/Monthly%20Girl%20Nozaki%20-%20Kun%20Can%20not%20be%20considered%20other%20than%20you%20KIMI%20JA%20NAKYA%20DAME%20MITAI.mp3?dl=0)
 
@@ -304,7 +312,11 @@ Girls Und Panzer Der Film
 
 [Panzerlied](https://www.dropbox.com/s/0ttvjlg9l91f0c9/Girls%20und%20Panzer%20Der%20Film%20-%2007.%20Panzerlied.mp3?dl=0)
 
-Haiyore! Nyaruko-san W
+Haiyore! Nyaruko-san
+
+[Taiyou Iwaku Moeyo Chaos (Animelo Summer Live 2013)](https://www.dropbox.com/s/k2turoouq8t7258/Haiyore%21%20Nyaruko-san%20-%20Taiyou%20Iwaku%20Moeyo%20Chaos%20%28Animelo%20Summer%20Live%202013%29.mp3?dl=0)
+
+[Koi wa Chaos no Shimobenari (Animelo Summer Live 2013)](https://www.dropbox.com/s/6you0a2c23zem7c/Haiyore%21%20Nyaruko-san%20W%20-%20Koi%20wa%20Chaos%20no%20Shimobenari%20%28Animelo%20Summer%20Live%202013%29.mp3?dl=0)
 
 [Yotte S.O.S.](https://www.dropbox.com/s/2caw9c8b6xiz1nf/Haiyore%21%20Nyaruko-san%20W%20-%20Yotte%20S.O.S.mp3?dl=0)
 
@@ -662,6 +674,8 @@ Nisekoi
 
 [Rally Go Round](https://www.dropbox.com/s/fs4u6e5c8xfty34/Nisekoi%20-%2001.%20Rally%20Go%20Round.mp3?dl=0)
 
+[Rally Go Round (Animelo Summer Live 2015)](https://www.dropbox.com/s/ssc1yzp0eurte6z/Nisekoi%20-%20Rally%20Go%20Round%20%28Animelo%20Summer%20Live%202015%29.mp3?dl=0)
+
 [Rally Go Round feat. Yuzuki Yukari [ dj-Jo Remix ] Full Version](https://www.dropbox.com/s/w82l1jmu8ph16cg/Nisekoi%20-%20Rally%20Go%20Round%20feat.%20Yuzuki%20Yukari%20%5B%20dj-Jo%20Remix%20%5D%20Full%20Version.mp3?dl=0)
 
 [OST 1 - 09. 恋人](https://www.dropbox.com/s/tlmo1koq1xau10c/Nisekoi%20-%2009.%20%E6%81%8B%E4%BA%BA.mp3?dl=0)
@@ -719,6 +733,10 @@ ReLIFE
 [Button](https://www.dropbox.com/s/mqrs9123ml2919h/ReLIFE%20-%2001.%20PENGUIN%20RESEARCH%20-%20Button.mp3?dl=0) <--This is best song
 
 [Iijuu Rider](https://www.dropbox.com/s/971k4h46999ft8k/ReLIFE%20-%2001.%20Tamio%20Okuda%20-%20Iijuu%20Rider.mp3?dl=0)
+
+Renai Boukun
+
+[Koi De Ai De Boukun desu! (Animelo Summer Live 2017)](https://www.dropbox.com/s/f1l7drbvjchb754/Renai%20Boukun%20-%20Koi%20De%20Ai%20De%20Boukun%20desu%21%20%28Animelo%20Summer%20Live%202017%29.mp3?dl=0)
 
 Sakamoto desu ga?
 
@@ -789,6 +807,10 @@ Shakunetsu no Takkyuu Musume
 [Fairfight乂fielding](https://www.dropbox.com/s/9yyhmuec3hvm5h8/Shakunetsu%20no%20Takkyu%20Musume%20-%20Fairfight%E4%B9%82fielding.mp3?dl=0)
 
 [The Sound of a Dream](https://www.dropbox.com/s/kqq35aotwx3kfk6/Shakunetsu%20no%20Takkyu%20Musume%20-%20The_sound_of_a_dream.mp3?dl=0)
+
+Shingeki no Kyojin
+
+[Utsukushiki Zankoku na Sekai (Animelo Summer Live 2013)](https://www.dropbox.com/s/lfolrfvaspeuxx0/Shingeki%20no%20Kyojin%20-%20Utsukushiki%20Zankoku%20na%20Sekai%20%28Animelo%20Summer%20Live%202013%29.mp3?dl=0)
 
 Shirobako
 
@@ -920,6 +942,10 @@ Urara Meirochou
 
 [Go to Romance -Bring Me Back to the 70s Mix-](https://www.dropbox.com/s/ge43rya2ijo5l52/Urara%20Meirochou%20-%20Go%20to%20Romance%20-Bring%20Me%20Back%20to%20the%2070s%20Mix-.mp3?dl=0)
 
+Wake Up, Girls!
+
+[7 Girls War (Animelo Summer Live 2014)](https://www.dropbox.com/s/8albk6dfixwd66r/Wake%20Up%2C%20Girls%21%20-%207%20Girls%20War%20%28Animelo%20Summer%20Live%202014%29.mp3?dl=0)
+
 Yojouhan Shinwa Taikei
 
 [Youjouhan Shinwa Taikei OP](https://www.dropbox.com/s/i6jbgwmz6rirj4o/Yojouhan%20Shinwa%20Taikei%20-%2001%20Maigo%20Inu%20to%20Ame%20no%20Beat.mp3?dl=0)
@@ -927,6 +953,8 @@ Yojouhan Shinwa Taikei
 [Youjouhan Shinwa Taikei ED](https://www.dropbox.com/s/b410metyqfbj9y8/Yojouhan%20Shinwa%20Taikei%20-%2001%20Kami-sama%20no%20Iu%20Toori.mp3?dl=0)
 
 Yuru Yuri
+
+[Yuriyurarararayuruyuri Daijiken (Animelo Summer Live 2013)](https://www.dropbox.com/s/q92r147vdmz9hka/Yuru%20Yuri%20-%20Yuriyurarararayuruyuri%20Daijiken%20%28Animelo%20Summer%20Live%202013%29.mp3?dl=0)
 
 [Girls Power de](https://www.dropbox.com/s/1dsyi7pwgbohiie/Yuru%20Yuri%20-%20Girls%20Power%20de.mp3?dl=0)
 
