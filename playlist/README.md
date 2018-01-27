@@ -1,4 +1,4 @@
-2017-12-31 0145
+2018-01-27
 
 **Crtl+F and right click URL's for quick !play-ing of songs:**
 
@@ -380,6 +380,10 @@ Imouto sae Ireba Ii.
 
 [Donna Hoshizora yori mo, Donna Omoide yori mo](https://www.dropbox.com/s/31e8rovik18usck/Imouto%20sae%20Ireba%20Ii.%20-%20Donna%20Hoshizora%20yori%20mo%2C%20Donna%20Omoide%20yori%20mo.mp3?dl=0)
 
+[Imouto sae Ireba Ii. - アイキャッチ～本日のオススメ～](https://www.dropbox.com/s/cehewu2al5z8s9i/Imouto%20sae%20Ireba%20Ii.%20-%20%E3%82%A2%E3%82%A4%E3%82%AD%E3%83%A3%E3%83%83%E3%83%81%EF%BD%9E%E6%9C%AC%E6%97%A5%E3%81%AE%E3%82%AA%E3%82%B9%E3%82%B9%E3%83%A1%EF%BD%9E.mp3?dl=0)
+
+[Imouto sae Ireba Ii. - 次回予告～NEXT IMOSAE STORY～](https://www.dropbox.com/s/sz4r8rv2r9l2i8s/Imouto%20sae%20Ireba%20Ii.%20-%20%E6%AC%A1%E5%9B%9E%E4%BA%88%E5%91%8A%EF%BD%9ENEXT%20IMOSAE%20STORY%EF%BD%9E.mp3?dl=0)
+
 Initial D
 
 [Running in the '90s](https://www.dropbox.com/s/mdc2busz94bdfuu/Initial%20D%20-%20Max%20Coveri%20-%20Running%20in%20the%20%2790s.mp3?dl=0)
@@ -734,6 +738,10 @@ Princess Principal
 
 [A Page of My Story](https://www.dropbox.com/s/w3hshi43vg3ruiz/Princess%20Principal%20-%20A%20Page%20of%20My%20Story.mp3?dl=0)
 
+Ramen Daisuki Koizumi-san
+
+[FEELING AROUND](https://www.dropbox.com/s/bvorffhpo8z67ou/Ramen%20Daisuki%20Koizumi-san%20-%20FEELING%20AROUND.mp3?dl=0)
+
 ReLIFE
 
 [Button](https://www.dropbox.com/s/mqrs9123ml2919h/ReLIFE%20-%2001.%20PENGUIN%20RESEARCH%20-%20Button.mp3?dl=0) <--This is best song
@@ -907,6 +915,12 @@ The Idolmaster
 Tonari no Seki-kun
 
 [Meiwaku Spectacle](https://www.dropbox.com/s/li5fw8eg9xp5jk9/Tonari%20no%20Seki-kun%20-%20Meiwaku%20Spectacle.mp3?dl=0)
+
+Toradora!
+
+[Pre-Parade](https://www.dropbox.com/s/hlj6yvrwj4kir2z/Toradora%21%20-%20Pre-Parade.mp3?dl=0)
+
+[Vanilla Salt](https://www.dropbox.com/s/2mqt6vx39kwbloz/Toradora%21%20-%20Vanilla%20Salt.mp3?dl=0)
 
 Totoro
 
@@ -1192,6 +1206,8 @@ Opportunity
 
 [Future Style](https://www.dropbox.com/s/p8duuhp812t341c/Future%20style.mp3?dl=0)
 
+[Kururin MIRACLE](https://www.dropbox.com/s/0vsptmmcaifypt8/Kururin%20MIRACLE.mp3?dl=0)
+
 Printemps
 
 [Love Marginal](https://www.dropbox.com/s/vlfauatl2y3agew/Love%20Marginal.mp3?dl=0)
@@ -1286,6 +1302,10 @@ Aqours
 
 [SKY JOURNEY](https://www.dropbox.com/s/3gpgbxcy2pgfmkq/SKY%20JOURNEY.mp3?dl=0)
 
+[WATER BLUE NEW WORLD](https://www.dropbox.com/s/cvnt97vmmx7i8x1/WATER%20BLUE%20NEW%20WORLD.mp3?dl=0)
+
+[WONDERFUL STORIES](https://www.dropbox.com/s/wgruarol9v4ylsc/WONDERFUL%20STORIES.mp3?dl=0)
+
 CYaRon!
 
 [Genki Zenkai DAY! DAY! DAY!](https://www.dropbox.com/s/lbewn7g7zltgfgn/Genki%20Zenkai%20DAY%21%20DAY%21%20DAY%21.mp3?dl=0)
@@ -1356,6 +1376,8 @@ Saint Snow
 
 [Kouhaku Ouen V](https://www.dropbox.com/s/hdpgd8hzhe2rzpo/Kouhaku%20Ouen%20V.mp3?dl=0)
 
+[LEMONADE](https://www.dropbox.com/s/sxncsga092vo4yp/LEMONADE.mp3?dl=0)
+
 Million Live
 
 [Sweet Sweet Soul](https://www.dropbox.com/s/254br3oh7wzsidt/Sweet%20Sweet%20Soul.mp3?dl=0)
@@ -1408,6 +1430,10 @@ Cinderella Girls
 
 [Blooming Days](https://www.dropbox.com/s/1jhufuclchhjtu2/Blooming%20Days.mp3?dl=0)
 
+[Akimeite Ding Dong Dang!](https://www.dropbox.com/s/mbk97av3qgxrjl0/Akimeite%20Ding%20Dong%20Dang%21.mp3?dl=0)
+
+[Snow＊Love](https://www.dropbox.com/s/4pf56m0g30g62wq/Snow%EF%BC%8ALove.mp3?dl=0)
+
 SideM
 
 [GOLD -No.79-](https://www.dropbox.com/s/pkxp2dv8hr2vhwg/GOLD%20%EF%BD%9ENo%EF%BC%8E79%EF%BD%9E.mp3?dl=0)
@@ -1419,6 +1445,8 @@ SideM
 [Study Equal Magic!](https://www.dropbox.com/s/dbrsrfjzl07709x/Study%20Equal%20Magic%21.mp3?dl=0)
 
 [Reason!!](https://www.dropbox.com/s/1xu8q9klexxcnzr/Reason%21%21.mp3?dl=0)
+
+[ARRIVE TO STAR](https://www.dropbox.com/s/wt6nm4f4e1mr2rg/ARRIVE%20TO%20STAR.mp3?dl=0)
 
 ## High School Fleet / Haifuri
 
@@ -1485,6 +1513,12 @@ Roselia
 Pastel*Palettes
 
 [Shuwarin Dream~in](https://www.dropbox.com/s/cb5jj8frngi76p4/Shuwarin%E2%98%86Drea~min.mp3?dl=0)
+
+[Pasu Pare Revolutions☆](https://www.dropbox.com/s/dr0v84fp9cs7tgh/Pasu%20Pare%20Revolutions%E2%98%86.mp3?dl=0)
+
+[Yura Yura Ring-Dong-Dance](https://www.dropbox.com/s/4i1p0jndmhofjd9/Yura%20Yura%20Ring-Dong-Dance.mp3?dl=0)
+
+[Hanamaru◎Andante](https://www.dropbox.com/s/881ab7zyf5g5624/Hanamaru%E2%97%8EAndante.mp3?dl=0)
 
 Hello, Happy World!
 
@@ -1788,6 +1822,10 @@ Saki Achiga-hen
 
 [MIRACLE RUSH](https://www.dropbox.com/s/9uedvtdl6vv1ta4/MIRACLE%20RUSH.mp3?dl=0)
 
+Yuru Camp
+
+[SHINY DAYS](https://www.dropbox.com/s/klf3hsu3gbs3upx/SHINY%20DAYS.mp3?dl=0)
+
 ## Other Songs
 
 [Cyber Thunder Cider](https://www.dropbox.com/s/qb9lm14yks4uyam/Cyber%20Thunder%20Cider.mp3?dl=0)
@@ -1839,6 +1877,12 @@ Onsen Musume
 [Hang out!!!](https://www.dropbox.com/s/o9wqqoo58bp34oe/Hang%20out%21%21%21.mp3?dl=0)
 
 [Epsilon Shinka Ron](https://www.dropbox.com/s/1fpr2kwnwe60v49/Epsilon%20Shinka%20Ron.mp3?dl=0)
+
+LiveRevolt
+
+[REVOLUTIA](https://www.dropbox.com/s/i1h9eb3k7q5ddf6/REVOLUTIA.mp3?dl=0)
+
+[Daring Soldiers](https://www.dropbox.com/s/p9fmf572hggoyec/Daring%20Soldiers.mp3?dl=0)
 
 # MandalorTeSiit
 
@@ -3379,6 +3423,12 @@ Black Bullet
 
 [Tokohana](https://www.dropbox.com/s/miec69byrvo8mhd/01%20-%20Tokohana.mp3?dl=0)
 
+Black Bullet
+
+[Aoi Honoo](https://www.dropbox.com/s/lxmt0dvclf78pje/02.%20%E8%92%BC%E3%81%84%E7%82%8E.mp3?dl=0)
+
+[Haruka Mirai](https://www.dropbox.com/s/xy6725c6k4t3eir/01.%20%E3%83%8F%E3%83%AB%E3%82%AB%E3%83%9F%E3%83%A9%E3%82%A4.mp3?dl=0)
+
 Boku no Hero Academia
 
 [Datte Atashi no Hero](https://www.dropbox.com/s/fvif5aebuwu7a85/01.%20Datte%20Atashi%20no%20Hero.mp3?dl=0)
@@ -3453,11 +3503,21 @@ Dagashi Kashi
 
 [Checkmate!?](https://www.dropbox.com/s/wsytt6qwy42eov0/01.%20Checkmate%21%EF%BC%9F.mp3?dl=0)
 
+Dakara Boku wa H ga Dekinai
+
+[Reason why XXX](https://www.dropbox.com/s/6s70s3lp7ukafqm/01%20-%20Reason%20why%20XXX.mp3?dl=0)
+
+[Platinum 17](https://www.dropbox.com/s/2rm7gh98y86bqrm/01%20-%20Platinum%2017.mp3?dl=0)
+
 Danmachi 
 
 [RE-ILLUSION](https://www.dropbox.com/s/6wk1jctzs4atok0/1%20RE-ILLUSION.mp3?dl=0)
 
 [JOURNEY](https://www.dropbox.com/s/4k2rp7zd1td7v24/2%20JOURNEY.mp3?dl=0)
+
+Darling in the FranXX
+
+[KISS OF DEATH](https://www.dropbox.com/s/4fxmmsnohdpgyoq/01%20KISS%20OF%20DEATH.mp3?dl=0)
 
 Date a Live
 
@@ -3502,6 +3562,12 @@ Dog Days
 [Houkiboshi](https://www.dropbox.com/s/5h37ajk70repcoi/02%20-%20Houkiboshi.mp3?dl=0)
 
 [PRESENTER](https://www.dropbox.com/s/iclquvejvonx5ow/01%20-%20PRESENTER.mp3?dl=0)
+
+Enmusubi no Youko-chan
+
+[Zutto](https://www.dropbox.com/s/rjn6863swf73fge/01.%20%E3%81%9A%E3%81%A3%E3%81%A8.mp3?dl=0)
+
+[Fourside Moonside](https://www.dropbox.com/s/s856ylmuqmjpumh/10.Fourside%20Moonside.mp3?dl=0)
 
 Fate Grand/Order
 
@@ -3573,6 +3639,10 @@ Granblue Fantasy
 
 [Go](https://www.dropbox.com/s/qbz72g919x6q3vm/01.%20GO.mp3?dl=0)
 
+Grancrest Senki
+
+[starry](https://www.dropbox.com/s/ldwn5bzjdtrzonz/01.%20starry.mp3?dl=0)
+
 Grisaia no Kajitsu
 
 [Anata no Aishita Sekai](https://www.dropbox.com/s/k5kgbkhzklcso16/01.%20Anata%20no%20Aishita%20Sekai.mp3?dl=0)
@@ -3593,15 +3663,131 @@ Guilty Crown
 
 [The Everlasting](https://www.dropbox.com/s/zn13h7pu7cdo9d5/01%20The%20Everlasting%20Guilty%20Crown.mp3?dl=0)
 
+Hai to Gensou no Grimgar
+
+[Knew Day](https://www.dropbox.com/s/o68fsw4m894cxr0/01_Knew%20day.mp3?dl=0)
+
+[Harvest](https://www.dropbox.com/s/abhw3fkqr8at8o5/01%20Harvest.mp3?dl=0)
+
+Hand Shakers
+
+[One Hand Message](https://www.dropbox.com/s/qvmbd7edt9e5wsw/01.%20One%20Hand%20Message.mp3?dl=0)
+
+Handa-kun
+
+[The Liberty](https://www.dropbox.com/s/frqpoucqbawuq6k/01.%20The%20LiBERTY.mp3?dl=0)
+
+[Hide and Seek](https://www.dropbox.com/s/yeqc7h2r403wm2i/01%20-%20HIDE-AND-SEEK%20%5BHanda-kun%20Ending%5D.mp3?dl=0)
+
+Hataraku Maou-sama
+
+[Zero](https://www.dropbox.com/s/35669ngkirc3xy3/01%20-%20ZERO%21%21.mp3?dl=0)
+
+[Star Chart](https://www.dropbox.com/s/610s7zw62i6c1am/01%20-%20Star%20Chart.mp3?dl=0)
+
+Heavy Object
+
+[One more Chance](https://www.dropbox.com/s/hwmoqpfmtd23oa9/01.%20One%20More%20Chance%21%21.mp3?dl=0)
+
+[Never Gave up](https://www.dropbox.com/s/itgprksdsolhn3c/1%20Never%20Gave%20Up.mp3?dl=0)
+
+[Dear Brave](https://www.dropbox.com/s/r8q70uwjru9q38f/01.%20%E3%83%87%E3%82%A3%E3%82%A2%E3%83%96%E3%83%AC%E3%82%A4%E3%83%96.mp3?dl=0)
+
+Hidan no Aria
+
+[Scarlet Ballet](https://www.dropbox.com/s/y7400pbzkj1y1xf/01.%20Scarlet%20Ballet.mp3?dl=0)
+
+Hidan no Aria AA
+
+[Bull's Eye](https://www.dropbox.com/s/ubrr9a2e3gv01af/01.%20Bull%27s%20Eye.mp3?dl=0)
+
+High School DxD
+
+[Bless Your Name](https://www.dropbox.com/s/xzxikat67ztboqy/01%20-%20BLESS%20YoUr%20NAME.mp3?dl=0)
+
+[Gekijouron](https://www.dropbox.com/s/v3cziay8kp68q8x/01%20-%20Gekijouron.mp3?dl=0)
+
+[Sympathy](https://www.dropbox.com/s/jaykvfrahkelz0w/01%20-%20Sympathy.mp3?dl=0)
+
+[-Trip- Innocent of D](https://www.dropbox.com/s/gjjlbd8lte97rna/01%20-%20Trip%20-innocent%20of%20D-.mp3?dl=0)
+
+[Oppai Dragon no Uta](https://www.dropbox.com/s/173xly3yeizmfnm/01.%20Oppai%20Dragon%20no%20Uta.mp3?dl=0)
+
+Hundred
+
+[Bloodred](https://www.dropbox.com/s/dqah9t2bk33cteu/01%20Bloodred.mp3?dl=0)
+
+Hyouka
+
+[Kimi ni Matsuwaru Mystery](https://www.dropbox.com/s/2ttx25k42sy8tlv/01.%20Kimi%20ni%20Matsuwaru%20Mystery.mp3?dl=0)
+
+[Madoromi no Yakusoku](https://www.dropbox.com/s/bzi33v9kqkssa0a/01.%20Madoromi%20no%20Yakusoku.mp3?dl=0)
+
+[Mikansei Stride](https://www.dropbox.com/s/6cwqb63rkaws7x9/1.%20Mikansei%20Stride.mp3?dl=0)
+
+[Yasashisa no Riyuu](https://www.dropbox.com/s/h05kovci57bof98/01.%20Yasashisa%20no%20Riyuu.mp3?dl=0)
+
+Infinite Stratos
+
+[STRAIGHT JET](https://www.dropbox.com/s/xzx8hca7wqnv51j/01%20-%20STRAIGHT%20JET.mp3?dl=0)
+
+[True Blue Traveler](https://www.dropbox.com/s/kib9852w7dnsyh2/01.%20True%20Blue%20Traveler.mp3?dl=0)
+
+[SUPER STREAM](https://www.dropbox.com/s/sfqtk75jiikgg3m/01%20-%20SUPER%20STREAM.mp3?dl=0)
+
+[BEAUTIFUL SKY](https://www.dropbox.com/s/cq1xwxydrisgzx8/01.%20BEAUTIFUL%20SKY.mp3?dl=0)
+
+Inuyashiki
+
+[My Hero](https://www.dropbox.com/s/vjtylczgxb7u081/01.%20My%20Hero.mp3?dl=0)
+
+[Ai wo oshiete Kureta Kimi e](https://www.dropbox.com/s/1edl5b4bpzhowsn/1%20%E6%84%9B%E3%82%92%E6%95%99%E3%81%88%E3%81%A6%E3%81%8F%E3%82%8C%E3%81%9F%E5%90%9B%E3%81%B8.mp3?dl=0)
+
+Isekai Shokudou
+
+[One in a Billion](https://www.dropbox.com/s/dzrm4boxtb2idmh/01.%20One%20In%20A%20Billion.mp3?dl=0)
+
+[Chiisana Hitotsubu](https://www.dropbox.com/s/oixsnpio25d3t2w/03.%20%E3%81%A1%E3%81%84%E3%81%95%E3%81%AA%E3%81%B2%E3%81%A8%E3%81%A4%E3%81%B6.mp3?dl=0)
+
+Koi wa Ameagari no You ni
+
+[Nostalgic Rainfall](https://www.dropbox.com/s/lhzglci0lgixzas/01.%20%E3%83%8E%E3%82%B9%E3%82%BF%E3%83%AB%E3%82%B8%E3%83%83%E3%82%AF%E3%83%AC%E3%82%A4%E3%83%B3%E3%83%95%E3%82%A9%E3%83%BC%E3%83%AB.mp3?dl=0)
+
+Kokkoku
+
+[Flashback](https://www.dropbox.com/s/obryw39x5d2l4qv/Flashback.mp3?dl=0)
+
+Märchen Mädchen
+
+[My Uncompleted Story](https://www.dropbox.com/s/as73dvw4p1emknr/01.%20My%20Uncompleted%20Story.mp3?dl=0)
+
+Macross Delta
+
+[Zettai Reido θ Novatic](https://www.dropbox.com/s/uuv6skl6016ippk/01.%20%E7%B5%B6%E5%AF%BE%E9%9B%B6%E5%BA%A6%CE%B8%E3%83%8E%E3%83%B4%E3%82%A1%E3%83%86%E3%82%A3%E3%83%83%E3%82%AF.mp3?dl=0)
+
 Mahoutsukai no Yome
 
 [Here](https://www.dropbox.com/s/e50jtcwfk1gt0vj/01.%20Here.mp3?dl=0)
+
+Mitsuboshi Colors
+
+[MIRACLE COLORS☆HONJITSU MO IJYO NASHI!](https://www.dropbox.com/s/n57u1d9hwtsi9d1/1%20%E3%83%9F%E3%83%A9%E3%82%AF%E3%83%AB%E3%82%AB%E3%83%A9%E3%83%BC%E3%82%BA%E2%98%86%E6%9C%AC%E6%97%A5%E3%82%82%E7%95%B0%E5%B8%B8%E3%83%8A%E3%82%B7%21.mp3?dl=0)
+
+[COLORS SLASH – COLORS POWER NI OMAKASERO!](https://www.dropbox.com/s/79heu7dogchxpsh/1%20%E3%82%AB%E3%83%A9%E3%83%BC%E3%82%BA%E3%81%B1%E3%82%8F%E3%83%BC%E3%81%AB%E3%81%8A%E3%81%BE%E3%81%8B%E3%81%9B%E3%82%8D%21.mp3?dl=0)
+
+Nanatsu no Taizai
+
+[Howling](https://www.dropbox.com/s/vyhvzu54hwhcui6/01.%20Howling.mp3?dl=0)
 
 Nejimaki
 
 [Tenkyou no Alderamin](https://www.dropbox.com/s/lj8ku96onmw4qzq/01.%20%E5%A4%A9%E9%8F%A1%E3%81%AE%E3%82%A2%E3%83%AB%E3%83%87%E3%83%A9%E3%83%9F%E3%83%B3.mp3?dl=0)
 
 [Circus](https://www.dropbox.com/s/6950nvjz9myj93p/02.%20circus.mp3?dl=0)
+
+Overlord
+
+[GO CRY GO](https://www.dropbox.com/s/3bpq490rp07gazk/01.%20GO%20CRY%20GO.mp3?dl=0)
 
 Qualidea Code
 
@@ -3621,6 +3807,10 @@ Rokujouma no Shinryakusha
 
 [Koukan Win Win](https://www.dropbox.com/s/23wzz3g0r0zp6hu/01%20-%20Koukan%20Win-Win%20Mujouken.mp3?dl=0)
 
+Slow Start
+
+[ne! ne! ne!](https://www.dropbox.com/s/6exqpr4m02uuaao/1%20ne%21%20ne%21%20ne%21.mp3?dl=0)
+
 Strike the Blood
 
 [Strike the Blood](https://www.dropbox.com/s/k6zv0zlhy02997j/01%20-%20Strike%20the%20Blood.mp3?dl=0)
@@ -3635,15 +3825,53 @@ Toaru kagaku/Majutsu Series
 
 [Eternal Reality](https://www.dropbox.com/s/6b2pu9xzmkssyvo/01%20-%20eternal%20reality.mp3?dl=0)
 
+Toji no Miko
+
+[Save you, Save me](https://www.dropbox.com/s/kftbsbbmlw0kild/1%20Save%20you%20Save%20me.mp3?dl=0)
+
+[Kokoro no Memoria](https://www.dropbox.com/s/ad54m6cgx8z759z/1%20%E5%BF%83%E3%81%AE%E3%83%A1%E3%83%A2%E3%83%AA%E3%82%A2.mp3?dl=0)
+
 ## Individual Artist Works
+
+Aimer
+
+[Ophelia](https://www.dropbox.com/s/0c13udo9amkjpum/%2802%29Ophelia.mp3?dl=0)
+
+[Kimi wo Matsu acoustic ver.](https://www.dropbox.com/s/bjoxdmm5ogiojgi/%2803%29%E5%90%9B%E3%82%92%E5%BE%85%E3%81%A4-acoustic%20ver.-.mp3?dl=0)
+
+[broKen NIGHT](https://www.dropbox.com/s/c0fhha7buuo0nhp/04.broKen%20NIGHT%20.mp3?dl=0)
+
+[Noir! Noir!](https://www.dropbox.com/s/um3pxqanqgiesma/05.Noir%21%20Noir%21%20.mp3?dl=0)
+
+[DAWN](https://www.dropbox.com/s/33ju1w2q7j7kbgi/12.DAWN.mp3?dl=0)
 
 Fhana
 
 [Cosmos no you ni](https://www.dropbox.com/s/38pol7q3b509me0/02.%20Cosmos%20no%20you%20ni.mp3?dl=0)
 
+[Cymbals will ring](https://www.dropbox.com/s/w0cag28u7l9jdrg/02.%20cymbals%20will%20ring.mp3?dl=0)
+
+Fo'xTails
+
+[Kagero?](https://www.dropbox.com/s/28hgq8f2fxsi06f/02.%20%E3%82%AB%E3%82%B2%E3%83%AD%E3%82%A6.mp3?dl=0)
+
+[EVER](https://www.dropbox.com/s/t6cgx3qhnzw3lq1/03.%20EVER.mp3?dl=0)
+
+Flow x Granrodeo
+
+[Glow](https://www.dropbox.com/s/g572klwt6zshsi6/02.%20GLOW.mp3?dl=0)
+
 FripSide 
 
 [Break Our Limit](https://www.dropbox.com/s/lkxagkt6s97yp1s/02.Break%20Our%20Limit.mp3?dl=0)
+
+Kalafina
+
+[Back to Zero](https://www.dropbox.com/s/718gac1yo83oeu3/02.%20Back%20To%20Zero.mp3?dl=0)
+
+Katana Maiden / Toji no Miko VAs
+
+[Nijū no Kizuna](https://www.dropbox.com/s/ozhjzle8tspcls8/2%20%E4%BA%8C%E9%87%8D%E3%81%AE%E3%82%AD%E3%82%BA%E3%83%8A.mp3?dl=0)
 
 Kenshi Yonezu
 
@@ -3651,9 +3879,19 @@ Kenshi Yonezu
 
 [Yumekui Shoujo](https://www.dropbox.com/s/cj34o6mchesro8r/3%20%E7%B1%B3%E6%B4%A5%E7%8E%84%E5%B8%AB%20-%20%E3%82%86%E3%82%81%E3%81%8F%E3%81%84%E3%81%97%E3%82%87%E3%81%86%E3%81%98%E3%82%87.mp3?dl=0)
 
+Kishida Kyoudan & Akeboshi Rockets 
+
+[Count 4](https://www.dropbox.com/s/4a0f0l38mf5ibo4/02%20count%204.mp3?dl=0)
+
 Konomi Suzuki 
 
 [Deep Red Heart](https://www.dropbox.com/s/baoejgliv537z61/03%20-%20Deep%20red%20heart.mp3?dl=0)
+
+Kuribayashi Minami
+
+[Michibiki no Sho](https://www.dropbox.com/s/gbofsmabuiwvc1d/02%20-%20Michibiki%20no%20Sho.mp3?dl=0)
+
+[Suki Janakattara](https://www.dropbox.com/s/79d62ryla2v9vyi/02%20-%20Suki%20Janakattara....mp3?dl=0)
 
 LiSA
 
@@ -3661,23 +3899,47 @@ LiSA
 
 [Sailor Spark Operation!](https://www.dropbox.com/s/i10oqb7wed6a5k4/03.%20Sailor%20Spark%20Operation%21.mp3?dl=0)
 
+[Thrill, Risk, Heartless](https://www.dropbox.com/s/w9nwmfeuahp3qtl/01.%20Thrill%2C%20Risk%2C%20Heartless.mp3?dl=0)
+
 Mami Kawada 
 
 [Halfway!](https://www.dropbox.com/s/nztgqdxx5xjyyg5/02.%20Halfway.mp3?dl=0)
+
+Maon Kurosaki
+
+[Red Alert Carpet](https://www.dropbox.com/s/2pknbau4oozzi9r/02.%20Red%20Alert%20Carpet.mp3?dl=0)
 
 Michi
 
 [∞ Infinity!](https://www.dropbox.com/s/9j4sj9adlm9jnjh/02.%20%E2%88%9E%20Infinity.mp3?dl=0)
 
+Miwa
+
+[Princess](https://www.dropbox.com/s/uaoeeymp727s71o/01.%20Princess.mp3?dl=0)
+
 Nano
 
 [Exist](https://www.dropbox.com/s/o8nj0d035pcnl08/02%20-%20Exist.mp3?dl=0)
+
+OLDCODEX
+
+[Where I Stand](https://www.dropbox.com/s/owmszvbjcy6eyeb/03.%20Where%20I%20Stand.mp3?dl=0)
+
+[Stained Me](https://www.dropbox.com/s/q6elrx8gbza8cn8/02.%20Stained%20me.mp3?dl=0)
 
 ORESAMA 
 
 [Sweet Room](https://www.dropbox.com/s/xfekrkrbelt7qlm/03.%20SWEET%20ROOM.mp3?dl=0)
 
 [Name to be updated in the next Yuki Patch #6](https://www.dropbox.com/s/f191mbykye99d37/02.%20%E3%80%8C%E3%81%AD%E3%81%87%E3%80%81%E7%A5%9E%E6%A7%98%EF%BC%9F%E3%80%8D.mp3?dl=0)
+
+Shiena Nishizawa
+
+[Brilliant Star](https://www.dropbox.com/s/vaqeo7n34gf3dq5/02.%20Brilliant%20Star.mp3?dl=0)
+
+[Cross](https://www.dropbox.com/s/z9i36zbt206ppt7/03.%20Cross.mp3?dl=0)
+
+[Yakusoku da yo](https://www.dropbox.com/s/rn4hoqfw99ivq3o/03.%20%E7%B4%84%E6%9D%9F%E3%81%A0%E3%82%88.mp3?dl=0)
 
 TrySail
 
