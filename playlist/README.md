@@ -1208,6 +1208,10 @@ Opportunity
 
 [Kururin MIRACLE](https://www.dropbox.com/s/0vsptmmcaifypt8/Kururin%20MIRACLE.mp3?dl=0)
 
+[Aishiteru Banzai! (Maki Ver.)](https://www.dropbox.com/s/migzplnctr7gkhx/Aishiteru%20Banzai%21%20%28Maki%20Ver.%29.mp3?dl=0)
+
+[Love wing bell (Rin Ver.)](https://www.dropbox.com/s/9yyew5xphrddnik/Love%20wing%20bell%20%28Rin%20Ver.%29.mp3?dl=0)
+
 Printemps
 
 [Love Marginal](https://www.dropbox.com/s/vlfauatl2y3agew/Love%20Marginal.mp3?dl=0)
@@ -1306,6 +1310,20 @@ Aqours
 
 [WONDERFUL STORIES](https://www.dropbox.com/s/wgruarol9v4ylsc/WONDERFUL%20STORIES.mp3?dl=0)
 
+[Natsu e no Tobira Never end ver.](https://www.dropbox.com/s/cxfk5j76jy42v6c/Natsu%20e%20no%20Tobira%20Never%20end%20ver..mp3?dl=0)
+
+["MY LIST" to you!](https://www.dropbox.com/s/nnsvi6x343yrh4a/%E2%80%9CMY%20LIST%E2%80%9D%20to%20you%21.mp3?dl=0)
+
+[One More Sunshine Story](https://www.dropbox.com/s/ietwseshsclevvl/One%20More%20Sunshine%20Story.mp3?dl=0)
+
+[Oyasuminasan!](https://www.dropbox.com/s/1marg85pvk2hvaa/Oyasuminasan%21.mp3?dl=0)
+
+[in this unstable world](https://www.dropbox.com/s/ndr7aacnw9xegnz/in%20this%20unstable%20world.mp3?dl=0)
+
+[Pianoforte Monologue](https://www.dropbox.com/s/ms2w3kc3qg0cbhq/Pianoforte%20Monologue.mp3?dl=0)
+
+[Beginner's Sailing](https://www.dropbox.com/s/9gl22gyn7pg8vug/Beginner%27s%20Sailing.mp3?dl=0)
+
 CYaRon!
 
 [Genki Zenkai DAY! DAY! DAY!](https://www.dropbox.com/s/lbewn7g7zltgfgn/Genki%20Zenkai%20DAY%21%20DAY%21%20DAY%21.mp3?dl=0)
@@ -1392,6 +1410,8 @@ Million Live
 
 [Thank You!!](https://www.dropbox.com/s/am5mbh16qqb4jqq/Thank%20You%21%20%28765%20MILLIONSTARS%20Ver.%29.mp3?dl=0)
 
+[StarTrip](https://www.dropbox.com/s/hsnyabk86zi7pqf/Star%C5%A6rip.mp3?dl=0)
+
 Cinderella Girls
 
 [Star!!](https://www.dropbox.com/s/9jl1mb3fclajzw4/Star%21%21.mp3?dl=0)
@@ -1432,7 +1452,7 @@ Cinderella Girls
 
 [Akimeite Ding Dong Dang!](https://www.dropbox.com/s/mbk97av3qgxrjl0/Akimeite%20Ding%20Dong%20Dang%21.mp3?dl=0)
 
-[Snow＊Love](https://www.dropbox.com/s/4pf56m0g30g62wq/Snow%EF%BC%8ALove.mp3?dl=0)
+[Snow*Love](https://www.dropbox.com/s/4pf56m0g30g62wq/Snow%EF%BC%8ALove.mp3?dl=0)
 
 SideM
 
@@ -1448,7 +1468,19 @@ SideM
 
 [ARRIVE TO STAR](https://www.dropbox.com/s/wt6nm4f4e1mr2rg/ARRIVE%20TO%20STAR.mp3?dl=0)
 
+[From Teacher To Future!](https://www.dropbox.com/s/2v7ok4c3x2byoau/From%20Teacher%20To%20Future%21.mp3?dl=0)
+
 ## High School Fleet / Haifuri
+
+[High Free Spirits](https://www.dropbox.com/s/hm19lzo9vaw8fe2/High%20Free%20Spirits.mp3?dl=0)
+
+[Bokura no Symphony](https://www.dropbox.com/s/1s0ohkh3miy8xn7/Bokura%20no%20Symphony.mp3?dl=0)
+
+[Ripple Effect](https://www.dropbox.com/s/qde7e5180gz8tbx/Ripple%20Effect.mp3?dl=0)
+
+[Dynamic Dreamers](https://www.dropbox.com/s/j2ae5u9fbag4gnx/Dynamic%20Dreamers.mp3?dl=0)
+
+[Silent Colors](https://www.dropbox.com/s/mxkwplcljk7foie/Silent%20Colors.mp3?dl=0)
 
 [Watashitachi Kinenbi](https://www.dropbox.com/s/b55s1hb93zovx24/Watashitachi%20Kinenbi.mp3?dl=0)
 
@@ -1465,6 +1497,8 @@ SideM
 [TRIGGER HAPPY GIRL](https://www.dropbox.com/s/d7cxz5vg2t6eo6r/TRIGGER%20HAPPY%20GIRL.mp3?dl=0)
 
 ## BanG Dream!
+
+[Quintiple☆Smile](https://www.dropbox.com/s/3nstbkivfrkdy49/Quintiple%E2%98%86Smile.mp3?dl=0)
 
 Poppin' Party
 
@@ -1492,6 +1526,12 @@ Poppin' Party
 
 [Happy Happy Party!](https://www.dropbox.com/s/wrxhwid4u3ihtqc/Happy%20Happy%20Party%21.mp3?dl=0)
 
+[CiRCLING](https://www.dropbox.com/s/orpryxuuma50ok3/CiRCLING.mp3?dl=0)
+
+[Light Delight](https://www.dropbox.com/s/vw85apblf3pnctv/Light%20Delight.mp3?dl=0)
+
+[Mae e Susume! (Saya Ver.)](https://www.dropbox.com/s/97g57knmplnze3v/Mae%20e%20Susume%21%20%28Saya%20Ver.%29.mp3?dl=0)
+
 Roselia
 
 [BLACK SHOUT](https://www.dropbox.com/s/lqhstmvrwua9el4/BLACK%20SHOUT.mp3?dl=0)
@@ -1508,7 +1548,11 @@ Roselia
 
 [Re:Birth Day](https://www.dropbox.com/s/oy369uu1rwv30jc/Re%EF%BC%9Abirth%20day.mp3?dl=0)
 
-[－HEROIC ADVENT－](https://www.dropbox.com/s/nkgvvxaterbvgfc/%EF%BC%8DHEROIC%20ADVENT%EF%BC%8D.mp3?dl=0)
+[-HEROIC ADVENT-](https://www.dropbox.com/s/nkgvvxaterbvgfc/%EF%BC%8DHEROIC%20ADVENT%EF%BC%8D.mp3?dl=0)
+
+[Opera of the wasteland](https://www.dropbox.com/s/xjri5igucfcomeh/Opera%20of%20the%20wasteland.mp3?dl=0)
+
+[Kiseki](https://www.dropbox.com/s/pc79doyd7wvo6g3/Kiseki.mp3?dl=0)
 
 Pastel*Palettes
 
@@ -1522,11 +1566,23 @@ Pastel*Palettes
 
 Hello, Happy World!
 
+[Egao no Orchestra!](https://www.dropbox.com/s/qx31ijvcfpl2dwy/Egao%20no%20Orchestra%21.mp3?dl=0)
+
 [Happiness! Happy Magical](https://www.dropbox.com/s/pz423wobdt623o8/Happiness%21%20Happy%20Magical%E2%99%AA.mp3?dl=0)
+
+[Gouka! Goukai!? Phantom Thief!](https://www.dropbox.com/s/dvf4ayh4sv5wccl/Gouka%21%20Goukai%21%20%EF%BC%9F%20Phantom%20Thief%21.mp3?dl=0)
+
+[YAPPY! SCHOOL CARNIVAL☆彡](https://www.dropbox.com/s/dg9awsh08ixadoy/YAPPY%21%20SCHOOL%20CARNIVAL%E2%98%86%E5%BD%A1.mp3?dl=0)
 
 Afterglow
 
+[That Is How I Roll!](https://www.dropbox.com/s/2g4j33ch1fz5d63/That%20Is%20How%20I%20Roll%21.mp3?dl=0)
+
 [True color](https://www.dropbox.com/s/qjh64ohgqk8k52f/True%20color.mp3?dl=0)
+
+[Hey-day Capriccio](https://www.dropbox.com/s/4flxgj4ovqwafr8/Hey-day%20Capriccio.mp3?dl=0)
+
+[Scarlet Sky](https://www.dropbox.com/s/u3jx21moqb39fhf/Scarlet%20Sky.mp3?dl=0)
 
 ## Aikatsu
 
@@ -1537,6 +1593,12 @@ Afterglow
 [Glass Doll](https://www.dropbox.com/s/zhep3xho9ked3fn/Glass%20Doll.mp3?dl=0)
 
 [Houkago Ponytail](https://www.dropbox.com/s/39ial4hapv1ke1s/Houkago%20Ponytail.mp3?dl=0)
+
+[Diamond Happy](https://www.dropbox.com/s/ghdeez34b7ny9qy/Diamond%20Happy.mp3?dl=0)
+
+[Hirari/Hitori/Kirari](https://www.dropbox.com/s/jg1ezk1tf5pxdle/Hirari%EF%BC%8FHitori%EF%BC%8FKirari.mp3?dl=0)
+
+[Onaji Chikyuu no Shiawase ni](https://www.dropbox.com/s/13bjt29jvz5vpq0/Onaji%20Chikyuu%20no%20Shiawase%20ni.mp3?dl=0)
 
 ## Anime Songs
 
@@ -1742,7 +1804,7 @@ Urara Meirochou
 
 [Uraraka Biyori no Shijuusou](https://www.dropbox.com/s/bmly7lvpev5ii63/Uraraka%20Biyori%20no%20Shijuusou.mp3?dl=0)
 
-[Go to Romance＞＞＞＞＞ (Labryinth Ver.)](https://www.dropbox.com/s/fu7dg850xtjxl53/Go%20to%20Romance%EF%BC%9E%EF%BC%9E%EF%BC%9E%EF%BC%9E%EF%BC%9E%20%28Labryinth%20Ver.%29.mp3?dl=0)
+[Go to Romance>>>>> (Labryinth Ver.)](https://www.dropbox.com/s/fu7dg850xtjxl53/Go%20to%20Romance%EF%BC%9E%EF%BC%9E%EF%BC%9E%EF%BC%9E%EF%BC%9E%20%28Labryinth%20Ver.%29.mp3?dl=0)
 
 Tsuki ga Kirei
 
@@ -1826,6 +1888,24 @@ Yuru Camp
 
 [SHINY DAYS](https://www.dropbox.com/s/klf3hsu3gbs3upx/SHINY%20DAYS.mp3?dl=0)
 
+[Fuyubiyori](https://www.dropbox.com/s/bug54xtfw7igkbx/Fuyubiyori.mp3?dl=0)
+
+Emiya-san Chi no Kyou no Gohan
+
+[Apron Boy](https://www.dropbox.com/s/jyyv25eicn34lkj/Apron%20Boy.mp3?dl=0)
+
+Binan Koukou Chikyuu Boueibu LOVE!
+
+[Zettai Muteki Fallin Love](https://www.dropbox.com/s/v23ark5773k1i5g/Zettai%20Muteki%20Fallin%20Love.mp3?dl=0)
+
+[Futten Toppa LOVE IS POWER](https://www.dropbox.com/s/bmr6s16b2fc63vq/Futten%20Toppa%20LOVE%20IS%20POWER.mp3?dl=0)
+
+[Zettai Saikou ☆HAPPY KISS☆](https://www.dropbox.com/s/wxja0h42plgax48/Zettai%20Saikou%20%E2%98%86HAPPY%20KISS%E2%98%86.mp3?dl=0)
+
+[Happy Ready](https://www.dropbox.com/s/xrvwoa2qmflowro/Happy%20Ready.mp3?dl=0)
+
+[Warera Kitakaki Etherstein!!](https://www.dropbox.com/s/8whlzzb5aa0vhk5/Warera%20Kitakaki%20Etherstein%21%21.mp3?dl=0)
+
 ## Other Songs
 
 [Cyber Thunder Cider](https://www.dropbox.com/s/qb9lm14yks4uyam/Cyber%20Thunder%20Cider.mp3?dl=0)
@@ -1839,6 +1919,8 @@ Hyperdimension Neptunia
 [Be My☆Zombie](https://www.dropbox.com/s/zjbcs4w4ovo94f9/Be%20My%E2%98%86Zombie.mp3?dl=0)
 
 [Log Out Shinaide!](https://www.dropbox.com/s/fdimnmecb1qtfwh/Log%20Out%20Shinaide%21.mp3?dl=0)
+
+[Pikon de Meta Fiction](https://www.dropbox.com/s/4jn2rw96jf57o4o/Pikon%20de%20Meta%20Fiction.mp3?dl=0)
 
 AKB48
 
@@ -1857,6 +1939,8 @@ Uma Musume Pretty Derby
 [Rising Girl](https://www.dropbox.com/s/ny4oqa39mdw17rc/Rising%20Girl.mp3?dl=0)
 
 [Secret GRADUATION](https://www.dropbox.com/s/qlx9cpqvq71pozp/Secret%20GRADUATION.mp3?dl=0)
+
+[Goal to my SHIP](https://www.dropbox.com/s/7x78wy803vzystc/Goal%20To%20My%20SHIP.mp3?dl=0)
 
 Re:Stage!
 
@@ -1883,6 +1967,14 @@ LiveRevolt
 [REVOLUTIA](https://www.dropbox.com/s/i1h9eb3k7q5ddf6/REVOLUTIA.mp3?dl=0)
 
 [Daring Soldiers](https://www.dropbox.com/s/p9fmf572hggoyec/Daring%20Soldiers.mp3?dl=0)
+
+[Gekijou BLUEFUTURE](https://www.dropbox.com/s/xffpypx68op42gp/Gekijou%20BLUEFUTURE.mp3?dl=0)
+
+[Aoku Nare](https://www.dropbox.com/s/k189k9i3tz8on53/Aoku%20Nare.mp3?dl=0)
+
+Tokimeki Idol Project
+
+[DREAMING-ING!!](https://www.dropbox.com/s/gga7k5fvj9z5b7w/DREAMING-ING%21%21.mp3?dl=0)
 
 # MandalorTeSiit
 
